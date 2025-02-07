@@ -48,11 +48,25 @@ Historia de fondo del Diario de Twilight:
 ->  Atrapadas bajo una tierra de sensibilidad
 
 
+Prologo: ¿No es un epilogo?
+
+Mundo 1:
+
 Como juguetes fuera de caja.
 Descubriendo un mundo caótico.
 Perdidas aquí y allá.
 Entre habitaciones encantadoras.
-Y pistas engañosas.
-Hasta que finalmente descubren.
-Que están atrapadas.
+Y pistas engañosas...
+Hasta que finalmente lo descubren.
+Están atrapadas.
 Bajo una tierra de sensibilidad.
+
+Mundo 2:
+
+** - "The world without pink ..."
+
+** - "Twilight and Badwhiz"
+
+** - "Discord and Magi"
+
+Epilogo: ¿No es un prologo?
