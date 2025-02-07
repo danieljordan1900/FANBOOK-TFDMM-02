@@ -35,3 +35,24 @@ Historia de fondo del Diario de Twilight:
     ->  Twilight logra arrebarles las piedras magicas, pero en la pelea Twilight y Magi desaparecen en un torbellino de magia hacia otra dimension
     ->  Badwhiz se queda solo con la falsa Twilight, terminan de cuidar a las amigas de Twlight que se recuperan
 
+
+[---]
+
+->  Juguetes fuera de caja
+->  Descubren un mundo de caos
+->  Se pierden aqui y alla
+->  Entre lindos-cuartos
+->  Y engañosas pistas
+->  Hasta finalmente descubrir
+->  Que se encuentran
+->  Atrapadas bajo una tierra de sensibilidad
+
+
+Como juguetes fuera de caja.
+Descubriendo un mundo caótico.
+Perdidas aquí y allá.
+Entre habitaciones encantadoras.
+Y pistas engañosas.
+Hasta que finalmente descubren.
+Que están atrapadas.
+Bajo una tierra de sensibilidad.
