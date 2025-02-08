@@ -18,7 +18,7 @@ Aun abrazandolos, Discord no pareció inmutarse demasiado. Soltó a sus amigos y
 
 "Bueno... eso es cierto, Discord, pero..."
 
-"¡Pero nada! ¡Vayamos de una vez a la feria y divirtámonos como nunca antes! ¡No hay nada en este mundo capaz de detener el tren de nuestra amistad!" proclamo al aire, y en un abrir y cerrar de ojos, su cuerpo se transformó en una estrafalaria locomotora viviente, con rostro y cuernos, que expulsaba humo verde por los costados.
+"¡Pero nada! ¡Vayamos de una vez a la feria y divirtámonos como nunca antes! ¡No hay nada en este mundo capaz de detener el tren de nuestra amistad!" proclamo al aire, y (tras un chasquido de dedos) en un abrir y cerrar de ojos, su cuerpo se transformó en una estrafalaria locomotora viviente, con rostro y cuernos, que expulsaba humo verde por los costados.
 
 Era, sin duda, un medio de transporte inusual. Nadie podía culpar a Spike por dudar antes de subirse. Sin embargo, Big Mac, con su clásico "Yep", avanzó sin titubeos y entró en el tren de pelo y carne.
 
