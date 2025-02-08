@@ -1,25 +1,27 @@
-"¡Este va ser el mejor dia de los corazones calidos de la historia!" exclamo Discord dando un gran salto y deslizandose en el suelo mientras bombas de confeti estallaban a su paso.
+En Canterlot, en uno de los patios abiertos del castillo real...
 
-"Es el dia del Festival de las Dos Hermanas" corrio Spike poco entusiasmado atras suyo, junto con BigMac.
+"¡Este va a ser el mejor Día de los Corazones Cálidos de la historia!" exclamó Discord, dando un gran salto y deslizándose por el suelo mientras bombas de confeti estallaban a su paso.
 
-"Detalles sin importancia Spike. Lo que si importa que nosotros tres, el mejor grupo de amigos de toda Equestria, pasaremos el mejor dia festivo que tres amigos como nosotros podrian llegar a pasar en un dia como este. ¡Huraaa!" dijo Discord con una sonrisa de oreja a oreja. Apareciendo detras de ellos, y dandoles un pulposo abrazo a ambos.
+"Es el Día del Festival de las Dos Hermanas..." murmuró Spike sin mucho entusiasmo, avanzando detrás de él junto con Big Mac.
 
-"Yep" respondio BigMac a las palabras de Discord en un tono ligeramente mas seguro al habitual.
+"Detalles sin importancia, Spike. Lo que sí importa es que nosotros tres, el mejor grupo de amigos de toda Equestria, pasaremos el mejor día festivo que tres amigos como nosotros podrían llegar a pasar en un día como este. ¡Hurraaa!" declaró Discord con una sonrisa de oreja a oreja, apareciendo de repente detrás de ellos y envolviéndolos en un abrazo que se asemejaba mas al ataque de un pulpo.
 
-Pero a diferencia de su granjero amigo poni, Spike estaba un poco mas reservado al entusiasmo del draconiqus.
+"Yep", respondió Big Mac, con un tono ligeramente más seguro de lo habitual.
 
-"Pues, es muy agradable de tu parte estar tan emocionado por nuestra reunion Discord ¿y tambien tan inclusivo con nosotros?, bueno, ojala pudiera sentirme igual, si no fuera porque ayer cancelaron a ultimo momento el torneo de Ogros y Mazmorras en la que hibamos a participar hoy" dijo Spike con un semblante bastante resentido, evidenciando su gran malestar por la cancelacion del evento.
+Pero, a diferencia de su amigo granjero, Spike no compartía el mismo entusiasmo.
 
-Pero a Discord no parecia importarle mucho eso ultimo. Solto a ambos amigos y dirigiendose a Spike dijo:
+"Pues... es muy amable de tu parte emocionarte tanto por nuestra reunión, Discord, y que también estes siendo tan inusualmente inclusivo con nosotros... " dijo Spike con con evidente desconfianza para luego cambiar sus expresion por otra de frustración "Pero... Ojalá pudiera sentirme igual si no fuera porque ayer cancelaron a último momento el torneo de Ogros y Mazmorras en el que íbamos a participar hoy"
 
-"Haaaa buen Spike. Eso es gran pena. Lo se. Pero no importa, hoy es un dia especial para nosotros ¿No se supones que en momentos como este, uno se olvida de las cosas malas que le han pasado? Y continua adelante viviendo experiencias unicas con sus amigos"
+Aun abrazandolos, Discord no pareció inmutarse demasiado. Soltó a sus amigos y, girándose hacia Spike, declaró con un gesto despreocupado:
 
-"Bueno ... eso es correcto Discord pero ..."
+"Ah, estimado Spike, ¡qué gran pena! Lo sé. Pero no importa. ¡Hoy es un día especial para nosotros! ¿No se supone que en momentos como este uno deja atrás las preocupaciones y sigue adelante, viviendo experiencias únicas con sus amigos?"
 
-"¡Pero nada! Vayamos de una vez a la feria, y divirtamonos como nunca antes. No ahi nada en este mundo capaz de detener al tren de nuestra amistad!" exclamo Discord convirtiendose en el acto en un bizarro tren de locomotora con rostro y cuernos que expulsavan humo verde de sus lados.
+"Bueno... eso es cierto, Discord, pero..."
 
-Era un medio de transporte muy extraño, y no se podia culpar a Spike que dudara de subirse a el. Sin embargo, BigMac dando su clasico "yep" avanzo hacia el tren de pelo y carne, y subio sin problema dentro de el.
+"¡Pero nada! ¡Vayamos de una vez a la feria y divirtámonos como nunca antes! ¡No hay nada en este mundo capaz de detener el tren de nuestra amistad!" exclamó, y en un abrir y cerrar de ojos, su cuerpo se transformó en una estrafalaria locomotora viviente, con rostro y cuernos, que expulsaba humo verde por los costados.
 
-"Uwu me hacen cosquillas!" exclamo Discord sintiendo los pasos pesado poni granjero en su interior.
+Era, sin duda, un medio de transporte inusual. Nadie podía culpar a Spike por dudar antes de subirse. Sin embargo, Big Mac, con su clásico "Yep", avanzó sin titubeos y entró en el tren de pelo y carne.
 
-Spike, sin embargo, aun fuera apenas pudo ocultar su repulsion por las caras que hacia Discord. Pero al ver como Bigmac comenzaba a conversar con el draconiqus, y que no habia pasado tipicamente 'Discord' hasta el momento, descidió subirse tambien.
+"¡Uuh! ¡Me hacen cosquillas!" chilló Discord, retorciéndose al sentir los pasos pesados del poni granjero dentro de él.
+
+Spike, aún fuera, apenas pudo disimular su expresión de disgusto ante las muecas exageradas de Discord. Sin embargo, al ver que Big Mac ya conversaba tranquilamente con el draconequus y que, sorprendentemente, nada demasiado "discor-dante" había ocurrido aún, decidió subir también.
