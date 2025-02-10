@@ -55,3 +55,31 @@ No lo habia habido desde hacia muchos minutos atras ...
 "¿Dónde está Discord?" preguntó Spike, 
 
 
+[encuentro con vim]
+
+
+[discord y vim]
+
+Spike, acompañado de Big Mac desde el suelo, habia salido disparado como un proyectil de la feria, surcando el aire tan rapido como sus alas de dragon podian permmitirle. En pocos segundos se perdio de la vista de todos, en direccion al palacio real de Canterlot.
+
+Entre los murmullos de ponis conocidos, turistas y otros. La confusion y la inquietud se extendieron como una ola. Todos preguntandose que podria estar pasando en ese momento.
+
+No obstante, ajeno a la confusion que reinaba, el soldado de la guardia real (que aun se encontrba ahi) observo todo lo que ocurria con desasoiego.
+
+"Si supongo que eso deberia de servir de algo por ahora ..." murmuro el soldado, con semblante preocupado.
+
+Casi de inmediato, entonces, otra voz, plana y artificial, hablo detras suyo.
+
+"Tus ... pasa-pasatiempos son tan inusuales, como tu-tu ... Señor del Caos" se escucho entre mecanicos tartamudeos.
+
+Dandose la vuelta con lentitud, el soldado (identificado como Joe), que habia hasta entonces mostrado el porte de un autentico miembro de la guardia real, se volvio a mirar a su espalda con una viciosa mirada afilada y una expresion agria que casi parecia deformar su rostro.
+
+Mas que una simple expresion, aquellas emociones que lo dominaban, tambien deformaban su cuerpo, conviertiendolo en una figura serpenteante que parecia la combinacion de varias criaturas.
+
+Para sorpresa de los presentes que aun estaban alli, el soldado de la guardia real se habia convertido en instantes en un draconequus en toda regla, de un figura imponente y envuelta en una aura perturbadora que fue reconocida de inmediato por una gran mayoria de los que estaban ahi.
+
+Discord el señor del caos. Se mostraba ante todos en toda su gloria. Aunque buscar la atencion de los demas no era su prioridad en ese momento.
+
+"Hola vim" hablo el monarca de la discordia en tono grave hacia la criatura que estaba delante suyo.
+
+El robot 
