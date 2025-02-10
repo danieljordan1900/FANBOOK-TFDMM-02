@@ -60,26 +60,61 @@ No lo habia habido desde hacia muchos minutos atras ...
 
 [discord y vim]
 
-Spike, acompañado de Big Mac desde el suelo, habia salido disparado como un proyectil de la feria, surcando el aire tan rapido como sus alas de dragon podian permmitirle. En pocos segundos se perdio de la vista de todos, en direccion al palacio real de Canterlot.
+Spike, acompañado de Big Mac en el suelo, había salido disparado de la feria como un proyectil, surcando el aire tan rápido como sus alas de dragón se lo permitían. En cuestión de segundos, desapareció de la vista de todos, volando en dirección al Palacio Real de Canterlot.
 
-Entre los murmullos de ponis conocidos, turistas y otros. La confusion y la inquietud se extendieron como una ola. Todos preguntandose que podria estar pasando en ese momento.
+Entre los murmullos de ponis locales, turistas y comerciantes, la confusión y la inquietud se extendieron como una ola. Todos se preguntaban qué podía estar ocurriendo.
 
-No obstante, ajeno a la confusion que reinaba, el soldado de la guardia real (que aun se encontrba ahi) observo todo lo que ocurria con desasoiego.
+Sin embargo, ajeno a la conmoción, el soldado de la guardia real que aún permanecía allí observaba la escena con desasosiego.
 
-"Si supongo que eso deberia de servir de algo por ahora ..." murmuro el soldado, con semblante preocupado.
+"Sí… supongo que eso debería servir de algo por ahora...", murmuró con el ceño fruncido, visiblemente preocupado.
 
-Casi de inmediato, entonces, otra voz, plana y artificial, hablo detras suyo.
+Casi de inmediato, una voz plana y artificial rompió el ambiente tenso desde detrás de él.
 
-"Tus ... pasa-pasatiempos son tan inusuales, como tu-tu ... Señor del Caos" se escucho entre mecanicos tartamudeos.
+"Tus... pa-pasatiempos son tan inusuales... co-como tú, Señor del Caos", se escuchó entre mecánicos tartamudeos.
 
-Dandose la vuelta con lentitud, el soldado (identificado como Joe), que habia hasta entonces mostrado el porte de un autentico miembro de la guardia real, se volvio a mirar a su espalda con una viciosa mirada afilada y una expresion agria que casi parecia deformar su rostro.
+El soldado —identificado como Joe—, que hasta entonces había mantenido el porte de un auténtico miembro de la guardia real, se giró lentamente. Pero su expresión ya no era la de un estoico vigilante. Su mirada se afiló con una hostilidad viciosa, su rostro se torció en una mueca agria y, más allá de su semblante, su propio cuerpo comenzó a transformarse.
 
-Mas que una simple expresion, aquellas emociones que lo dominaban, tambien deformaban su cuerpo, conviertiendolo en una figura serpenteante que parecia la combinacion de varias criaturas.
+Era como si aquellas emociones que lo dominaban también moldearan su ser, volviéndolo una figura serpenteante, una amalgama imposible de criaturas distintas.
 
-Para sorpresa de los presentes que aun estaban alli, el soldado de la guardia real se habia convertido en instantes en un draconequus en toda regla, de un figura imponente y envuelta en una aura perturbadora que fue reconocida de inmediato por una gran mayoria de los que estaban ahi.
+Para sorpresa de los ponis que aún estaban allí, el soldado se había desvanecido en cuestión de segundos, dejando en su lugar una presencia mucho más imponente.
 
-Discord el señor del caos. Se mostraba ante todos en toda su gloria. Aunque buscar la atencion de los demas no era su prioridad en ese momento.
+Discord, el mismísimo Señor del Caos, se alzó en toda su extravagante gloria. Sin embargo, a diferencia de sus usuales apariciones teatrales, en esta ocasión no buscaba la atención de nadie.
 
-"Hola vim" hablo el monarca de la discordia en tono grave hacia la criatura que estaba delante suyo.
+Tenía otras prioridades.
 
-El robot 
+"Hola, Vim", dijo con un tono grave, dirigiéndose a la criatura que estaba frente a él.
+
+Un débil sonido de tuercas y engranajes en movimiento resonó cuando la entidad robótica, que hasta entonces había permanecido colgada de un farol, comenzó a desprenderse con calma de las cintas de metal que la sujetaban. La ilusión óptica que la hacía parecer parte de la decoración de la feria se disipó en un instante, revelando su verdadera naturaleza.
+
+Sus ojos de cristal, fríos y mecánicos, se enfocaron por completo en Discord.
+
+"Tus buenos modales... son-son... innecesarios", respondió la figura metálica con su voz artificial. "No tengo... no tenemos una necesidad de entendernos de ese modo".
+
+"Claro... estoy de acuerdo", replicó Discord con su característica elocuencia. "Pero ya ves, se me ha vuelto un mal hábito después de tanto tiempo entre mis amigos. No puedo evitarlo. ¿Sabes de lo que hablo, no?"
+
+"No, no... no lo sé. La amistad, al igual que otras interacciones sociales, no es algo que esté facultada para comprender del todo. Son solo... mecanismos inutiles que no tienen sentido para mí."
+
+"Ah, cierto. Si que ha pasado bastante tiempo ... habia olvidado que eres tan fría como el acero. Y tan aburrida... como una piedra."
+
+"No encuentro valor en esa opinión. Aunque sí, una iteración idéntica con las protestas de mi hermana menor. Creo que ambos tendrían una buena sinergia. Sus niveles de inteligencia están al mismo nivel."
+"Ah, por favor, no me compares con esa glotona", resopló Discord con desdén. "No podríamos tener una conversación decente con ella devorando todo lo que se le ponga delante. Y no me refiero solo a la comida."
+
+"Lo-lo entiendo...", respondió Vim sin inflexión alguna.
+
+Un silencio incómodo se extendió entre ambos. Ajena a las miradas de los ponis que aún se encontraban cerca, la escena parecía una simple conversación casual entre dos conocidos. Sin embargo, en realidad, se trataba de una interacción tensa, una evaluación mutua entre dos entidades poderosas que intentaban descifrar las intenciones del otro.
+
+Discord, que había estado observando a Vim con expresión inescrutable, sin rastro de su usual sonrisa burlona, finalmente rompió la quietud. Su voz, más grave de lo habitual, resonó con una seriedad poco común.
+
+"No permitiré que se destruya este reino", declaró, alzando una garra y señalándola directamente. Su tono era una advertencia clara, y no solo Vim la escuchó; todos los ponis alrededor contuvieron la respiración ante sus palabras.
+
+Un sonido agudo acompañó el repentino escape de vapor entre los engranajes y fisuras del cuerpo de Vim. Como si fuera una caldera liberando presión, la figura mecánica exhaló una nube densa que se disipó rápidamente en el aire.
+
+"No estás dentro del ran-rango de nuestros objetivos, Señor del Caos", replicó Vim con su voz fría y sin emociones. "Ma-manténgase al margen de nuestras operaciones. Así se evi-evitarán malentendidos entre nosotros."
+
+"¡Qué educada!", exclamó Discord con fingida sorpresa, inclinándose levemente hacia ella. "¿Quién te ordenó ser tan cortés, si se puede saber? ¿Fue la amargada de Rokoko? O tal vez..."
+
+"Eso no te concierne...", interrumpió Vim con firmeza. Por primera vez, su voz dejó entrever una pizca de disgusto.
+
+"Uhmmmmmmmm... ya veo", murmuró Discord, llevándose una garra al mentón en una pose reflexiva, aunque en su mirada chispeaba un atisbo de diversión mal disimulada.
+
+
