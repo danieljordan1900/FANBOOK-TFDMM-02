@@ -84,140 +84,136 @@ Una música suave y relajante, repetitiva pero fresca, seguía envolviendo el am
 
 Entonces... un estremecimiento recorrió su cuerpo.
 
+"Pero... ¿qué?"
 
+Spike no pudo evitar hacer una mueca al notar las extrañas presencias que se encontraban solo unos metros delante de él. Aún sorprendido por su hallazgo, dominado por una curiosidad inexplicable, se acercó para verlo más de cerca.
 
-"Pero ... ¿que?" Spike, no pudo evitar hacer una mueca al notar la extrañas presencias que estaban solo unos metros delante de el. Aun sorprendido por su hallazgo, dominado por una curiosidad inexplicable, no pudo evitar acercarse para verlo mas de cerca.
+Era una visión espeluznante.
 
-Era un vision espeluzante.
+Al otro lado del centro de la feria, en un poste de farol semejante al que había estado antes, una gran cantidad de figuras colgaban en el aire, suspendidas en tendederos que se asemejaban a horcas.
 
-Al otro lado del centro de la feria, en un poste de farol semejante al que antes habia estado, una gran cantidad de figuras se hallaban colgando en el aire en tendederos que se asemejaban a horcas.
+"¡Lleve sus marionetas de Fantasía! ¡Únicas en toda Equestria! ¡Un regalo que sus engreídos de casa seguro apreciarán!" exclamaba alegremente un canoso poni de pelaje marrón que atendía el puesto.
 
-"¡Lleve sus marionetas de Fantasia unicos en toda Equestria! ¡Un regalo que sus engreidos de casa seguro apreciarán!" exclamaba alegre un canoso poni de pelaje marron que atendia en el lugar.
+Pero lejos de parecer simples juguetes, aquellas marionetas evocaban una sensación de horror con solo mirarlas. Desproporcionadas en forma, algunas faltaban de extremidades, otras tenían expresiones exageradamente realistas y muchas parecían existir solo para alimentar el morbo de quienes las contemplaban. No eran en absoluto regalos para niños ni adultos convencionales, sino más bien para individuos de gustos oscuros y siniestros.
 
-Lejos de verse como lo que realment eran. Aquel monton de marionetas evocaba una sensacion de horror con solo verlas. Desproporcionadas en forma y faltantes de extremedidades, algunas con expresiones exageradamente realistas, y otras que simplemente parecian existir solo para alimentar el morbo de los que las veian. No eran en definitiva regalos para niños o adultos, sino mas bien para aquellos individuos extraños que sentian gusto por lo siniestro y perverso.
+Spike, observando atentamente las figuras, no pudo ocultar su disgusto. Pero ese desagrado se tornó en un nudo de pavor cuando, al acercarse más, confirmó lo que había notado a la distancia.
 
-Spike, que observaba atento a las figuras, no era capaz de ocultar su disgusto por aquellas marionetas. Y este disguso se hizo mas grande cuando comprobo, ya de cerca, lo que antes habia notado a la distancia.
+Muchas de las marionetas tenían la apariencia de ponis que conocía. De amigos y conocidos. De seres queridos.
 
-Muchas de las marionetas tenian la figura de personas conocidas y cercanas a el.
+En medio de las colgantes figuras, entre las caras retorcidas de viejos enemigos y los gestos distorsionados de sus vecinos de Ponyville, seis presencias destacaban entre las demás. Eran los rostros de sus queridas amigas, las ponis con las que había vivido incontables aventuras y con quienes había salvado el día en más de una ocasión.
 
-En medio de las colgantes marionetas, entre las caras retorcidas de amigos de Poniville, y rostros maliciosos de viejos enemigos, seis figuras destacaban de las demas. Eran los rotros de sus querias amigas ponis que tantas veces habia ayudado a salvar el dia del desastre.
+Las Mane Six estaban allí, representadas como juguetes delicados. Brillaban con los colores y siluetas que las hacían inconfundibles, pero sus expresiones contradecían por completo los recuerdos que Spike guardaba de ellas.
 
-Las mane-six, se encontraban juntas ahi como juguetes delicados, brillando con los colores y las siluestas que tando destaban en ellas, sin embargo, los rostros que mostraban contradecian por mucho el recuerdo que Spike tenian de ellas.
+Con los ojos cerrados y las bocas selladas, las marionetas de sus amigas reflejaban tristeza y dolor en sus delicados rostros de porcelana. Manchas oscuras opacaban la tela que simulaba su piel, como si hubieran pasado por una terrible batalla. Entre ellas, en el centro de aquella escena macabra, una figura se alzaba abrazando con desesperación a las demás, como si tratara de protegerlas de un mundo que se desmoronaba a su alrededor.
 
-Con los ojos cerrados y bocas selladas, las marionetas de sus amigas reflejaban triztesa y dolor en sus delicados rostros de porcelana, manchas oscuras opacaban la tela que era su falsa piel, como si hubieran pasado por un terrible batalla. Entre ellas, en una posicion de abrazo tan comun de ver en la realidad, se encontraba la figura central de aquella poni a la que podia llamar mas que amiga o maestra.
+Twilight Sparkle.
 
-La figura de Twilight Sparkle, parecia brillar con luz propia, en medio de abrazo desesperado de un mundo que se desmoronaba a su alrrededor. De todas era ella quien parecia mostrar la mayor cantidad de dolor y angustia.
+De todas, era ella quien parecía mostrar la mayor angustia. Sus alas estaban desgarradas, su cuerno presentaba finas grietas y su expresión transmitía un sufrimiento tan profundo que era imposible ignorarlo.
 
-Un nudo doloroso se formo en el pecho de Spike. El sentimiento era desagradable que casi se asemejaba a una nausea. Acompañada de un presentimiento de fatalidad ...
+Un nudo doloroso se formó en el pecho de Spike. La sensación era tan desagradable que casi le provocaba náuseas, acompañada de un escalofriante presentimiento de fatalidad.
 
-Big Mac, que le habia dado alcance, no pudo evitar soltar un gran "Uhmm" al ver tambien la escena.
+Big Mac, que le había dado alcance, soltó un grave "Uhmm" al contemplar la escena.
 
-Asi, tras un tiempo que parecia detenerse en medio de una musica interminable de feria, finalmente el joven dragon reacciono ...
+En medio de un tiempo que parecía haberse detenido. Y una música interminable de feria que continuaba sonando. Finalmente, el joven dragón reaccionó.
 
-"¿Quien rayos hizo esto?" exclamo con indignacion Spike, dejando atras su desconcierto y dando pase libre a su ira.
+"¿Quién rayos hizo esto?" exclamó con indignación, dejando atrás su desconcierto y dando paso libre a su ira.
 
-Big Mac, en respuesta movio una de grandes pezuñas hacia el asiento vacio cercano a ellos, en el cual antes habia estado el viejo vendedor de las marionetas y que ahora tenia un cartel que rezaba "Fui al baño. Vuelvo en unas horas. Atentamente Quusnecodra".
+Big Mac, en respuesta, señaló con una de sus grandes pezuñas un asiento vacío cercano a ellos. Ahí, donde antes había estado el viejo vendedor de marionetas, solo quedaba un cartel con un mensaje que decía:
 
-Aquel desplante, no hizo mas que hacer que Spike se sintiera mas enfurecido.
+"Fui al baño. Vuelvo en unas horas. Atentamente, Quusnecodra".
 
-"¿Es en serio? ¿Quusnecodra? ¿Quien es ese? No recuerdo a ningun Quusnecodra en la lista de participantes de la feria. Este ni siquiera es un lugar autorizado para tener un puesto de venta. ¿Quien se cree este tipo?" exploto Spike casi escupiendo fuego de su nariz. Todo aquel asunto de las marionetas le habia puesto de muy mal humor.
+El desplante no hizo sino aumentar la furia de Spike.
 
-En un arranque de enfado, Spike extendio una garra para tomar una de las marionetas cercanas a el.
+"¿Es en serio? ¿Quusnecodra? ¿Quién es ese? No recuerdo a ningún Quusnecodra en la lista de participantes de la feria. Este ni siquiera es un lugar autorizado para vender. ¿Quién se cree este tipo?" explotó Spike, casi escupiendo fuego por la nariz. Todo aquel asunto de las marionetas lo había puesto de muy mal humor.
 
-"Pi-pi-pi-pi..." 
+En un arrebato de enojo, extendió una garra para tomar por la fuerza una de las marionetas más cercanas a él.
 
-"¡Ahhhh!" Spike, detuvo el movimiento de su garra en el aire. Sintiendo nuevamente un escalofrio recorriendo su cuerpo. Esta vez siendo la sensacion tan intensa que retrocedio casi de inmediato de una salto.
+"Pi-pi-pi-pi..."
 
-"Pi-pi...pi-pi....pi"
+"¡Ahhhh!" Spike detuvo el movimiento de su garra en el aire. Un escalofrío le recorrió la espalda, esta vez con tal intensidad que dio un salto hacia atrás casi de inmediato.
 
-"¿Uhmm?" exclamo Big Mac, al ver el extraño comportamiento de Spike. Quien se habia quedado paralisado en el lugar de su salto.
+"Pi-pi... pi-pi... pi"
 
-"Big Mac, ¿escuchas eso?" exclamo Spike, con una voz aguda y nerviosa. Mirando en direccion a donde estaban las marionetas amontonadas.
+"¿Uhmm?" exclamó Big Mac, frunciendo el ceño ante la reacción de Spike. El dragón permanecía paralizado en el lugar donde había aterrizado tras su salto.
 
-Tanto Big Mac como Spike, comenzaorn a prestar atencion el extraño ruido, que parecia provenir de las marionetas. En medio de cables sueltos y extremidades que se tambaleababan, por el viento, una silueta inusual parecia ocultarse detras de ellas.
+"Big Mac, ¿escuchas eso?" preguntó Spike con una voz aguda y nerviosa, sin apartar la vista del montón de marionetas.
 
-"¿Qué es eso?" no pudo evitar articular Spike, dando cuenta de la presencia del inusual objeto en el fondo de todos los cuerpos inanimados.
+Ambos aguzaron el oído, enfocándose en aquel sonido extraño. Parecía emanar de entre los cuerpos inertes, oculto entre cables sueltos y extremidades de madera que se balanceaban con el viento. En medio de aquel revoltijo de formas, una silueta inusual se vislumbraba en las sombras.
 
-Oculto, entre aquellos juguetes y cables, la figura casi tan gran como el mismo Spike, revelaba sutilmente su presencia con un oportuno brillo del sol.
+"¿Qué es eso?" murmuró Spike, sintiendo un escalofrío aún más profundo al notar la presencia de aquel objeto en el fondo del montón.
 
-Cuernos dorados, garras brillantes, una cola escomosa y unos ojos vidriosos casi vivos apenas visibles. Spike no tardo en reconocerlo.
+Allí, entre los juguetes y cables, se ocultaba una figura casi tan grande como el propio Spike. Su presencia se hizo evidente cuando un oportuno reflejo del sol iluminó su superficie metálica.
 
-Era un dragon, aunque de una naturaleza distinta a la que estaban acostumbrados.
+Cuernos dorados, garras brillantes, una cola escamosa y unos ojos vidriosos que parecían casi vivos. Su forma era inconfundible.
 
-Robotico ... plano .... frio ... de colores intensos, blanco y de variados tonos metalicos que cambiaban segun la perspectiva que se le mirara, daban forma a un ser de belleza inquietante que destilaba vida propia. 
+Era un dragón, pero no uno común. Su aspecto robótico y frío, con un cuerpo plano y estilizado, lo hacía parecer más una obra de arte que un ser vivo. Sus colores, una mezcla de blanco y tonos metálicos que cambiaban según la luz, le conferían una belleza inquietante. A pesar de su aparente inactividad, emanaba una extraña sensación de presencia, como si estuviera observándolos.
 
-Aquella revelacion hizo retroceder aun mas a Spike y al mismo Big Mac cuando lo reconocieron.
+Spike y Big Mac retrocedieron instintivamente al reconocerlo.
 
-¿Que hacia ahi una objeto como ese? ¿que pretendia el vendedor al ocultar un obra maestra como esa debajo de todas esas espeluznates marionetas?
+¿Qué hacía un objeto como ese en un lugar así? ¿Por qué el vendedor lo mantenía oculto entre aquellas marionetas macabras?
 
-La estrañesa de la situacion, no hizo mas que incrementar la ansiedad de Spike, que casi podia sentir la mirada de aquel muñeco sobre el.
+La extrañeza de la situación hizo que la ansiedad de Spike aumentara. Sentía, casi con certeza, que los ojos vidriosos de la criatura estaban fijos en él.
 
-"Quiza debamos dejar esto e ir a otro lado ..." murmuro Spike, con un tono de voz nervioso.
+"Quizá debamos dejar esto e irnos a otro lado..." murmuró Spike, sin apartar la vista de la figura.
 
-"Yep" confirmo Big Mac, con una misma certeza.
+"Yep", confirmó Big Mac con la misma certeza.
 
-Ambos amigos ya comenzabana alejarse, recelosos de aquella presencia que se ocultaba bajo las marionetas. Cuando, despues de dar varios pasos, vieron venir del otro lado de la feria, a un soldado de la guardia real corriendo a toda prisa hacia ellos.
+Ambos amigos comenzaron a alejarse con cautela, recelosos de aquella inquietante presencia. Sin embargo, justo cuando habían dado varios pasos en dirección opuesta, vieron a un soldado de la guardia real corriendo hacia ellos a toda prisa desde el otro lado de la feria.
 
-[encuentro con vim]
+"Joven consejero Spike, ¡gracias a Celestia que al fin lo encuentro! ¡Tenemos una emergencia!" exclamó el soldado, entregándole una carta de inmediato.
 
+"¿Joe? Espera... ¿qué? Uhmm..." Spike no tuvo tiempo de saludar al recién llegado. Apenas escuchó la palabra "emergencia" y sintió el peso de la carta en sus garras, su sorpresa se convirtió en concentración... y luego en pánico.
 
-[discord y vim]
+No podía ser verdad. ¿En qué momento había pasado todo eso?
 
-Spike, acompañado de Big Mac en el suelo, había salido disparado de la feria como un proyectil, surcando el aire tan rápido como sus alas de dragón se lo permitían. En cuestión de segundos, desapareció de la vista de todos, volando en dirección al Palacio Real de Canterlot.
+"Ataque al tren de Ponyville a Canterlot... reunión de emergencia en el Palacio Real... Celestia y Luna a cargo... ¡y esto fue hace una HORA!" gritó Spike, elevándose en el aire y llamando la atención de los presentes. "¡¿Por qué no me llegó esto antes?!"
 
-Entre los murmullos de ponis locales, turistas y comerciantes, la confusión y la inquietud se extendieron como una ola. Todos se preguntaban qué podía estar ocurriendo.
+El soldado se encogió bajo la mirada furiosa del dragón y la de Big Mac, que lo observaba con expresión severa.
 
-Sin embargo, ajeno a la conmoción, el soldado de la guardia real que aún permanecía allí observaba la escena con desasosiego.
+"Lo sentimos, joven consejero, pero no pudimos encontrarlo antes debido a ciertos inconvenientes en la feria", respondió el guardia con tono tenso.
+
+"¿Inconvenientes? ¡Podrían haber usado los parlantes de emergencia para llamarme!" replicó Spike, su enojo subiendo de tono.
+
+"Esos son los inconvenientes", explicó el soldado. "Todo el sistema de emergencia de la capital está fuera de servicio. Las líneas de comunicación, tanto físicas como mágicas, están rotas. Ninguno de los mensajeros que enviamos ha regresado hasta el momento". Su voz se volvió más baja, como si intentara contener su propia angustia y evitar que los ponis a su alrededor se alarmaran.
+
+Ante aquellas muy malas noticias. Spike se quedó flotando en el aire, en shock, inmóvil como una roca suspendida en el viento.
+
+A su alrededor, la música de la feria continuaba sonando, suave y relajante, repetitiva pero fresca... como si se burlara de él.
+
+[---]
+
+Un breve momento después...
+
+Spike, salió disparado de la feria como un proyectil, surcando el aire tan rápido como sus alas de dragón se lo permitían. En cuestión de segundos, desapareció de la vista de todos, volando en dirección al Palacio Real de Canterlot.
+
+Atras suyo, desde tierra, Big Mac lo siguio con igual prisa.
+
+Entre los murmullos de ponis locales, turistas y comerciantes, la confusión y la inquietud se esparcieron como una ola. Todos se preguntaban qué podía estar ocurriendo.
+
+Sin embargo, ajeno a la conmoción, el soldado de la guardia real que permanecía en el lugar observaba la escena con desasosiego.
 
 "Sí… supongo que eso debería servir de algo por ahora...", murmuró con el ceño fruncido, visiblemente preocupado.
 
-Casi de inmediato, una voz plana y artificial rompió el ambiente tenso desde detrás de él.
+Casi de inmediato, una voz plana y artificial rompió la tensa quietud detrás de él.
 
 "Tus... pa-pasatiempos son tan inusuales... co-como tú, Señor del Caos", se escuchó entre mecánicos tartamudeos.
 
-El soldado —identificado como Joe—, que hasta entonces había mantenido el porte de un auténtico miembro de la guardia real, se giró lentamente. Pero su expresión ya no era la de un estoico vigilante. Su mirada se afiló con una hostilidad viciosa, su rostro se torció en una mueca agria y, más allá de su semblante, su propio cuerpo comenzó a transformarse.
+El soldado (identificado como Joe), que hasta entonces había mantenido el porte de un auténtico guardia real, se giró lentamente. Pero su expresión ya no era la de un estoico vigilante. Su mirada se afiló con una hostilidad viciosa, su rostro se torció en una mueca agria y, más allá de su semblante, su propio cuerpo comenzó a transformarse.
 
 Era como si aquellas emociones que lo dominaban también moldearan su ser, volviéndolo una figura serpenteante, una amalgama imposible de criaturas distintas.
 
-Para sorpresa de los ponis que aún estaban allí, el soldado se había desvanecido en cuestión de segundos, dejando en su lugar una presencia mucho más imponente.
+Para sorpresa de los ponis que aún permanecían en la feria, el soldado se desvaneció en cuestión de segundos, dejando en su lugar una presencia mucho más imponente.
 
-Discord, el mismísimo Señor del Caos, se alzó en toda su extravagante gloria. Sin embargo, a diferencia de sus usuales apariciones teatrales, en esta ocasión no buscaba la atención de nadie.
+Discord, el mismísimo Señor del Caos, se alzó en toda su extravagante gloria. Sin embargo, a diferencia de sus usuales apariciones teatrales, esta vez no buscaba la atención de nadie.
 
 Tenía otras prioridades.
 
-"Hola, Vim", dijo con un tono grave, dirigiéndose a la criatura que estaba frente a él.
+Al mismo tiempo, frente a él, el sonido de tuercas y engranajes en movimiento resonó entre los restos de marionetas, cuando una misteriosa entidad robótica emergió de su escondite.
 
-Un débil sonido de tuercas y engranajes en movimiento resonó cuando la entidad robótica, que hasta entonces había permanecido colgada de un farol, comenzó a desprenderse con calma de las cintas de metal que la sujetaban. La ilusión óptica que la hacía parecer parte de la decoración de la feria se disipó en un instante, revelando su verdadera naturaleza.
+"Pi-pi-pi..."
 
-Sus ojos de cristal, fríos y mecánicos, se enfocaron por completo en Discord.
+Sin ocultar su verdadera naturaleza, la criatura se plantó con firmeza sobre el suelo. Su cuerpo metálico reflejaba la luz con frialdad mecánica, y sus ojos de cristal, carentes de emoción, se enfocaron por completo en Discord.
 
-"Tus buenos modales... son-son... innecesarios", respondió la figura metálica con su voz artificial. "No tengo... no tenemos una necesidad de entendernos de ese modo".
+"Disculpa por eso, Vim. Ahora... ¿qué me decías sobre el plan de tu hermana...?" dijo Discord con un tono grave, dirigiéndose al emisario de la medianoche que tenía frente a él.
 
-"Claro... estoy de acuerdo", replicó Discord con su característica elocuencia. "Pero ya ves, se me ha vuelto un mal hábito después de tanto tiempo entre mis amigos. No puedo evitarlo. ¿Sabes de lo que hablo, no?"
-
-"No, no... no lo sé. La amistad, al igual que otras interacciones sociales, no es algo que esté facultada para comprender del todo. Son solo... mecanismos inutiles que no tienen sentido para mí."
-
-"Ah, cierto. Si que ha pasado bastante tiempo ... habia olvidado que eres tan fría como el acero. Y tan aburrida... como una piedra."
-
-"No encuentro valor en esa opinión. Aunque sí, una iteración idéntica con las protestas de mi hermana menor. Creo que ambos tendrían una buena sinergia. Sus niveles de inteligencia están al mismo nivel."
-"Ah, por favor, no me compares con esa glotona", resopló Discord con desdén. "No podríamos tener una conversación decente con ella devorando todo lo que se le ponga delante. Y no me refiero solo a la comida."
-
-"Lo-lo entiendo...", respondió Vim sin inflexión alguna.
-
-Un silencio incómodo se extendió entre ambos. Ajena a las miradas de los ponis que aún se encontraban cerca, la escena parecía una simple conversación casual entre dos conocidos. Sin embargo, en realidad, se trataba de una interacción tensa, una evaluación mutua entre dos entidades poderosas que intentaban descifrar las intenciones del otro.
-
-Discord, que había estado observando a Vim con expresión inescrutable, sin rastro de su usual sonrisa burlona, finalmente rompió la quietud. Su voz, más grave de lo habitual, resonó con una seriedad poco común.
-
-"No permitiré que se destruya este reino", declaró, alzando una garra y señalándola directamente. Su tono era una advertencia clara, y no solo Vim la escuchó; todos los ponis alrededor contuvieron la respiración ante sus palabras.
-
-Un sonido agudo acompañó el repentino escape de vapor entre los engranajes y fisuras del cuerpo de Vim. Como si fuera una caldera liberando presión, la figura mecánica exhaló una nube densa que se disipó rápidamente en el aire.
-
-"No estás dentro del ran-rango de nuestros objetivos, Señor del Caos", replicó Vim con su voz fría y sin emociones. "Ma-manténgase al margen de nuestras operaciones. Así se evi-evitarán malentendidos entre nosotros."
-
-"¡Qué educada!", exclamó Discord con fingida sorpresa, inclinándose levemente hacia ella. "¿Quién te ordenó ser tan cortés, si se puede saber? ¿Fue la amargada de Rokoko? O tal vez..."
-
-"Eso no te concierne...", interrumpió Vim con firmeza. Por primera vez, su voz dejó entrever una pizca de disgusto.
-
-"Uhmmmmmmmm... ya veo", murmuró Discord, llevándose una garra al mentón en una pose reflexiva, aunque en su mirada chispeaba un atisbo de diversión mal disimulada.
-
-
+Pocos minutos después... la venganza de los Caballeros del Orden dio inicio.
