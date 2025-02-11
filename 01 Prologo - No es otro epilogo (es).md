@@ -30,11 +30,11 @@ Tras un chasquido de dedos, el grupo de amigos (con el tren-discord haciendo rui
 
 [---]
 
-Una musica suave y relajante, repetitiva pero fresca, invadia cada rincon del lugar...
+Una música suave y relajante, repetitiva pero fresca, invadía cada rincón del lugar...
 
-La Gran Feria de Maravillas de Canterlot estaba en su apogeo. Ponis de todos los tamaños y colores se movían por las calles adoquinadas, maravillándose ante las llamativas atracciones que ofrecían los distintos puestos. Algunos exhibían muebles de sala desconcertantes, cuya única función parecía ser evocar una estética enigmática. Otros mostraban libros de magia y fantasía escritos en lenguas olvidadas, colecciones de armaduras y armas para los más aventureros, y ropas elegantes diseñadas para especies prácticamente inexistentes en Equestria. Cada rincón de la feria albergaba una rareza distinta, sumergiendo a los visitantes en un mundo de maravillas y curiosidades.
+La Gran Feria de Maravillas de Canterlot estaba en su apogeo. Ponis de todos los tamaños y colores se movían por las calles adoquinadas, maravillándose ante las llamativas atracciones que ofrecían los distintos puestos. Algunos exhibían muebles de sala desconcertantes, cuya única función parecía ser evocar una estética enigmática. Otros mostraban libros de magia y fantasía escritos en lenguas olvidadas, colecciones de armaduras y armas para los más aventureros, e incluso ropas elegantes diseñadas para especies prácticamente inexistentes en Equestria. Cada rincón de la feria albergaba una rareza distinta, sumergiendo a los visitantes en un mundo de maravillas y curiosidades.
 
-Para Spike, el paseo por la feria resultaba mucho más entretenido de lo que había anticipado. Aunque no era la primera vez que la visitaba, si era la primera vez que lo exploraba solo, junto a sus amigos. Las ocurrencias de estos hacían todo aún mejor. Como cuando, momentos antes, un grupo de vendedores de cuerdas había captado la atención de Big Mac, desafiándolo a una competencia de nudos. Para sorpresa de todos, el robusto granjero terminó perdiendo. Ver a Big Mac, con su gran tamaño y fuerza, incapaz de desatar un pequeño nudo de cuerdas rosadas entre sus patas había sido justo lo que Spike necesitaba para recuperar el buen humor que le había faltado esa mañana.
+Para Spike, el paseo por la feria resultaba mucho más entretenido de lo que había anticipado. Aunque no era la primera vez que la visitaba, sí era la primera vez que la exploraba solo, junto a sus amigos. Las ocurrencias de estos hacían todo aún mejor. Como cuando, momentos antes, un grupo de vendedores de cuerdas había captado la atención de Big Mac, desafiándolo a una competencia de nudos. Para sorpresa de todos, (menos los vendedores), el robusto granjero terminó perdiendo. Ver a Big Mac, con su gran tamaño y fuerza, incapaz de desatar un pequeño nudo de cuerdas rosadas entre sus patas había sido justo lo que Spike necesitaba para recuperar el buen humor que le había faltado esa mañana.
 
 Mientras avanzaban entre los puestos, Spike empujaba una carretilla casi llena de las extrañas adquisiciones que había acumulado. A su lado, Big Mac caminaba en silencio, aún examinando la traicionera cuerda que lo había derrotado, la cual había terminado comprando por pura obstinación.
 
@@ -44,45 +44,47 @@ Con Twilight a su lado, nunca habría tenido la oportunidad de despilfarrar su d
 
 "Yep", confirmó Big Mac, saliendo de su concentración en la cuerda.
 
-"Umm... ¿Crees que si la pintamos de dorado a Twilight le interesaría tenerla en la sala del trono?"
+"Umm... ¿Crees que si la pintamos de dorado, a Twilight le interesaría tenerla en la sala del trono?"
 
 "Nop", respondió Big Mac con absoluta seguridad.
 
-"Sí, tienes razón... aunque se vería genial como decoración en una sala. Espera... ¡lo tengo! El cumpleaños de Fluttershy es dentro de poco. Si le doy un toque más artístico, quedará perfecto como regalo. Seguro le encantaría si la baño en plata. O... ¿debería recubrirla con lana? Uhm... Discord, ¿qué te parece un regalo a Fluttershy por su cumpleaños de una herradura de tamaño elefante recubierta de lana de plata?... ¿Discord?"
+"Sí, tienes razón... aunque se vería genial como decoración en una sala. Espera... ¡lo tengo! El cumpleaños de Fluttershy es dentro de poco. Si le doy un toque más artístico, quedará perfecto como regalo. Seguro le encantaría si la baño en plata. O... ¿debería recubrirla con lana? Uhm... Discord, ¿qué te parece un regalo para Fluttershy por su cumpleaños? Una herradura de tamaño elefante recubierta de lana de plata... ¿Discord?"
 
-Spike y Big Mac miraron a sus lados, dandose cuenta por fin que no habia ningun Discord a su alrededor.
+Spike y Big Mac miraron a su alrededor, dándose cuenta al fin de que Discord no estaba con ellos.
 
-No lo habia habido desde hacia muchos minutos atras ...
+No lo había estado desde hacía varios minutos...
 
-"¿Dónde está Discord?" preguntó Spike sorprendido por la ausencia del draconequus. 
+"¿Dónde está Discord?" preguntó Spike, sorprendido por la ausencia del draconequus.
 
-Discord, que habia estado animandolos con sus picardias desde que llegaran a la feria, los habia dejado sin decir una palabra. Era algo inusual, ya que el draconequus siempre hacia notar sus retiradas. Ademas que ese dia, se habia portado bastante bien pese a su naturaleza caotica e historial de conductas reprobables, incluso les habia dado regalos a cada uno incluyendo la carretilla que ahora empujaba Spike. 
+Discord, que los había estado animando con sus picardías desde que llegaron a la feria, se había esfumado sin decir una palabra. Era algo inusual, ya que siempre hacía notar sus retiradas. Además, ese día se había comportado sorprendentemente bien pese a su naturaleza caótica e historial de conductas reprobables. Incluso les había dado regalos a cada uno, incluyendo la carretilla que ahora empujaba Spike.
 
 Todo esto empezaba a tomar forma de señales inquietantes en la mente del joven dragón.
 
-"Ujum" exclamo Big Mac con un tono grave en respuesta a la anterior pregunta Spike. Sin decir nada mas. Apunto su casco hacia el camino por donde habian pasado antes.
+"Ujum", exclamó Big Mac con un tono grave en respuesta a la pregunta de Spike. Sin decir más, apuntó con su casco hacia el camino por donde habían pasado antes.
 
-Spike entendio de inmediato la intencion de su amigo.
+Spike entendió de inmediato la intención de su amigo.
 
-"Buena idea Big Mac, regresemos por donde venimos, quiza Discord haya encontrado algo interesante que no hayamos visto", dijo Spike con un tono un poco mas optimista y dejando enterradas sus preocupaciones. Quiza solo lo estaba pensando demasiado...
+"Buena idea, Big Mac. Regresemos por donde vinimos, quizá Discord haya encontrado algo interesante que no hayamos visto", dijo Spike con un tono un poco más optimista, enterrando sus preocupaciones. Quizá solo lo estaba pensando demasiado...
 
-"Yep" respondio el gran poni. Asi, sin mas palabras, ambos amigos volvieron sobre sus pasos. Zigzageando por las calles de la feria, evadiendo a los transeuntes y volviendo a maravillarse con las rarezas exoticas que asomaban aqui y haya.
+"Yep", respondió el gran poni. Así, sin más palabras, ambos amigos volvieron sobre sus pasos. Zigzaguearon por las calles de la feria, evadiendo a los transeúntes y volviendo a maravillarse con las exóticas rarezas que asomaban aquí y allá.
 
-Tras detenerse varias veces examinando a su alrrededor y esperando el paso del gentio de ponis que se amontaba. Finalmente llegaron al centro de la feria, donde habian aparecido por primera vez al llegar gracias a la magia de Discord.
+Tras detenerse varias veces para examinar los alrededores y esperar el paso del gentío de ponis que se amontonaba, finalmente llegaron al centro de la feria, el mismo punto donde habían aparecido por primera vez al llegar gracias a la magia de Discord.
 
-"Lo ves en algun lado?" preguntó Spike, mirando a su alrededor desde la cumbre de los articulos raros amontonados en su carretilla.
+"¿Lo ves en algún lado?" preguntó Spike, mirando desde la cima de los artículos raros amontonados en su carretilla.
 
-"Nop", respondió Big Mac, mirando tambien en otras direcciones.
+"Nop", respondió Big Mac, observando en distintas direcciones.
 
-Spike, tomando su carretilla y alejandose de Big Mac, avanzo hacia el lado norte de la feria, donde aun no habian explorado desde que habian llegado.
+Spike, tomando su carretilla, se alejó un poco de Big Mac y avanzó hacia el lado norte de la feria, donde aún no habían explorado.
 
-"¿Habra ido por comida exotica?" se pregunto a si mismo sin reparar en que lo escucharan. En ese lado de la feria, gran parte de los puestos se encontraban dedicados a la venta de alimentos de otros reinos. Ademas de puestos ordinarios de comida y bebida para el publico.
+"¿Habrá ido por comida exótica?", se preguntó en voz baja, sin reparar en si alguien lo escuchaba. En ese lado de la feria, la mayoría de los puestos estaban dedicados a la venta de alimentos de otros reinos, además de la comida y bebida tradicional para el público.
 
-Aun dudando, si debia ir o no, Spike se detuvo cerca de un poste de farol observando con cuidado las otras zonas de la feria que no habian explorado.
+Aún dudando si debía ir o no, Spike se detuvo cerca de un poste de farol, observando con cuidado las otras zonas de la feria que aún no habían explorado.
 
-Una musica suave y relajante, repetitiva pero fresca, continuaba escuchandose a su alrrededor.
+Una música suave y relajante, repetitiva pero fresca, seguía envolviendo el ambiente.
 
-Entonces ... un estremecimiento recorrio su cuerpo.
+Entonces... un estremecimiento recorrió su cuerpo.
+
+
 
 "Pero ... ¿que?" Spike, no pudo evitar hacer una mueca al notar la extrañas presencias que estaban solo unos metros delante de el. Aun sorprendido por su hallazgo, dominado por una curiosidad inexplicable, no pudo evitar acercarse para verlo mas de cerca.
 
@@ -138,19 +140,23 @@ Tanto Big Mac como Spike, comenzaorn a prestar atencion el extraño ruido, que p
 
 Oculto, entre aquellos juguetes y cables, la figura casi tan gran como el mismo Spike, revelaba sutilmente su presencia con un oportuno brillo del sol.
 
-Cuernos dorados, garras brillantes, una cola escomosa y unos ojos vidriosos apenas visibles. Spike no tardo en reconocerlo.
+Cuernos dorados, garras brillantes, una cola escomosa y unos ojos vidriosos casi vivos apenas visibles. Spike no tardo en reconocerlo.
 
 Era un dragon, aunque de una naturaleza distinta a la que estaban acostumbrados.
 
-Robotico ... plano .... frio ... de colores intensos, blancos y metalicos que cambiaban segun la perspectiva que se le mirara, daban forma a un ser de belleza inquietante. 
+Robotico ... plano .... frio ... de colores intensos, blanco y de variados tonos metalicos que cambiaban segun la perspectiva que se le mirara, daban forma a un ser de belleza inquietante que destilaba vida propia. 
 
 Aquella revelacion hizo retroceder aun mas a Spike y al mismo Big Mac cuando lo reconocieron.
 
 ¿Que hacia ahi una objeto como ese? ¿que pretendia el vendedor al ocultar un obra maestra como esa debajo de todas esas espeluznates marionetas?
 
-La estrañesa de la situacion, no hizo mas que incrementar la ansiedad de Spike. 
+La estrañesa de la situacion, no hizo mas que incrementar la ansiedad de Spike, que casi podia sentir la mirada de aquel muñeco sobre el.
 
+"Quiza debamos dejar esto e ir a otro lado ..." murmuro Spike, con un tono de voz nervioso.
 
+"Yep" confirmo Big Mac, con una misma certeza.
+
+Ambos amigos ya comenzabana alejarse, recelosos de aquella presencia que se ocultaba bajo las marionetas. Cuando, despues de dar varios pasos, vieron venir del otro lado de la feria, a un soldado de la guardia real corriendo a toda prisa hacia ellos.
 
 [encuentro con vim]
 
