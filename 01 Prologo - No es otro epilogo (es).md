@@ -136,27 +136,25 @@ En un arrebato de enojo, extendió una garra para tomar por la fuerza una de las
 
 "Bip-bop... bip-bop... bip-bop..."
 
-"¿Uhmm?" exclamó Big Mac, frunciendo el ceño ante la reacción de Spike. El dragón permanecía paralizado en el lugar donde había aterrizado tras su salto.
+¿Uhmm?" exclamó Big Mac, frunciendo el ceño ante la reacción de Spike. El dragón permanecía paralizado en el lugar donde había aterrizado tras su salto.
 
-"Big Mac, ¿escuchas eso?" preguntó Spike con una voz aguda y nerviosa, sin apartar la vista del montón de marionetas.
+"Big Mac, ¿ves eso?" preguntó Spike con una voz aguda y nerviosa, sin apartar la vista del montón de marionetas.
 
-Ambos aguzaron el oído, enfocándose en aquel sonido extraño. Parecía emanar de entre los cuerpos inertes, oculto entre cables sueltos y extremidades de madera que se balanceaban con el viento. En medio de aquel revoltijo de formas, una silueta inusual se vislumbraba en las sombras.
+Ambos aguzaron el oído y la vista. Allí, entre los juguetes y cables, algo se movía con cautela, emitiendo un sonido metálico y artificial. Ni Spike ni Big Mac podían distinguir bien su forma, pero la sensación de ser observados era indiscutible.
 
-"¿Qué es eso?" murmuró Spike, sintiendo un escalofrío aún más profundo al notar la presencia de aquel objeto en el fondo del montón.
+Entre los cables sueltos y extremidades de madera que se balanceaban con el viento, dos pequeños faroles brillantes de color amarillo destacaban como los ojos de un depredador al acecho en la oscuridad.
 
-Allí, entre los juguetes y cables, se ocultaba una figura casi tan grande como el propio Spike. Su presencia se hizo evidente cuando un oportuno reflejo del sol iluminó su superficie metálica.
+"¿Qué es eso?" murmuró Spike, sintiendo un escalofrío aún más profundo al darse cuenta de la presencia hostil que los observaba.
 
-Cuernos dorados, garras brillantes, una cola escamosa y unos ojos vidriosos que parecían casi vivos. Su forma era inconfundible.
+Entonces, un golpe de viento sacudió las marionetas colgantes, haciéndolas balancearse a un lado y revelando fugazmente aquello que se ocultaba. La luz que se filtró dejó al descubierto una superficie pulida, metálica y brillante. Una silueta indecifrable, distorsionada por el cegador reflejo de los rayos del sol. Pero, a pesar de la falta de detalles, resultaba evidente que aquello era un ser consciente y que no podía ni debía ser molestado.
 
-Era un dragón, pero no uno común. Su aspecto robótico y frío, con un cuerpo plano y estilizado, lo hacía parecer más una obra de arte que un ser vivo. Sus colores, una mezcla de blanco y tonos metálicos que cambiaban según la luz, le conferían una belleza inquietante. A pesar de su aparente inactividad, emanaba una extraña sensación de presencia, como si estuviera vivo ... observándolos.
+Spike y Big Mac retrocedieron aún más al reconocerlo.
 
-Spike y Big Mac retrocedieron instintivamente al reconocerlo.
+¿Qué hacía algo así en ese lugar? ¿Era acaso el guardián de las marionetas abandonadas por su dueño? ¿O era algo más?
 
-¿Qué hacía un objeto como ese en un lugar así? ¿Por qué el vendedor lo mantenía oculto entre aquellas marionetas macabras?
+La extrañeza de la situación hizo que la ansiedad de Spike aumentara. Sentía, casi con certeza, que si no se marchaban pronto de allí, algo malo les sucedería.
 
-La extrañeza de la situación hizo que la ansiedad de Spike aumentara. Sentía, casi con certeza, que los ojos vidriosos de la criatura estaban fijos en él.
-
-"Quizá debamos dejar esto e irnos a otro lado..." murmuró Spike, sin apartar la vista de la figura.
+"Quizá debamos dejar esto e irnos a otro lado..." murmuró Spike, sin apartar la vista de las marionetas.
 
 "Yep", confirmó Big Mac con la misma certeza.
 
@@ -166,9 +164,11 @@ Ambos amigos comenzaron a alejarse con cautela, recelosos de aquella inquietante
 
 "¿Joe? Espera... ¿qué? Uhmm..." Spike no tuvo tiempo de saludar al recién llegado. Apenas escuchó la palabra "emergencia" y sintió el peso de la carta en sus garras, su sorpresa se convirtió en concentración... y luego en pánico.
 
-No podía ser verdad. ¿En qué momento había pasado todo eso?
+No podía ser verdad. Lo que acababa de leer no tenia sentido. ¿En qué momento había pasado todo eso?
 
-"Ataque al tren de Ponyville a Canterlot... reunión de emergencia en el Palacio Real... Celestia y Luna a cargo... ¡y esto fue hace una HORA!" gritó Spike, elevándose en el aire y llamando la atención de los presentes. "¡¿Por qué no me llegó esto antes?!"
+Volvió a leer la carta, esta vez con más detenimiento, y sintiendo cómo su estómago se encogía.
+
+"Ataque al tren de Ponyville a Canterlot... reunión de emergencia en el Palacio Real... Celestia y Luna a cargo... ¡y esto fue hace ya una HORA!" gritó Spike, elevándose en el aire y llamando la atención de los presentes. "¡¿Por qué no me llegó esto antes?!"
 
 El soldado se encogió bajo la mirada furiosa del dragón y la de Big Mac, que lo observaba con expresión severa.
 
@@ -196,26 +196,44 @@ Sin embargo, ajeno a la conmoción, el soldado de la guardia real que permanecí
 
 "Sí… supongo que eso debería servir de algo por ahora...", murmuró con el ceño fruncido, visiblemente preocupado.
 
-Casi de inmediato, una voz plana y artificial rompió la tensa quietud detrás de él.
+Casi de inmediato, unos sonidos artificiales rompieron la tensa quietud detrás de él.
 
-"Tus... pa-pasatiempos son tan inusuales... co-como tú, Señor del Caos", se escuchó entre mecánicos tartamudeos.
+"Bip-bop-bip-bop..."
 
 El soldado (identificado antes como Joe), que hasta entonces había mantenido el porte de un auténtico guardia real, se giró lentamente. Pero su expresión ya no era la de un estoico vigilante. Su mirada se afiló con una hostilidad viciosa, su rostro se torció en una mueca agria y, más allá de su semblante, su propio cuerpo comenzó a transformarse.
 
 Era como si aquellas emociones que lo dominaban también moldearan su ser, volviéndolo una figura serpenteante, una amalgama imposible de criaturas distintas.
 
-Para sorpresa de los ponis que aún permanecían en las cercanias, el soldado se desvaneció en cuestión de segundos, dejando en su lugar una presencia mucho más imponente.
+Para sorpresa de los ponis que aún permanecían en las cercanías, el soldado se desvaneció en cuestión de segundos, dejando en su lugar una presencia mucho más imponente.
 
 Discord, el mismísimo Señor del Caos, se alzaba en toda su extravagante gloria. Sin embargo, a diferencia de sus usuales apariciones teatrales, esta vez no buscaba la atención de nadie. Ni siquiera le importaba que hubiera otros presentes.
 
 Tenía otras prioridades.
 
-Frente a él, un chirrido metálico rompió la cercana quietud cuando el amasijo de marionetas se sacudió. Entre los cuerpos de madera y los hilos enredados, una figura mecánica emergió con movimientos precisos y fríos.
+"¿Vas a salir ya o necesitas una tarjeta de invitación?" preguntó Discord, con un tono entre burlón y grave.
 
-"Bip-bop-bip-bop..."
+Frente a él, un chirrido como de engranajes chocando estalló desde el amasijo de marionetas que se sacudía. Entre los cuerpos de madera y los hilos enredados, una figura mecánica emergió con movimientos precisos y fríos.
 
-Sin ocultar su verdadera naturaleza, la criatura clavaba con firmeza sus garras sobre el suelo. Su cuerpo metálico reflejaba la luz del sol de la tarde con un brillo acerado, mientras sus ojos de cristal, carentes de emoción, se enfocaban en su objetivo.
+Pronto, una silueta de brillo cegador se plantó firme a la vista de todos.
 
-"Disculpa por eso, Vim. Ahora volviendo a lo de antes... ¿qué me decías sobre el plan de tu hermana...?" dijo Discord con un tono grave, mordiendo despreocupadamente una manzana acaramelada mientras sus palabras se dirigían al emisario de la medianoche que tenía frente a él.
+"Bip..."
+
+Cuernos dorados, garras brillantes, una cola escamosa y unos ojos vidriosos que destilaban un intenso resplandor amarillo. Su forma era inconfundible.
+
+"...bop"
+
+Era un dragón, pero no uno común. Su cuerpo estaba compuesto de placas metálicas que brillaban bajo la luz del sol, con un diseño estilizado y retrofuturista. Sus colores, una mezcla de blanco y tonos metálicos que cambiaban según la dirección desde la que se le mirara, le conferían una belleza inquietante. Sus ojos, hechos de cristal translúcido, emitían un resplandor tenue y constante, como si analizaran todo a su alrededor. Sus garras, afiladas y pulidas, se clavaban con firmeza en el suelo, y su cola, larga y flexible, se movía con un ritmo mecánico.
+
+Sin ocultar nada de su verdadera naturaleza, exponiendo un enigmático reloj dorado en su pecho, mantenía su gelida mirada en su objetivo.
+
+"Tus... pa-pasatiempos son tan inusuales... co-como tú, Señor del Caos", se escuchó entre mecánicos tartamudeos.
+
+Discord se encogió de hombros.
+
+"Cosas de amigos. Tú ya sabes, Vim."
+
+"No sé", respondió sin titubeos.
+
+"Bueno... volviendo a lo de antes. ¿Qué me decías sobre el plan de tu hermana...?" preguntó Discord, mordiendo despreocupadamente una manzana acaramelada mientras mantenía toda su atención en el emisario de la medianoche que tenía frente a él.
 
 Pocos minutos después... la venganza de los Caballeros del Orden dio inicio.

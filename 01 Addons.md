@@ -1,5 +1,5 @@
 [
-    -> Edita el siguiente fragmento de mi fanfic de my little pony para corregir (la claridad) (la fluidez) (detalles de misterio) 
+    -> Edita el siguiente fragmento de mi fanfic de my little pony para corregir (la claridad) (la fluidez) (descripcion ambientales y emociones)  (detalles de misterio) 
     -> Corrige cualquier error gramatical o de puntuación que encuentres. Considera buen uso de los gerundios.
     -> Respeta el uso de comillas dobles "" no las reemplaces
 ] 
@@ -46,5 +46,46 @@ Un sonido agudo acompañó el repentino escape de vapor entre los engranajes y f
 "Eso no te concierne...", interrumpió Vim con firmeza. Por primera vez, su voz dejó entrever una pizca de disgusto.
 
 "Uhmmmmmmmm... ya veo", murmuró Discord, llevándose una garra al mentón en una pose reflexiva, aunque en su mirada chispeaba un atisbo de diversión mal disimulada.
+
+
+[---]
+
+
+Un brillo fugaz, causado por un oportuno rayo de sol de la tarde, permitio entrever una figura pulida, llamó su atención por un instante antes de desaparecer entre las sombras.
+
+
+"¿Qué es eso?" murmuró Spike, sintiendo un escalofrío aún más profundo al notar la presencia de aquel objeto en el fondo del montón.
+
+Allí, entre los juguetes y cables, algo se movía con un sonido metálico y mecánico. Spike no podía distinguir bien su forma, pero la sensación de que lo observaban era abrumadora. Un brillo fugaz, como el reflejo de la luz en una superficie pulida, llamó su atención por un instante antes de desaparecer entre las sombras.
+
+"Big Mac, ¿ves eso?" preguntó Spike, señalando con una garra temblorosa hacia el montón de marionetas.
+
+"Yep", respondió el gran poni, frunciendo el ceño mientras observaba con atención.
+
+Ambos se acercaron con cautela, pero antes de que pudieran ver más, un chirrido agudo resonó en el aire, seguido de un silencio inquietante. Spike sintió un nudo en el estómago, como si algo estuviera a punto de suceder.
+
+"Quizá debamos dejar esto e irnos a otro lado..." murmuró Spike, sin apartar la vista del montón.
+
+"Yep", confirmó Big Mac con la misma certeza.
+
+
+
+Ambos aguzaron el oído, enfocándose en aquel sonido extraño. Parecía emanar de entre los cuerpos inertes, oculto entre cables sueltos y extremidades de madera que se balanceaban con el viento. En medio de aquel revoltijo de formas, una silueta inusual se vislumbraba en las sombras.
+
+"¿Qué es eso?" murmuró Spike, sintiendo un escalofrío aún más profundo al notar la presencia de aquel objeto en el fondo del montón.
+
+Allí, entre los juguetes y cables, se ocultaba una figura casi tan grande como el propio Spike. Su presencia se hizo evidente cuando un oportuno reflejo del sol iluminó su superficie metálica.
+
+Cuernos dorados, garras brillantes, una cola escamosa y unos ojos vidriosos que parecían casi vivos. Su forma era inconfundible.
+
+Era un dragón, pero no uno común. Su aspecto robótico y frío, con un cuerpo plano y estilizado, lo hacía parecer más una obra de arte que un ser vivo. Sus colores, una mezcla de blanco y tonos metálicos que cambiaban según la luz, le conferían una belleza inquietante. A pesar de su aparente inactividad, emanaba una extraña sensación de presencia, como si estuviera vivo ... observándolos.
+
+Spike y Big Mac retrocedieron instintivamente al reconocerlo.
+
+¿Qué hacía un objeto como ese en un lugar así? ¿Por qué el vendedor lo mantenía oculto entre aquellas marionetas macabras?
+
+La extrañeza de la situación hizo que la ansiedad de Spike aumentara. Sentía, casi con certeza, que los ojos vidriosos de la criatura estaban fijos en él.
+
+"Quizá debamos dejar esto e irnos a otro lado..." murmuró Spike, sin apartar la vista de la figura.
 
 
