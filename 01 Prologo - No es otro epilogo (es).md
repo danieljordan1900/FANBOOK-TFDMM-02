@@ -234,6 +234,6 @@ Discord se encogió de hombros.
 
 "No sé", respondió sin titubeos.
 
-"Bueno... volviendo a lo de antes. ¿Qué me decías sobre el plan de tu hermana...?" preguntó Discord, mordiendo despreocupadamente una manzana acaramelada mientras mantenía toda su atención en el emisario de la medianoche que tenía frente a él.
+"Bueno como sea... volviendo a lo de antes. ¿Qué me decías sobre el plan de tu hermana...?" preguntó Discord, mordiendo despreocupadamente una manzana acaramelada mientras mantenía toda su atención en el emisario de la medianoche que tenía frente a él.
 
 Pocos minutos después... la venganza de los Caballeros del Orden dio inicio.
