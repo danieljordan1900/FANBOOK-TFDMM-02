@@ -108,7 +108,7 @@ Con los ojos cerrados y las bocas selladas, las marionetas de sus amigas refleja
 
 Twilight Sparkle.
 
-De todas, era ella quien parecía mostrar la mayor angustia. Sus alas estaban desgarradas, su cuerno presentaba finas grietas y su expresión transmitía un sufrimiento tan profundo que era imposible ignorarlo.
+De todas, era ella quien parecía mostrar la mayor angustia. Sus alas mostraban signos de haber sido violentadas, su cuerno presentaba finas grietas y su expresión transmitía un sufrimiento tan profundo que era imposible ignorarlo.
 
 Un nudo doloroso se formó en el pecho de Spike. La sensación era tan desagradable que casi le provocaba náuseas, acompañada de un escalofriante presentimiento de fatalidad.
 
@@ -146,7 +146,7 @@ Allí, entre los juguetes y cables, se ocultaba una figura casi tan grande como 
 
 Cuernos dorados, garras brillantes, una cola escamosa y unos ojos vidriosos que parecían casi vivos. Su forma era inconfundible.
 
-Era un dragón, pero no uno común. Su aspecto robótico y frío, con un cuerpo plano y estilizado, lo hacía parecer más una obra de arte que un ser vivo. Sus colores, una mezcla de blanco y tonos metálicos que cambiaban según la luz, le conferían una belleza inquietante. A pesar de su aparente inactividad, emanaba una extraña sensación de presencia, como si estuviera observándolos.
+Era un dragón, pero no uno común. Su aspecto robótico y frío, con un cuerpo plano y estilizado, lo hacía parecer más una obra de arte que un ser vivo. Sus colores, una mezcla de blanco y tonos metálicos que cambiaban según la luz, le conferían una belleza inquietante. A pesar de su aparente inactividad, emanaba una extraña sensación de presencia, como si estuviera vivo ... observándolos.
 
 Spike y Big Mac retrocedieron instintivamente al reconocerlo.
 
@@ -184,11 +184,11 @@ A su alrededor, la música de la feria continuaba sonando, suave y relajante, re
 
 Un breve momento después...
 
-Spike, salió disparado de la feria como un proyectil, surcando el aire tan rápido como sus alas de dragón se lo permitían. En cuestión de segundos, desapareció de la vista de todos, volando en dirección al Palacio Real de Canterlot.
+Spike salió disparado de la feria como un proyectil, surcando el aire tan rápido como sus alas de dragón se lo permitían. En cuestión de segundos, desapareció de la vista de todos, volando en dirección al Palacio Real de Canterlot.
 
-Atras suyo, desde tierra, Big Mac lo siguio con igual prisa.
+Atrás, desde tierra, Big Mac lo siguió con igual urgencia.
 
-Entre los murmullos de ponis locales, turistas y comerciantes, la confusión y la inquietud se esparcieron como una ola. Todos se preguntaban qué podía estar ocurriendo.
+Entre los murmullos de ponis locales, turistas y comerciantes, la confusión y la inquietud se expandieron como una ola. Todos se preguntaban qué podía estar ocurriendo.
 
 Sin embargo, ajeno a la conmoción, el soldado de la guardia real que permanecía en el lugar observaba la escena con desasosiego.
 
@@ -198,22 +198,22 @@ Casi de inmediato, una voz plana y artificial rompió la tensa quietud detrás d
 
 "Tus... pa-pasatiempos son tan inusuales... co-como tú, Señor del Caos", se escuchó entre mecánicos tartamudeos.
 
-El soldado (identificado como Joe), que hasta entonces había mantenido el porte de un auténtico guardia real, se giró lentamente. Pero su expresión ya no era la de un estoico vigilante. Su mirada se afiló con una hostilidad viciosa, su rostro se torció en una mueca agria y, más allá de su semblante, su propio cuerpo comenzó a transformarse.
+El soldado (identificado antes como Joe), que hasta entonces había mantenido el porte de un auténtico guardia real, se giró lentamente. Pero su expresión ya no era la de un estoico vigilante. Su mirada se afiló con una hostilidad viciosa, su rostro se torció en una mueca agria y, más allá de su semblante, su propio cuerpo comenzó a transformarse.
 
 Era como si aquellas emociones que lo dominaban también moldearan su ser, volviéndolo una figura serpenteante, una amalgama imposible de criaturas distintas.
 
-Para sorpresa de los ponis que aún permanecían en la feria, el soldado se desvaneció en cuestión de segundos, dejando en su lugar una presencia mucho más imponente.
+Para sorpresa de los ponis que aún permanecían en las cercanias, el soldado se desvaneció en cuestión de segundos, dejando en su lugar una presencia mucho más imponente.
 
-Discord, el mismísimo Señor del Caos, se alzó en toda su extravagante gloria. Sin embargo, a diferencia de sus usuales apariciones teatrales, esta vez no buscaba la atención de nadie.
+Discord, el mismísimo Señor del Caos, se alzaba en toda su extravagante gloria. Sin embargo, a diferencia de sus usuales apariciones teatrales, esta vez no buscaba la atención de nadie. Ni siquiera le importaba que hubiera otros presentes.
 
 Tenía otras prioridades.
 
-Al mismo tiempo, frente a él, el sonido de tuercas y engranajes en movimiento resonó entre los restos de marionetas, cuando una misteriosa entidad robótica emergió de su escondite.
+Frente a él, un chirrido metálico rompió la cercana quietud cuando el amasijo de marionetas se sacudió. Entre los cuerpos de madera y los hilos enredados, una figura mecánica emergió con movimientos precisos y fríos.
 
 "Pi-pi-pi..."
 
-Sin ocultar su verdadera naturaleza, la criatura se plantó con firmeza sobre el suelo. Su cuerpo metálico reflejaba la luz con frialdad mecánica, y sus ojos de cristal, carentes de emoción, se enfocaron por completo en Discord.
+Sin ocultar su verdadera naturaleza, la criatura clavaba con firmeza sus garras sobre el suelo. Su cuerpo metálico reflejaba la luz del sol de la tarde con un brillo acerado, mientras sus ojos de cristal, carentes de emoción, se enfocaban en su objetivo.
 
-"Disculpa por eso, Vim. Ahora... ¿qué me decías sobre el plan de tu hermana...?" dijo Discord con un tono grave, dirigiéndose al emisario de la medianoche que tenía frente a él.
+"Disculpa por eso, Vim. Ahora volviendo a lo de antes... ¿qué me decías sobre el plan de tu hermana...?" dijo Discord con un tono grave, mordiendo despreocupadamente una manzana acaramelada mientras sus palabras se dirigían al emisario de la medianoche que tenía frente a él.
 
 Pocos minutos después... la venganza de los Caballeros del Orden dio inicio.
