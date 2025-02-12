@@ -2,7 +2,7 @@
 
 "Es el Día del Festival de las Dos Hermanas..." murmuró Spike sin mucho entusiasmo, avanzando detrás de él junto con Big Mac.
 
-Se encontraban en uno de los patios abiertos del castillo real de Canterlot, donde se habían reunido para celebrar el otrora día de celebración del Sol de Verano.
+Se encontraban en uno de los patios abiertos del castillo real de Canterlot, lugar que habian elegido como punto de encuentro para celebrar el otrora día del Ascenso del Sol de Verano.
 
 "Detalles sin importancia, Spike. Lo que sí importa es que nosotros tres, el mejor grupo de amigos de toda Equestria, pasaremos el mejor día festivo que tres amigos como nosotros podrían llegar a pasar en un día como este. ¡Hurraaa!" declaró Discord con una sonrisa de oreja a oreja, apareciendo de repente detrás de ellos y envolviéndolos en un abrazo que se asemejaba más al ataque de un pulpo.
 
@@ -10,7 +10,7 @@ Se encontraban en uno de los patios abiertos del castillo real de Canterlot, don
 
 Pero, a diferencia de su caotico amigo, Spike no compartía el mismo entusiasmo.
 
-"Pues... es muy amable de tu parte emocionarte tanto por nuestra reunión, Discord, y que también estés siendo tan inusualmente inclusivo con nosotros, uhmmm..." dijo Spike con evidente desconfianza, para luego cambiar su expresión por otra de frustración. "Aunque... no sé si pueda sentirme igual que tú hoy. No, no después de que ayer cancelaran a último momento el torneo de Ogros y Mazmorras en el que íbamos a participar esta tarde."
+"Pues... es muy amable de tu parte emocionarte tanto por nuestra reunión, Discord, y que también estés siendo tan inusualmente inclusivo con nosotros hoy, uhmmm..." dijo Spike con evidente desconfianza, para luego cambiar su expresión por otra de frustración. "Aunque... no sé si pueda llegar sentirme igual que tú ahora. No, no después de que ayer cancelaran a último momento el torneo de Ogros y Mazmorras en el que íbamos a participar esta tarde."
 
 Aún abrazándolos, Discord no pareció inmutarse demasiado. Soltó a sus amigos y, girándose hacia Spike, declaró con un gesto despreocupado:
 
@@ -34,9 +34,11 @@ Una música suave y relajante, repetitiva pero fresca, invadía cada rincón del
 
 La Gran Feria de Maravillas de Canterlot estaba en su apogeo. Ponis de todos los tamaños y colores se movían por las calles adoquinadas, maravillándose ante las llamativas atracciones que ofrecían los distintos puestos. Algunos exhibían muebles de sala desconcertantes, cuya única función parecía ser evocar una estética enigmática. Otros mostraban libros de magia y fantasía escritos en lenguas olvidadas, colecciones de armaduras y armas para los más aventureros, e incluso ropas elegantes diseñadas para especies prácticamente inexistentes en Equestria. Cada rincón de la feria albergaba una rareza distinta, sumergiendo a los visitantes en un mundo de maravillas y curiosidades.
 
+Elegida por Discord como primera parada en su cruzada de amistad esa tarde, el lugar habia resultado perfecto.
+
 Para Spike, el paseo por la feria resultaba mucho más entretenido de lo que había anticipado. Aunque no era la primera vez que la visitaba, sí era la primera vez que la exploraba solo, junto a sus amigos. Las ocurrencias de estos hacían todo aún mejor. Como cuando, momentos antes, un grupo de vendedores de cuerdas había captado la atención de Big Mac, desafiándolo a una competencia de nudos. Para sorpresa de todos, (menos los vendedores), el robusto granjero terminó perdiendo. Ver a Big Mac, con su gran tamaño y fuerza, incapaz de desatar un pequeño nudo de cuerdas rosadas entre sus patas había sido justo lo que Spike necesitaba para recuperar el buen humor que le había faltado esa mañana.
 
-Mientras avanzaban entre los puestos, Spike empujaba una carretilla casi llena de las extrañas adquisiciones que había acumulado. A su lado, Big Mac caminaba en silencio, aún examinando la traicionera cuerda que lo había derrotado, la cual había terminado comprando por pura obstinación.
+Mientras avanzaban entre los puestos, Spike empujaba con orgullo una carretilla casi llena de las extrañas adquisiciones que había acumulado. A su lado, Big Mac caminaba en silencio, aún examinando la traicionera cuerda que lo había derrotado, la cual había terminado comprando por pura obstinación.
 
 Con Twilight a su lado, nunca habría tenido la oportunidad de despilfarrar su dinero con tanta libertad.
 
@@ -56,7 +58,7 @@ No lo había estado desde hacía varios minutos...
 
 "¿Dónde está Discord?" preguntó Spike, sorprendido por la ausencia del draconequus.
 
-Discord, que los había estado animando con sus picardías desde que llegaron a la feria, se había esfumado sin decir una palabra. Era algo inusual, ya que siempre hacía notar sus retiradas. Además, ese día se había comportado sorprendentemente bien pese a su naturaleza caótica e historial de conductas reprobables. Incluso les había dado regalos a cada uno, incluyendo la carretilla que ahora empujaba Spike.
+Discord, que los había estado animando con sus picardías desde que llegaron a la feria, se había esfumado sin decir una palabra. Era algo inusual, ya que siempre hacía notar sus retiradas. Además, ese día se había comportado sorprendentemente bien pese a su naturaleza caótica e historial de conductas reprobables. Incluso les había dado regalos a cada uno, como las manzanas acarameladas que ya se habian comido y la carretilla que ahora empujaba Spike.
 
 Todo esto empezaba a tomar forma de señales inquietantes en la mente del joven dragón.
 
@@ -86,7 +88,7 @@ Entonces... un estremecimiento recorrió su cuerpo.
 
 "Pero... ¿qué?"
 
-Spike no pudo evitar hacer una mueca al notar las extrañas presencias que se encontraban solo unos metros delante de él. Aún sorprendido por su hallazgo, dominado por una curiosidad inexplicable, se acercó para verlo más de cerca.
+Spike no pudo evitar hacer una mueca al notar las extrañas presencias que se encontraban solo unos metros delante de él. Aún sorprendido por su hallazgo, se restrego los ojos y dominado por una curiosidad inexplicable, se acercó para verlo más de cerca.
 
 Era una visión espeluznante.
 
@@ -94,13 +96,13 @@ Al otro lado del centro de la feria, en un poste de farol semejante al que habí
 
 "¡Lleve sus marionetas de Fantasía! ¡Únicas en toda Equestria! ¡Un regalo que sus engreídos de casa seguro apreciarán!" exclamaba alegremente un canoso poni de pelaje marrón que atendía el puesto.
 
-Pero lejos de parecer simples juguetes, aquellas marionetas evocaban una sensación de horror con solo mirarlas. Desproporcionadas en forma, algunas faltaban de extremidades, otras tenían expresiones exageradamente realistas y muchas parecían existir solo para alimentar el morbo de quienes las contemplaban. No eran en absoluto regalos para niños ni adultos convencionales, sino más bien para individuos de gustos oscuros y siniestros.
+Pero lejos de parecer simples juguetes, aquellas marionetas evocaban una sensación de horror con solo mirarlas. Desproporcionadas en forma, algunas faltaban de extremidades o mutiladas, otras tenían expresiones exageradamente realistas y muchas parecían existir solo para alimentar el morbo de quienes las contemplaban. No eran en absoluto regalos para niños ni adultos convencionales, sino más bien para individuos de gustos oscuros y siniestros.
 
 Spike, observando atentamente las figuras, no pudo ocultar su disgusto. Pero ese desagrado se tornó en un nudo de pavor cuando, al acercarse más, confirmó lo que había notado a la distancia.
 
 Muchas de las marionetas tenían la apariencia de ponis que conocía. De amigos y conocidos. De seres queridos.
 
-En medio de las colgantes figuras, entre las caras retorcidas de viejos enemigos y los gestos distorsionados de sus vecinos de Ponyville, seis presencias destacaban entre las demás. Eran los rostros de sus queridas amigas, las ponis con las que había vivido incontables aventuras y con quienes había salvado el día en más de una ocasión.
+En medio de las colgantes figuras, entre las caras retorcidas de viejos enemigos y los gestos distorsionados de sus ex-vecinos de Ponyville, seis presencias destacaban entre las demás. Eran los rostros de sus queridas amigas, las ponis con las que había vivido incontables aventuras y con quienes había salvado el día en más de una ocasión.
 
 Las Mane Six estaban allí, representadas como juguetes delicados. Brillaban con los colores y siluetas que las hacían inconfundibles, pero sus expresiones contradecían por completo los recuerdos que Spike guardaba de ellas.
 
@@ -128,11 +130,11 @@ El desplante no hizo sino aumentar la furia de Spike.
 
 En un arrebato de enojo, extendió una garra para tomar por la fuerza una de las marionetas más cercanas a él.
 
-"Pi-pi-pi-pi..."
+"Bip-bop-bip-bop..."
 
 "¡Ahhhh!" Spike detuvo el movimiento de su garra en el aire. Un escalofrío le recorrió la espalda, esta vez con tal intensidad que dio un salto hacia atrás casi de inmediato.
 
-"Pi-pi... pi-pi... pi"
+"Bip-bop... bip-bop... bip-bop..."
 
 "¿Uhmm?" exclamó Big Mac, frunciendo el ceño ante la reacción de Spike. El dragón permanecía paralizado en el lugar donde había aterrizado tras su salto.
 
@@ -174,7 +176,7 @@ El soldado se encogió bajo la mirada furiosa del dragón y la de Big Mac, que l
 
 "¿Inconvenientes? ¡Podrían haber usado los parlantes de emergencia para llamarme!" replicó Spike, su enojo subiendo de tono.
 
-"Esos son los inconvenientes", explicó el soldado. "Todo el sistema de emergencia de la capital está fuera de servicio. Las líneas de comunicación, tanto físicas como mágicas, están rotas. Ninguno de los mensajeros que enviamos ha regresado hasta el momento". Su voz se volvió más baja, como si intentara contener su propia angustia y evitar que los ponis a su alrededor se alarmaran.
+"Esos son los inconvenientes", explicó el soldado. "Todo el sistema de emergencia de la capital está fuera de servicio. Las líneas de comunicación, tanto físicas como mágicas, están rotas. Ninguno de los mensajeros que enviamos al exterior ha regresado hasta el momento". Su voz se volvió más baja, como si intentara contener su propia angustia y evitar que los ponis a su alrededor se alarmaran.
 
 Ante aquellas muy malas noticias. Spike se quedó flotando en el aire, en shock, inmóvil como una roca suspendida en el viento.
 
@@ -210,7 +212,7 @@ Tenía otras prioridades.
 
 Frente a él, un chirrido metálico rompió la cercana quietud cuando el amasijo de marionetas se sacudió. Entre los cuerpos de madera y los hilos enredados, una figura mecánica emergió con movimientos precisos y fríos.
 
-"Pi-pi-pi..."
+"Bip-bop-bip-bop..."
 
 Sin ocultar su verdadera naturaleza, la criatura clavaba con firmeza sus garras sobre el suelo. Su cuerpo metálico reflejaba la luz del sol de la tarde con un brillo acerado, mientras sus ojos de cristal, carentes de emoción, se enfocaban en su objetivo.
 
