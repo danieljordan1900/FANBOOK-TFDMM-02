@@ -1,6 +1,6 @@
 "¡Este va a ser el mejor Día de los Corazones Cálidos de la historia!" exclamó Discord, dando un gran salto y deslizándose por el suelo mientras bombas de confeti estallaban a su paso.
 
-"Es el Día del Festival de las Dos Hermanas..." murmuró Spike sin mucho entusiasmo, avanzando detrás de él junto con Big Mac.
+"Es el Día del Festival de las Dos Hermanas..." murmuró Spike sin mucho entusiasmo, avanzando detrás de él estaba Big Mac.
 
 Se encontraban en uno de los patios abiertos del castillo real de Canterlot, lugar que habian elegido como punto de encuentro para celebrar el otrora día del Ascenso del Sol de Verano.
 
