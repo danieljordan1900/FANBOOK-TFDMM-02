@@ -6,7 +6,7 @@ Se encontraban en uno de los patios abiertos del castillo real de Canterlot, lug
 
 "Detalles sin importancia, Spike. Lo que sí importa es que nosotros tres, el mejor grupo de amigos de toda Equestria, pasaremos el mejor día festivo que tres amigos como nosotros podrían llegar a pasar en un día como este. ¡Hurraaa!" declaró Discord con una sonrisa de oreja a oreja, apareciendo de repente detrás de ellos y envolviéndolos en un abrazo que se asemejaba más al ataque de un pulpo.
 
-"Yep", respondió Big Mac, con un tono ligeramente más seguro de lo habitual.
+"Si-p", respondió Big Mac, con un tono ligeramente más seguro de lo habitual.
 
 Pero, a diferencia de su caotico amigo, Spike no compartía el mismo entusiasmo.
 
@@ -20,7 +20,7 @@ Aún abrazándolos, Discord no pareció inmutarse demasiado. Soltó a sus amigos
 
 "¡Pero nada! ¡Vayamos de una vez a la feria y divirtámonos como nunca antes! ¡No hay nada en este mundo capaz de detener el tren de nuestra amistad!" proclamo al aire, y (tras un chasquido de dedos) en un abrir y cerrar de ojos, su cuerpo se transformó en una estrafalaria locomotora viviente, con rostro y cuernos, que expulsaba humo verde por los costados.
 
-Era, sin duda, un medio de transporte de aspecto muy bizarro. Nadie podía culpar a Spike por dudar antes de subirse. Sin embargo, Big Mac, con su clásico "Yep", avanzó sin titubeos y entró en el tren de pelo y carne.
+Era, sin duda, un medio de transporte de aspecto muy bizarro. Nadie podía culpar a Spike por dudar antes de subirse. Sin embargo, Big Mac, con su clásico "Si-p", avanzó sin titubeos y entró en el tren de pelo y carne.
 
 "¡Uuh! ¡Me hacen cosquillas!" chilló Discord, retorciéndose al sentir los pasos pesados del poni granjero dentro de él.
 
@@ -44,11 +44,11 @@ Con Twilight a su lado, nunca habría tenido la oportunidad de despilfarrar su d
 
 "¡Wow, mira eso! Esa sí que es una herradura tamaño elefante", exclamó Spike, señalando una gigantesca herradura exhibida en un puesto de herraduras.
 
-"Yep", confirmó Big Mac, saliendo de su concentración en la cuerda.
+"Si-p", confirmó Big Mac, saliendo de su concentración en la cuerda.
 
 "Umm... ¿Crees que si la pintamos de dorado, a Twilight le interesaría tenerla en la sala del trono?"
 
-"Nop", respondió Big Mac con absoluta seguridad.
+"No-p", respondió Big Mac con absoluta seguridad.
 
 "Sí, tienes razón... aunque se vería genial como decoración en una sala. Espera... ¡lo tengo! El cumpleaños de Fluttershy es dentro de poco. Si le doy un toque más artístico, quedará perfecto como regalo. Seguro le encantaría si la baño en plata. O... ¿debería recubrirla con lana? Uhm... Discord, ¿qué te parece un regalo para Fluttershy por su cumpleaños? Una herradura de tamaño elefante recubierta de lana de plata... ¿Discord?"
 
@@ -68,13 +68,13 @@ Spike entendió de inmediato la intención de su amigo.
 
 "Buena idea, Big Mac. Regresemos por donde vinimos, quizá Discord haya encontrado algo interesante que no hayamos visto", dijo Spike con un tono un poco más optimista, enterrando sus preocupaciones. Quizá solo lo estaba pensando demasiado...
 
-"Yep", respondió el gran poni. Así, sin más palabras, ambos amigos volvieron sobre sus pasos. Zigzaguearon por las calles de la feria, evadiendo a los transeúntes y volviendo a maravillarse con las exóticas rarezas que asomaban aquí y allá.
+"Si-p", respondió el gran poni. Así, sin más palabras, ambos amigos volvieron sobre sus pasos. Zigzaguearon por las calles de la feria, evadiendo a los transeúntes y volviendo a maravillarse con las exóticas rarezas que asomaban aquí y allá.
 
 Tras detenerse varias veces para examinar los alrededores y esperar el paso del gentío de ponis que se amontonaba, finalmente llegaron al centro de la feria, el mismo punto donde habían aparecido por primera vez al llegar gracias a la magia de Discord.
 
 "¿Lo ves en algún lado?" preguntó Spike, mirando desde la cima de los artículos raros amontonados en su carretilla.
 
-"Nop", respondió Big Mac, observando en distintas direcciones.
+"No-p", respondió Big Mac, observando en distintas direcciones.
 
 Spike, tomando su carretilla, se alejó un poco de Big Mac y avanzó hacia el lado norte de la feria, donde aún no habían explorado.
 
@@ -156,7 +156,7 @@ La extrañeza de la situación hizo que la ansiedad de Spike aumentara. Sentía,
 
 "Quizá debamos dejar esto e irnos a otro lado..." murmuró Spike, sin apartar la vista de las marionetas.
 
-"Yep", confirmó Big Mac con la misma certeza.
+"Si-p", confirmó Big Mac con la misma certeza.
 
 Ambos amigos comenzaron a alejarse con cautela, recelosos de aquella inquietante presencia. Sin embargo, justo cuando habían dado varios pasos en dirección opuesta, vieron a un soldado de la guardia real corriendo hacia ellos a toda prisa desde el otro lado de la feria.
 
