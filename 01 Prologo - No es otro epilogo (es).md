@@ -220,11 +220,11 @@ Pronto, una silueta de brillo cegador se plantó firme a la vista de todos.
 
 Cuernos dorados, garras brillantes, una cola escamosa y unos ojos vidriosos que destilaban un intenso resplandor amarillo. Su forma era inconfundible.
 
-"...bop"
+"...bop."
 
-Era un dragón, pero no uno común. Su cuerpo estaba compuesto de placas metálicas que brillaban bajo la luz del sol, con un diseño estilizado y retrofuturista. Sus colores, una mezcla de blanco y tonos metálicos que cambiaban según la dirección desde la que se le mirara, le conferían una belleza inquietante. Sus ojos, hechos de cristal translúcido, emitían un resplandor tenue y constante, como si analizaran todo a su alrededor. Sus garras, afiladas y pulidas, se clavaban con firmeza en el suelo, y su cola, larga y flexible, se movía con un ritmo mecánico.
+Era un dragón, pequeño e infantil, pero de aspecto poco común. Su cuerpo estaba compuesto de placas metálicas que relucían bajo la luz del sol, con un diseño estilizado y retrofuturista. Sus colores, una mezcla de blanco y tonos metálicos que cambiaban según la dirección desde la que se le mirara, le conferían una belleza inquietante. Sus ojos, hechos de cristal translúcido, emitían un resplandor tenue y constante, como si analizaran todo a su alrededor. Sus garras, afiladas y pulidas, se clavaban con firmeza en el suelo, y su cola, larga y flexible, se movía con un ritmo mecánico.
 
-Sin ocultar nada de su verdadera naturaleza, exponiendo un enigmático reloj dorado en su pecho, mantenía su gelida mirada en su objetivo.
+Sin ocultar nada de su verdadera naturaleza, exponiendo un enigmático reloj dorado en su pecho, mantenía su gélida mirada en su objetivo.
 
 "Tus... pa-pasatiempos son tan inusuales... co-como tú, Señor del Caos", se escuchó entre mecánicos tartamudeos.
 
@@ -234,6 +234,6 @@ Discord se encogió de hombros.
 
 "No sé", respondió sin titubeos.
 
-"Bueno como sea... volviendo a lo de antes. ¿Qué me decías sobre el plan de tu hermana...?" preguntó Discord, mordiendo despreocupadamente una manzana acaramelada mientras mantenía toda su atención en el emisario de la medianoche que tenía frente a él.
+"En fin... volviendo a lo de antes. ¿Qué me decías sobre el plan de tu hermana...?" preguntó Discord, mordiendo despreocupadamente una manzana acaramelada mientras mantenía toda su atención en el emisario de la medianoche que tenía frente a él.
 
 Pocos minutos después... la venganza de los Caballeros del Orden dio inicio.
