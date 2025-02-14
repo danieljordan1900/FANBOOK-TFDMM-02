@@ -212,19 +212,21 @@ Tenía otras prioridades.
 
 "¿Vas a salir ya o necesitas una tarjeta de invitación?" preguntó Discord, con un tono entre burlón y grave.
 
-Frente a él, un chirrido como de engranajes chocando estalló desde el amasijo de marionetas que se sacudía. Entre los cuerpos de madera y los hilos enredados, una figura mecánica emergió con movimientos precisos y fríos.
+Frente a él, un chirrido de engranajes chocando estalló desde el amasijo de marionetas que se sacudía. Entre los cuerpos de madera y los hilos enredados, una figura mecánica emergió con movimientos precisos y fríos.
 
 Pronto, una silueta de brillo cegador se plantó firme a la vista de todos.
 
 "Bip..."
 
-Cuernos dorados, garras brillantes, una cola escamosa y unos ojos vidriosos que destilaban un intenso resplandor amarillo. Su forma era inconfundible.
+Cuernos dorados, garras relucientes, una larga cola segmentada que destellaba en tonos cálidos y, sobre todo, un par de ojos vidriosos que desprendían un resplandor amarillo hipnótico. Su forma era inconfundible.
 
 "...bop."
 
-Era un dragón, pequeño e infantil, pero de aspecto poco común. Su cuerpo estaba compuesto de placas metálicas que relucían bajo la luz del sol, con un diseño estilizado y retrofuturista. Sus colores, una mezcla de blanco y tonos metálicos que cambiaban según la dirección desde la que se le mirara, le conferían una belleza inquietante. Sus ojos, hechos de cristal translúcido, emitían un resplandor tenue y constante, como si analizaran todo a su alrededor. Sus garras, afiladas y pulidas, se clavaban con firmeza en el suelo, y su cola, larga y flexible, se movía con un ritmo mecánico.
+Era un dragón, pequeño e infantil, pero con una apariencia que desafiaba lo convencional. Su cuerpo estaba compuesto de placas metálicas pulidas, ensambladas con una precisión casi artística. Cada parte de su diseño parecía un delicado equilibrio entre lo mecánico y lo orgánico, con engranajes visibles incrustados en sus articulaciones y patrones luminosos recorriendo su estructura. Su piel reflejaba los colores del entorno, oscilando entre blancos perlados y destellos metálicos según la dirección de la luz.
 
-Sin ocultar nada de su verdadera naturaleza, exponiendo un enigmático reloj dorado en su pecho, mantenía su gélida mirada en su objetivo.
+Sus alas, en lugar de simples membranas, estaban formadas por piezas articuladas y estructuras finamente grabadas, semejantes a un mecanismo de relojería en pleno funcionamiento. Su cola, larga y flexible, emitía un leve resplandor mientras se movía con un ritmo calculado. Un enigmático reloj dorado adornaba su pecho, con agujas que giraban de forma errática, como si su existencia estuviera ligada a un tiempo ajeno a este mundo...
+
+Sin ocultar nada de su verdadera naturaleza, dio unos pasos hasta detenerse, manteniendo en todo momento su gélida mirada en su objetivo.
 
 "Tus... pa-pasatiempos son tan inusuales... co-como tú, Señor del Caos", se escuchó entre mecánicos tartamudeos.
 
