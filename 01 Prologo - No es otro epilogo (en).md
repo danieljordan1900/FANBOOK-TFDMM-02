@@ -186,54 +186,56 @@ Around him, the fair’s music continued to play—soft and relaxing, repetitive
 
 A brief moment later...
 
-Spike shot out of the fair like a projectile, soaring through the air as fast as his dragon wings would allow. In a matter of seconds, he vanished from everyone's sight, flying straight toward Canterlot's Royal Palace.
+Spike shot out of the fair like a projectile, soaring through the air as fast as his dragon wings would allow. Within seconds, he disappeared from sight, flying straight toward Canterlot's Royal Palace.
 
 Behind him, on the ground, Big Mac followed with equal urgency.
 
-Among the murmurs of local ponies, tourists, and merchants, confusion and unease spread like a wave. Everyone wondered what could be happening.
+Among the murmurs of local ponies, tourists, and merchants, confusion and unease spread like a wave. Everyone was wondering what could be happening.
 
-However, oblivious to the commotion, the Royal Guard soldier who remained at the scene observed the unfolding events with unease.
+However, oblivious to the commotion, the royal guard soldier who remained at the scene watched with growing unease.
 
-"Yeah… I suppose that should be enough for now…" he muttered with a frown, visibly worried.
+"Yes… I suppose that should do something for now..." he muttered, furrowing his brow, visibly concerned.
 
 Almost immediately, artificial sounds shattered the tense silence behind him.
 
 "Bip-bop-bip-bop..."
 
-The soldier (previously identified as Joe), who had until then maintained the composure of a true Royal Guard, turned around slowly. But his expression was no longer that of a stoic sentry. His gaze sharpened with vicious hostility, his face twisted into a sour grimace, and beyond his countenance, his very body began to transform.
+The soldier (previously identified as Joe), who until then had maintained the composure of a true royal guard, turned around slowly. But his expression was no longer that of a stoic sentinel. His gaze sharpened with vicious hostility, his face twisted into a sour grimace, and beyond his countenance, his very body began to transform.
 
-It was as if the emotions that overtook him were also reshaping his being, turning him into a serpentine figure, an impossible amalgamation of different creatures.
+It was as if the emotions consuming him also reshaped his being, turning him into a serpentine figure, an impossible amalgamation of different creatures.
 
-To the surprise of the ponies still in the vicinity, the soldier vanished in a matter of seconds, leaving in his place a far more imposing presence.
+To the astonishment of the ponies still lingering nearby, the soldier vanished within seconds, leaving in his place a far more imposing presence.
 
-Discord, the very Lord of Chaos, stood in all his extravagant glory. However, unlike his usual theatrical entrances, this time he wasn’t seeking anyone’s attention. He didn’t even care that there were others present.
+Discord, the very Lord of Chaos, stood tall in all his extravagant glory. However, unlike his usual theatrical entrances, this time he wasn't seeking anyone's attention. He didn’t even care that others were present.
 
 He had other priorities.
 
-"Are you coming out now, or do you need a formal invitation?" Discord asked, his tone a mix of mockery and gravity.
+"Are you coming out already, or do you need a formal invitation?" Discord asked, his tone somewhere between mocking and serious.
 
-In front of him, a screech like grinding gears erupted from the heap of puppets that shook violently. Among the wooden bodies and tangled strings, a mechanical figure emerged with precise and calculated movements.
+Before him, a screech of clashing gears erupted from the shifting pile of marionettes. Among the wooden bodies and tangled strings, a mechanical figure emerged with precise, calculated movements.
 
-Soon, a blindingly radiant silhouette stood firm for all to see.
+Soon, a blinding silhouette stood firm for all to see.
 
 "Bip..."
 
-Golden horns, gleaming claws, a scaly tail, and glassy eyes emitting an intense yellow glow. Its form was unmistakable.
+Golden horns, gleaming claws, a long segmented tail that shimmered in warm hues, and most strikingly, a pair of glassy eyes radiating a hypnotic yellow glow. Its form was unmistakable.
 
 "...bop."
 
-It was a dragon, small and childlike, but of an unusual appearance. Its body was composed of metal plates that shimmered under the sunlight, with a sleek, retro-futuristic design. Its colors, a blend of white and metallic hues that shifted depending on the angle, gave it an unsettling beauty. Its eyes, made of translucent crystal, emitted a steady, faint glow as if analyzing everything around it. Its claws, sharp and polished, dug firmly into the ground, and its tail, long and flexible, moved in a mechanical rhythm.
+It was a dragon—small and childlike, yet with an appearance that defied convention. Its body was composed of polished metal plates, assembled with almost artistic precision. Every part of its design seemed to strike a delicate balance between the mechanical and the organic, with visible gears embedded in its joints and luminous patterns tracing its structure. Its skin reflected the colors of its surroundings, shifting between pearlescent whites and metallic sheens depending on the angle of the light.
 
-Without concealing anything of its true nature, exposing an enigmatic golden clock on its chest, it fixed its icy gaze on its target.
+Its wings, instead of simple membranes, were made of articulated pieces and finely engraved structures, resembling a fully functioning clockwork mechanism. Its long, flexible tail emitted a faint glow as it moved with calculated rhythm. An enigmatic golden clock adorned its chest, its hands spinning erratically, as if its very existence were tied to a time beyond this world...
 
-"Your… ho-hobbies are as unusual… as you, Lord of Chaos," it spoke through mechanical stutters.
+Without hiding anything of its true nature, it took a few steps forward and stopped, keeping its cold gaze fixed on its target.
+
+"Your... ho-hobbies are as unusual... a-as you are, Lord of Chaos," it spoke through mechanical stutters.
 
 Discord shrugged.
 
 "Friend things. You know how it is, Vim."
 
-"I do not know," it replied without hesitation.
+"I don’t know," it replied without hesitation.
 
-"Anyway… back to our earlier topic. What were you saying about your sister’s plan…?" Discord asked, casually biting into a caramel apple while keeping his full attention on the midnight emissary standing before him.
+"Anyway... back to what we were discussing. What were you saying about your sister’s plan...?" Discord asked, casually biting into a caramel apple while keeping his full attention on the midnight emissary standing before him.
 
-A few minutes later… the Knights of Order’s revenge began.
+A few minutes later... the revenge of the Knights of Order began.
