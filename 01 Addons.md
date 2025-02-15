@@ -97,4 +97,39 @@ La extrañeza de la situación hizo que la ansiedad de Spike aumentara. Sentía,
 
 "Quizá debamos dejar esto e irnos a otro lado..." murmuró Spike, sin apartar la vista de la figura.
 
+[...]
+
+
+Hola ... [personas]
+
+Veamos esto es algo que vale la pena comentar.
+
+Recuerdo hace muchos meses atras ...
+
+Cuando ingrese por primera vez a la plataforma web de este fandom (fim-fiction) y me uni a su grupo de Discord. Note ciertos aspectos inquietantes de este lugar. No entrare en detalle de todos estos temas. Pero entre aquellos que mas me intrigaron esta el caso de esta persona.
+
+Recuerdo haber publicado en el server de discord (y en algun foro) una pregunta abierta de porque esta persona en particular recibia tanto dislikes en sus publicaciones.
+
+Hubieron respuestas mixtas, que riman mucho con aquellas que se tienen en este hilo de conversacion. Pero en general el desinteres de la comunidad se hizo evidente. 
+
+Yo lo vi como un gran problema. En ese entonces era una persona nueva en este fandom, y realmente me preocupe por ello.
+
+Intenten conversar con Artist, pero no fue un encuentro tan positivo, no soy tan sociable o comprensivo como las iconicas "figuras literarias" de este fandom. Asi que tube que aceptar que Artist era alguien en una mundo diferente a la que yo estaba acostumbrado. Y mis limitaciones evitaban que pudiera ser alguien de ayuda para esta persona y sus ideas. Asi que me aleje de ese tema.
+
+No obstante ...
+
+Si preste mas atencion al hecho de que, en si, ¿realmente era Artist unicamente el 'problema'? O ¿Habian mas factores en juego que permitian que esto sucediece?
+
+Por el momento, tengo dos cosas que decir sobre esto.
+
+1. El sistemas de votaciones de este fandom es muy ineficiente. Otras plataformas no cuentan con un sistema de votaciones en negativo. Tales libertades se prestan a escenarios como este. En todo caso, como sistemas mas responsables, deberian buscar que los votos negativos fueran justificables. Que el usuario se vea obligado a explicar su voto negativo con un comentario.
+
+2. Las estadisticas de visitas no son confiables. Es muy probable que la plataforma ya este demasiado comprometida por bots o usuarios fantasmas. Tal es el arraigo que ya simplemente no me da ninguna seguridad ver el diagrama de visitas de mis fanfics publicados. Los casos de envios de correo falsos y comentarios tipo IA son prueba de eso. Puede que otros usuarios hayan notado esto mismo y sienten menos aprecio por publicar aqui y por ende a la comunidad en general.
+
+Bueno eso es todo por ahora. Es mi punto de vista. Seguro ahi muchas opiniones diferentes al respecto. Pero creo que es importante que se tenga en cuenta dado lo lejos que estan llegando con el tema que inicio este hilo.
+
+
+
+
+
 
