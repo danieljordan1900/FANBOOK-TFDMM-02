@@ -1,0 +1,7 @@
+->  Applejack despierta muy confundida
+->  Piensa que estan en la casa del arbol en medio de una resaca despues de la celebracion de ascenso del sol de verano
+->  Tras observar alrrededor tiene una falsa impresion de lo que esta pasando
+->  Pero poco a poco empieza a recuperar la memoria y con el trauma de lo ocurrido
+->  Badwhiz es descubierto por el grupo y capturado
+->  Badwhiz les encomienda la busqueda de Twilight y luego desaparece
+->  las mane six se quedan solo con el diario de Twilight
