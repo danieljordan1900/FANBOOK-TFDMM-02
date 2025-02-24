@@ -1,14 +1,13 @@
-Era tibio... era suave ... era familiar ...
+"Era tibio... era suave... era familiar..."
 
-Poco a poco el sensible mundo a su alrrededor va manifestandose dentro de la mente de Applejack.
+Poco a poco, el sensible mundo a su alrededor va manifestándose dentro de ella.
 
 Se siente luminosa, se siente transparente, se siente irrisoria.
 
-Tan despreocupada como una poni que descansa en una amaca tendida en medio de un prado dorado de madura cebada
+Tan despreocupada como cualquiera que descansara en una hamaca tendida en medio de un prado dorado de madura cebada,
+acariciada por un gentil viento y bajo un cielo azul...
 
-Acariciada por un gentil viento y bajo un cielo azul...
-
-Nada tiene importancia y luego de pronto ... todo importa.
+Nada tiene importancia y, luego, de pronto... todo importa.
 
 [---]
 
@@ -52,6 +51,8 @@ Ahora todo tenía sentido. Las siluetas de los ponis a su alrededor encajaban pe
 
 Volviendo a echarse en el suelo donde había estado, no tuvo problemas en acomodarse, a pesar de que solo contaba con una manta gruesa como colchón y una sábana ligera a un lado. Se acurrucó, más como un animal salvaje que como una poni refinada de ciudad.
 
-Sí, todo estaba en orden. No había nada de qué preocuparse...
+Sí, todo estaba en orden. No había nada de qué preocuparse... podia volver a dormir en paz.
+
+
 
 
