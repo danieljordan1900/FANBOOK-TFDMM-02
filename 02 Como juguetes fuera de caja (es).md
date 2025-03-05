@@ -5,54 +5,57 @@ Poco a poco, el sensible mundo a su alrededor va manifestándose dentro de ella.
 Se siente luminosa, se siente transparente, se siente irrisoria.
 
 Tan despreocupada como cualquiera que descansara en una hamaca tendida en medio de un prado dorado de madura cebada,
-acariciada por un gentil viento y bajo un cielo azul...
+acariciada por un gentil viento, bajo un cielo azul...
 
-Nada tiene importancia y, luego, de pronto... todo importa.
+Nada tiene importancia, nada sucede y, luego, de pronto... todo importa y ocurre.
 
 [---]
 
 "Ughhh..." Un quejido se escuchó en la penumbra.
 
-Applejack protestó mientras sus párpados se resistían a abrirse a pesar de sus continuos esfuerzos por despertar. Poco a poco, iba recobrando la conciencia. Después de varios minutos agitándose entre sueños, la realidad comenzaba a apremiarle en todo su cuerpo.
+Applejack protestó mientras sus párpados se resistían a abrirse, a pesar de sus continuos esfuerzos por despertar. Poco a poco, la conciencia volvía a ella, como una marea lenta que arrastraba los últimos vestigios de su sueño. Después de varios minutos agitándose entre las sombras del letargo, la realidad empezó a imponerse en todo su cuerpo.
 
-Un escozor intenso se extendía por su lomo y un sabor agrio impregnaba su boca. Sensaciones incómodas que, lejos de disiparse, se volvían más notorias a cada segundo.
+Un escozor intenso se extendía por su lomo, y un sabor agrio impregnaba su boca. Sensaciones incómodas que, lejos de disiparse, se volvían más notorias a cada segundo.
 
-Finalmente, abrió los ojos y, sin pensarlo, escupió a un lado sin prestar atención a la oscuridad que la envolvía.
+Finalmente, abrió los ojos y, sin pensarlo, escupió a un lado, sin preocuparse por la oscuridad que la envolvía.
 
-El escozor en su lomo persistía, pero tras revolverse en el frío suelo, haciendo un esfuerzo especial por presionar esa parte de su cuerpo contra la superficie, la molestia comenzó a amainar hasta desvanecerse.
+El escozor en su lomo persistía, pero, tras revolverse en el frío suelo y hacer un esfuerzo especial por presionar esa parte de su cuerpo contra la superficie, la molestia comenzó a amainar hasta desvanecerse.
 
-"Mucho mejor..." dijo Applejack, respirando profundamente y volviendo a cerrar los ojos. La oscuridad indefinida y el sueño aún latente en su mente la empujaban de nuevo al descanso.
+"Mucho mejor..." exclamó aliviada Applejack, respirando profundamente y volviendo a cerrar los ojos. La penumbra indefinida y el sueño aún latente en su mente la empujaban de nuevo al descanso.
 
-Pero antes de quedar completamente sumida en su letargo, algo llamó su atención.
+Pero, antes de quedar completamente sumida en su letargo, algo llamó su atención.
 
-Se sentía ligera... extrañamente fresca... como si estuviera desnuda, a instantes de meterse en su bañera para una ducha.
+Se sentía ligera... extrañamente fresca... como si estuviera desnuda, a punto de meterse en la bañera para una ducha.
 
-Inquieta, Applejack se incorporó y se quedó sentada, mirando fijamente al frente. Incapaz de ver con claridad, se restregó los ojos y volvió a observar su alrededor.
+Inquieta, Applejack se incorporó y quedó sentada en la negrura, mirando fijamente al frente. Incapaz de ver con claridad, se restregó los ojos y volvió a observar a su alrededor.
 
-Penumbras de formas familiares la rodeaban. Había muebles... mesas, sofás, pilas de libros y... ¿ponis?
+Sombras de formas familiares la rodeaban. Había muebles... mesas, sofás, pilas de libros y... ¿ponis?
 
-La difusa imagen de la habitación sumida en la oscuridad le provocó un breve mareo. Pero cuando la sensación pasó, su mente, más despejada, logró atar cabos.
+La difusa imagen de la habitación sumida en la oscuridad le provocó un breve mareo, pero, cuando la sensación pasó, su mente, más despejada, comenzó a atar cabos.
 
-"¿La casa de Twilight?" se preguntó entre bostezos. Su pesado despertar la había llevado a creer que se encontraba en la vieja casa árbol de su amiga Twilight Sparkle. Aunque aún no tenía claro por qué estaba allí ni por qué había ponis durmiendo a su alrededor...
+"¿Esto es... una sala?", se preguntó entre bostezos. Su pesado despertar la había llevado a pensar que estaba en la sala de algún hogar, aunque aún no tenía claro de cuál. Las paredes de madera apenas se distinguían por la tenue luz que se filtraba a través de las ventanas cerradas, proyectando sombras alargadas sobre el suelo desordenado.
 
-Intentando ponerse de pie a ciegas, Applejack tropezó con una botella. Con reflejos rápidos, la atrapó antes de que rodara demasiado y descubrió que se trataba de una botella de sidra vacía.
+Afuera, el susurro de la noche se colaba con suavidad, un murmullo lejano que apenas rompía el silencio del interior.
 
-"¿Sidra?" murmuró, notando el fresco aroma que emanaba del recipiente. Al escudriñar la habitación con más atención, distinguió más botellas dispersas por el suelo.
+¿Por qué estaba allí? ¿Por qué había tantos ponis durmiendo a su alrededor? ¿Por qué se sentía tan fresca?
 
-Entonces, tuvo una revelación, casi como si todas las piezas encajaran en su mente de golpe.
+Intentando ponerse de pie a ciegas en medio de sus cuestionamientos, Applejack tropezó con una botella. Con reflejos rápidos, la atrapó instintivamente antes de que rodara demasiado y descubrió que era una botella de sidra vacía.
 
-Era tan obvio... ¿Cómo podía haber sido tan tonta? La noche anterior, ella y las demás habían celebrado el ascenso del sol de verano en la casa de Twilight, quedándose a dormir allí después de la fiesta.
+"¿Sidra?" murmuró, notando el fresco aroma que emanaba del recipiente. Escudriñando la habitación con más atención, distinguió más botellas esparcidas por el suelo.
 
-"Ja, ja, ja... Creo que nos pasamos un poco con la sidra..." dijo Applejack con una sonrisa algo avergonzada, dejando la botella en el suelo. Un repentino hipo la sacudió, pero lo sofocó con una profunda respiración.
+Entonces, la revelación llegó como un relámpago. De golpe, todas las piezas encajaron en su mente.
+
+Era tan obvio... ¿Cómo podía haber sido tan tonta? Libros, paredes de madera, botellas de sidra... La imagen era clara, la noche anterior, ella y las demás habían celebrado el ascenso del sol de verano en la casa de Twilight, quedándose a dormir allí después de la fiesta.
+
+"Ja, ja, ja... Creo que nos pasamos un poco con la sidra..." rió Applejack con una sonrisa algo avergonzada, dejando la botella en el suelo. Un repentino hipo la sacudió, pero lo sofocó con una profunda respiración.
 
 Ahora todo tenía sentido. Las siluetas de los ponis a su alrededor encajaban perfectamente en el cuadro: eran sus amigas, aún dormidas tras la intensa celebración.
 
-"Supongo que aún es temprano... Uhhhhhh... Descansar un poco más no estaría mal..." murmuró Applejack entre más bostezos.
+"Supongo que aún es temprano... Uhhhhhh... Descansar un poco más no estaría mal..." murmuró entre bostezos.
 
 Volviendo a echarse en el suelo donde había estado, no tuvo problemas en acomodarse, a pesar de que solo contaba con una manta gruesa como colchón y una sábana ligera a un lado. Se acurrucó, más como un animal salvaje que como una poni refinada de ciudad.
 
-Sí, todo estaba en orden. No había nada de qué preocuparse... podia volver a dormir en paz.
-
+Sí, todo estaba en orden. No había nada de qué preocuparse... podía volver a dormir en paz.
 
 
 
