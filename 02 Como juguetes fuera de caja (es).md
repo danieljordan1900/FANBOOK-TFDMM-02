@@ -33,29 +33,72 @@ Sombras de formas familiares la rodeaban. Había muebles... mesas, sofás, pilas
 
 La difusa imagen de la habitación sumida en la oscuridad le provocó un breve mareo, pero, cuando la sensación pasó, su mente, más despejada, comenzó a atar cabos.
 
-"¿Esto es... una sala?", se preguntó entre bostezos. Su pesado despertar la había llevado a pensar que estaba en la sala de algún hogar, aunque aún no tenía claro de cuál. Las paredes de madera apenas se distinguían por la tenue luz que se filtraba a través de las ventanas cerradas, proyectando sombras alargadas sobre el suelo desordenado.
+"¿Esto es...?¿Donde estoy?", se preguntó entre bostezos. Su pesado despertar la había llevado a pensar que estaba en la sala de algún hogar, aunque aún no tenía claro de cuál. Las paredes de la habitacion (que por alguna razon le hacian pensar tambien que podria estar dentro de un arbol) apenas se distinguían por la tenue luz que se filtraba a través de las ventanas cerradas. Sombras alargadas se proyectaban sobre el suelo desordenado. Todo envuelto en una atmosfera sombria, inmovil y familiar.
 
-Afuera, el susurro de la noche se colaba con suavidad, un murmullo lejano que apenas rompía el silencio del interior.
+Afuera, el susurro de un mundo dominado por noche se colaba con suavidad, un murmullo lejano que apenas rompía la tranquilidad del interior.
 
 ¿Por qué estaba allí? ¿Por qué había tantos ponis durmiendo a su alrededor? ¿Por qué se sentía tan fresca?
 
-Intentando ponerse de pie a ciegas en medio de sus cuestionamientos, Applejack tropezó con una botella. Con reflejos rápidos, la atrapó instintivamente antes de que rodara demasiado y descubrió que era una botella de sidra vacía.
+Intentando ponerse de pie a ciegas en medio de sus cuestionamientos, Applejack tropezó con una botella. Con reflejos rápidos, la atrapó instintivamente antes de que rodara demasiado, tomandola con cuidado la examino de cerca.
 
 "¿Sidra?" murmuró, notando el fresco aroma que emanaba del recipiente. Escudriñando la habitación con más atención, distinguió más botellas esparcidas por el suelo.
 
-Entonces, la revelación llegó como un relámpago. De golpe, todas las piezas encajaron en su mente.
+Entonces, el recuerdo… más bien, la revelación llegó como un relámpago. De golpe, todas las piezas encajaron en su mente.
 
-Era tan obvio... ¿Cómo podía haber sido tan tonta? Libros, paredes de madera, botellas de sidra... La imagen era clara, la noche anterior, ella y las demás habían celebrado el ascenso del sol de verano en la casa de Twilight, quedándose a dormir allí después de la fiesta.
+Era tan obvio… ¿Cómo podía haber desconfiado tanto? Libros, paredes de madera, botellas de sidra… La imagen era clara. La noche anterior, ella y las demás habían celebrado el ascenso del sol de verano en la casa de Twilight, quedándose a dormir allí después de la fiesta.
 
 "Ja, ja, ja... Creo que nos pasamos un poco con la sidra..." rió Applejack con una sonrisa algo avergonzada, dejando la botella en el suelo. Un repentino hipo la sacudió, pero lo sofocó con una profunda respiración.
 
-Ahora todo tenía sentido. Las siluetas de los ponis a su alrededor encajaban perfectamente en el cuadro: eran sus amigas, aún dormidas tras la intensa celebración.
+Ahora todo tenía sentido. Las siluetas de los ponis a su alrededor encajaban perfectamente en el cuadro: eran sus amigas, aún dormidas tras la intensa fiesta de horas antes.
 
-"Supongo que aún es temprano... Uhhhhhh... Descansar un poco más no estaría mal..." murmuró entre bostezos.
+"Supongo que aún es temprano... Uhhhhhh... Descansar un poco más no estaría mal..." murmuró entre bostezos, contagiada por las respiraciones débiles de sus compañeras.
 
 Volviendo a echarse en el suelo donde había estado, no tuvo problemas en acomodarse, a pesar de que solo contaba con una manta gruesa como colchón y una sábana ligera a un lado. Se acurrucó, más como un animal salvaje que como una poni refinada de ciudad.
 
 Sí, todo estaba en orden. No había nada de qué preocuparse... podía volver a dormir en paz.
 
+Así pensaba Applejack mientras intentaba recuperar el sueño.
+
+Sin embargo, el sueño no acudía.
+
+Algo… no parecía estar bien.
+
+Fresco. Muy fresco. Ligero…
+
+En medio de sus pensamientos, casi por instinto, Applejack—todavía recostada y con los ojos cerrados—extendió sus cascos y buscó a tientas entre las sombras a sus lados.
+
+No encontró lo que buscaba.
+
+"Umphhhh..." La poni granjera se incorporó de inmediato y revisó la cabecera de su sencilla cama.
+
+Nada.
+
+"¿Qué demonios...?" murmuró, sintiéndose un poco molesta. Ya completamente despierta, miró hacia la oscuridad de la habitación, esperando hallar lo que buscaba.
+
+Las siluetas de cuatro ponis se distinguían con claridad en la negrura. Eran sus amigas, sin duda. Todas aún dormidas, acomodadas en el suelo o sobre los muebles, también abrigadas con mantas y sábanas. Aunque… se veían algo desordenadas. Tal vez por los movimientos que habían hecho al dormir…
+
+Applejack rio un poco al ver la extraña postura en la que yacía Rarity. La unicornio estaba acostada a unos pasos de ella, sobre el sofá, con las patas delanteras extendidas hacia arriba y la cola doblada hacia atrás. Su boca se abría y cerraba como la de un pez, soltando educados silbidos y groseros gorgoteos.
+
+No muy lejos, Pinkie Pie y Fluttershy dormían en el suelo, apenas reconocibles por la melena que asomaba de las abrigadas mantas que las envolvían.
+
+Y en medio de todas, en el centro de la habitación, sobre la mesa, se hallaba Rainbow Dash, desparramada. Su característica melena arcoíris y el resto de su cuerpo asomaban bajo un revoltijo de mantas, botellas y un… ¿sombrero?
+
+"Muy gracioso, Rainbow Dash..." murmuró Applejack con fastidio, tomando el sombrero con fuerza. Nada sorprendida de que fuera su traviesa amiga pegaso quien hubiera tomado su sombrero favorito.
+
+Sin más que decir, se dirigió de vuelta a su cama, sin prestar atención a las somnolientas protestas de la pegaso arcoíris. Se colocó su sombrero y entonces…
+
+"¡Umphh!"
+
+La sensación fue inmediata.
+
+Su melena, casi como una extensión de sí misma, le envió un mensaje inequívoco de rechazo hacia el accesorio que acababa de ponerse.
+
+Ese no era su sombrero.
+
+Un escalofrío recorrió su cuerpo.
+
+Applejack lentamente se dio la vuelta.
+
+¿Qué… era aquello que acababa de ver?
 
 
