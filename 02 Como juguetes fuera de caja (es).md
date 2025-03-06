@@ -71,7 +71,7 @@ No encontró lo que buscaba.
 
 "Umphhhh..." La poni granjera se incorporó de inmediato y revisó la cabecera de su sencilla cama.
 
-Nada.
+Nada. Su sombrero no estaba.
 
 "¿Qué demonios...?" murmuró, sintiéndose algo molesta. Ya completamente despierta, miró hacia la oscuridad de la habitación, esperando hallar lo que buscaba.
 
@@ -125,4 +125,4 @@ Sin darse cuenta, siguió retrocediendo... hasta chocar contra la pared.
 
 Con el interruptor de la luz presionado involuntariamente tras ella, Applejack se quedó inmóvil, paralizada ante la escena ahora completamente iluminada.
 
-Fue la primera de las amigas de Twilight en despertar en aquella tierra de sensibilidad.
+De este modo, Applejack fue la primera de las amigas de Twilight en despertar en aquella tierra de sensibilidad.
