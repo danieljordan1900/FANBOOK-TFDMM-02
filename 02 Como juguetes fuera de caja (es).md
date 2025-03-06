@@ -125,4 +125,6 @@ Sin darse cuenta, siguió retrocediendo... hasta chocar contra la pared.
 
 Con el interruptor de la luz presionado involuntariamente tras ella, Applejack se quedó inmóvil, paralizada ante la escena ahora completamente iluminada.
 
-De este modo, Applejack fue la primera de las amigas de Twilight en despertar en aquella tierra de sensibilidad.
+Lejos de la medianoche, fuera del mundo que conocían, pero aún unidas por la amistad...
+
+De aquel extraordinario grupo de ponis, Applejack fue la primera de las amigas de Twilight en despertar en aquella tierra de sensibilidad.
