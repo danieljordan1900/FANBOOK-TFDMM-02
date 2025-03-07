@@ -1,13 +1,14 @@
 "Era tibio... era suave... era familiar..."
 
-Poco a poco, el sensible mundo a su alrededor va manifestándose dentro de ella.
+Poco a poco, el mundo sensible a su alrededor comenzó a manifestarse dentro de ella.
 
-Se siente luminosa, se siente transparente, se siente irrisoria.
+Se sentía luminosa, se sentía transparente, se sentía irrisoria.
 
-Tan despreocupada como cualquiera que descansara en una hamaca tendida en medio de un prado dorado de madura cebada,
-acariciada por un gentil viento, bajo un cielo azul...
+Tan despreocupada como si descansara en una hamaca, bajo un cielo azul y un viento suave.
 
-Nada tiene importancia, nada sucede y, luego, de pronto... todo importa y ocurre.
+En medio de un prado dorado de madura cebada...
+
+Nada tenía importancia, nada sucedía y, luego, de pronto... todo importaba y ocurría.
 
 [---]
 
@@ -41,7 +42,7 @@ Afuera, el susurro de un mundo dominado por la noche se colaba con suavidad, un 
 
 Intentando ponerse de pie a ciegas en medio de sus cuestionamientos, Applejack tropezó con una botella. Con reflejos rápidos, la atrapó instintivamente antes de que rodara demasiado. La tomó con cuidado y la examinó de cerca.
 
-"¿Sidra?" murmuró, notando el fresco aroma que emanaba del recipiente. Al escudriñar la habitación con mayor atención, distinguió más botellas esparcidas por el suelo.
+"¿Sidra?" murmuró, notando el intenso aroma que emanaba del recipiente. Al escudriñar la habitación con mayor atención, distinguió más botellas esparcidas por el suelo.
 
 Entonces, el recuerdo… o más bien, la revelación, llegó como un relámpago. De golpe, todas las piezas encajaron en su mente.
 
@@ -63,7 +64,7 @@ Sin embargo, éste no acudía.
 
 Algo… no parecía estar bien.
 
-Fresco. Muy fresco. Ligero…
+Fresca. Muy fresca. Ligera… como si algo le faltara sobre la cabeza.
 
 En medio de sus pensamientos, casi por instinto, Applejack —aún recostada y con los ojos cerrados— extendió sus cascos y buscó a tientas entre las sombras a su alrededor.
 
@@ -79,51 +80,61 @@ Las siluetas de cuatro ponis se distinguían, fantasmales, en la negrura. Eran s
 
 Applejack rio levemente al observar la extraña postura en la que yacía Rarity. La unicornio estaba acostada a unos pasos de ella, sobre el sofá, con las patas delanteras extendidas hacia arriba y la cola doblada hacia atrás. Su boca se abría y cerraba como la de un pez, soltando educados silbidos y groseros gorgoteos.
 
-No muy lejos, Pinkie Pie y Fluttershy dormían en el suelo, apenas reconocibles por la melena que asomaba de las abrigadas mantas que las envolvían.
+No muy lejos, Pinkie Pie y Fluttershy dormían en el suelo, apenas reconocibles por la melena que asomaba de las abrigadas mantas que las envolvían. También por sus curiosas respiraciones. En particular, por la suave risa entrecortada que ocasionalmente soltaba Pinkie Pie.
 
-Y en medio de todas, en el centro de la habitación, sobre la mesa, se hallaba Rainbow Dash, desparramada. Su característica melena arcoíris y el resto de su cuerpo asomaban bajo un revoltijo de mantas, botellas y un… ¿sombrero?
+Y en medio de todo esto, en el centro de la habitación, sobre la mesa, se hallaba Rainbow Dash, desparramada. Su característica melena arcoíris y el resto de su cuerpo asomaban bajo un revoltijo de mantas, botellas y un… ¿sombrero?
 
-"Muy gracioso, Rainbow Dash..." murmuró Applejack con fastidio, tomando el sombrero con fuerza. No le sorprendió en absoluto que fuera su traviesa amiga pegaso quien hubiera tomado su sombrero favorito.
+"Muy gracioso, Rainbow Dash..." murmuró Applejack con fastidio, tomando el sombrero con fuerza. No le sorprendió en absoluto que fuera su traviesa amiga pegaso quien lo hubiera tomado.
 
-Sin más que decir, se dirigió de vuelta a su cama, ignorando las somnolientas protestas de la pegaso arcoíris. Se colocó su sombrero y entonces...
+Sin más que decir, se dirigió de vuelta a su cama, ignorando las somnolientas protestas de la pegaso arcoíris. Se colocó el sombrero y entonces...
 
 "¡Umphh!"
 
-La sensación fue inmediata. Su melena, casi como una extensión de sí misma, le envió un mensaje inequívoco de rechazo hacia el accesorio que acababa de ponerse.
+El rechazo fue inmediato. Su melena, casi como una extensión de sí misma, le envió una señal inequívoca: algo estaba mal.
 
 Ese no era su sombrero.
 
-Un escalofrío recorrió su cuerpo. Applejack lentamente se giró hacia la oscuridad de la habitación.
+Un escalofrío recorrió su cuerpo. Un ligero olor cáustico le llenó la nariz, haciéndola fruncir el ceño. Lentamente, Applejack giró la cabeza hacia la oscuridad de la habitación.
 
-¿Qué... era aquello que acababa de ver?
+Y entonces lo vio.
 
-Sobre la mesa central, donde se encontraba Rainbow Dash, la cabeza de la pegaso asomaba de entre las sábanas, murmurando entre sueños. Sin el sombrero que Applejack le había quitado, su melena arcoíris se distinguía bajo la tenue luz, pero también…
+Sobre la mesa central, donde yacía Rainbow Dash, la cabeza de la pegaso asomaba de entre las sábanas, murmurando entre sueños. Sin el sombrero que Applejack le había quitado, su melena arcoíris se distinguía bajo la tenue luz, pero también…
 
-Applejack sintió cómo su respiración se aceleraba. Tardó en reconocerlo.
+Applejack sintió su respiración acelerarse. Tardó en reconocerlo.
 
 Vendas.
 
 Muchas vendas blancas y delgadas cubrían el rostro de Rainbow Dash, dejando al descubierto solo la mitad de su cara. Applejack tragó saliva con fuerza.
 
-Las vendas, semejantes a gruesos hilos de una araña pomposa, se extendían más allá del cuerpo de la pegaso, arrastrándose sobre la mesa, el suelo y los muebles. Había restos de vendas cortadas, desgarradas y sucias esparcidas por toda la habitación.
+Pero no era solo eso. Las vendas, semejantes a gruesos hilos de una araña pomposa, se extendían más allá del cuerpo de la pegaso, arrastrándose sobre la mesa, el suelo y los muebles. Algunas estaban cortadas, desgarradas, sucias... esparcidas por toda la habitación.
 
-Applejack comenzó a retroceder, con la mirada errática, dándose cuenta poco a poco de la verdadera escena que la rodeaba.
+Applejack comenzó a retroceder, su mirada errática saltando de un punto a otro. Solo entonces notó lo que realmente la rodeaba.
 
-No solo había vendas. El suelo estaba salpicado de manchas oscuras; goteos de un líquido viscoso y negro se extendían en todas direcciones.
+No solo eran vendas.
 
-Su respiración se volvió errática y su corazón latía con furia. La oscuridad parecía espesarse, volviéndose más profunda...
+El suelo estaba salpicado de manchas oscuras; goteos de un líquido viscoso y negro que se extendían en todas direcciones.
 
-"¡Au!" Un dolor agudo le atravesó la cabeza, como un aguijonazo que perforaba lo más hondo de su mente.
+Su respiración se volvió errática. Su corazón golpeaba con furia contra su pecho. La oscuridad parecía espesarse, volviéndose más densa... más viva.
 
-Recuerdos. Fragmentos difusos de un tren, un enemigo, una batalla; un sueño violento, o tal vez... una pesadilla.
+"¡Au!"
+
+Un dolor agudo le atravesó la cabeza, como un aguijonazo perforando lo más profundo de su mente.
+
+Recuerdos.
+
+Fragmentos difusos de un tren. Un enemigo. Una batalla. Un sueño violento… ¿o tal vez una pesadilla?
 
 La conmoción la golpeó de lleno. El dolor nubló sus sentidos. Applejack cerró los ojos con fuerza, intentando bloquear las imágenes que se agolpaban en su mente.
 
-Sin darse cuenta, siguió retrocediendo... hasta chocar contra la pared.
+Sin darse cuenta, siguió retrocediendo… hasta chocar contra la pared.
 
-"CLICKK" El sonido seco la sobresaltó. De improviso, una luz blanca inundó la habitación, disipando las sombras. Todo se volvió claro en un instante.
+"CLICKK."
 
-Con el interruptor de la luz presionado involuntariamente tras ella, Applejack se quedó inmóvil, paralizada ante la escena ahora completamente iluminada.
+El sonido seco la sobresaltó.
+
+De improviso, una luz blanca inundó la habitación, disipando las sombras. Todo se volvió claro en un instante.
+
+Con el interruptor presionado involuntariamente tras ella, Applejack se quedó inmóvil, paralizada ante la escena ahora completamente iluminada.
 
 Lejos de la medianoche, fuera del mundo que conocían, pero aún unidas por la amistad...
 
