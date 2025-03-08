@@ -28,7 +28,7 @@ Pero, antes de quedar completamente sumida en su pesadez, una nueva sensación l
 
 Ligereza. Frescura. Se esparcían por su pelaje, en particular sobre su cabeza y en sus orejas desnudas.
 
-Inquieta, Applejack se incorporó y quedó sentada, mirando fijamente hacia en la negrura mientras se recuperaba. Permaneció así por un momento, hasta que, incapaz de ver con claridad, se restregó los ojos y volvió a observar a su alrededor.
+Inquieta, Applejack se incorporó y quedó sentada, mirando fijamente hacia la negrura mientras se recuperaba. Permaneció así por un momento, hasta que, incapaz de ver con claridad, se restregó los ojos y volvió a observar a su alrededor.
 
 Sombras de formas familiares la rodeaban: mesas, sofás, pilas de libros y… ¿ponis?
 
@@ -66,7 +66,7 @@ Sin embargo, este no acudía.
 
 Algo… nuevamente frustraba su descanso.
 
-Ligereza. Frescura. Las sensaciones incómodas de antes volvían a hacerse presentes. No obstante, esta vez su mente captó con claridad la causa.
+Ligereza. Frescura. Las mismas sensaciones incómodas de antes volvían a manifestarse. No obstante, esta vez su mente captó con claridad la causa.
 
 Algo le faltaba sobre la cabeza.
 
@@ -100,7 +100,7 @@ Ese no era su sombrero.
 
 Un escalofrío recorrió su cuerpo. Un ligero olor cáustico le llenó la nariz, haciéndola fruncir el ceño. Lentamente, Applejack giró la cabeza hacia la oscuridad de la habitación.
 
-Y entonces lo noto.
+Y entonces lo notó.
 
 Sobre la mesa central, donde yacía Rainbow Dash, la cabeza de la pegaso asomaba de entre las sábanas, murmurando entre sueños. Sin el sombrero que Applejack le había quitado, su melena arcoíris se distinguía bajo la tenue luz, pero también…
 
@@ -110,7 +110,7 @@ Vendas.
 
 Muchas vendas blancas y delgadas cubrían el rostro de Rainbow Dash, dejando al descubierto solo la mitad de su cara. Applejack tragó saliva con fuerza.
 
-¿Cuándo había sido que su amiga se había lastimado tanto? Pensó en medio de su temor.
+¿Cuándo se había lastimado tanto su amiga?", pensó en medio de su temor. 
 
 Pero no solo se trataba de eso.
 
