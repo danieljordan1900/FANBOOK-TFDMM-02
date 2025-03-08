@@ -16,31 +16,33 @@ Nada tenía importancia, nada sucedía y, luego, de pronto... todo importaba y o
 
 Applejack protestó mientras sus párpados se resistían a abrirse, a pesar de sus continuos esfuerzos por despertar. Poco a poco, la conciencia volvía a ella, como una marea lenta que arrastraba los últimos vestigios de su sueño. Tras varios minutos de agitación en las sombras del letargo, la realidad empezó a imponerse en todo su cuerpo.
 
-Un escozor intenso se extendía por su lomo, y un sabor agrio impregnaba su boca; sensaciones incómodas que, lejos de disiparse, se volvían más notorias a cada segundo.
+Un escozor intenso se extendía por su lomo y un sabor agrio impregnaba su boca; sensaciones incómodas que, lejos de disiparse, se volvían más notorias a cada segundo.
 
 Finalmente, abrió los ojos y, sin pensarlo, escupió a un lado, sin preocuparse por la oscuridad que la envolvía.
 
-El escozor persistía, pero, tras revolverse en el frío suelo y esforzarse por presionar esa parte de su cuerpo contra la superficie, la molestia comenzó a amainar hasta desvanecerse.
+El escozor persistía, pero, tras revolverse en el frío suelo y presionar la zona adolorida contra la superficie, la molestia comenzó a amainar hasta desvanecerse.
 
-"Mucho mejor..." exclamó aliviada Applejack, respirando profundamente antes de volver a cerrar los ojos. La penumbra indefinida y el sueño latente la empujaban de nuevo al descanso.
+"Mucho mejor..." murmuró aliviada Applejack, recostada, respirando con calma antes de volver a cerrar los ojos. La penumbra indefinida y el sueño latente la empujaban nuevamente al descanso.
 
-Pero, antes de quedar completamente sumida en su pesadez, algo llamó su atención.
+Pero, antes de quedar completamente sumida en su pesadez, una nueva sensación llamó su atención.
 
-Se sentía ligera… extrañamente fresca… como si estuviera desnuda, a punto de meterse en la bañera para una ducha.
+Ligereza. Frescura. Se esparcían por su pelaje, en particular sobre su cabeza y en sus orejas desnudas.
 
-Inquieta, Applejack se incorporó y quedó sentada en la negrura, mirando fijamente al frente. Incapaz de ver con claridad, se restregó los ojos y volvió a observar a su alrededor.
+Inquieta, Applejack se incorporó y quedó sentada, mirando fijamente hacia en la negrura mientras se recuperaba. Permaneció así por un momento, hasta que, incapaz de ver con claridad, se restregó los ojos y volvió a observar a su alrededor.
 
-Sombras de formas familiares la rodeaban: muebles, mesas, sofás, pilas de libros y… ¿ponis?
+Sombras de formas familiares la rodeaban: mesas, sofás, pilas de libros y… ¿ponis?
 
-El sonido de muchas respiraciones a su alrededor se mezclaba con la atmósfera sombría de la habitación. La imagen, apenas perceptible en la oscuridad, le provocó un breve mareo; pero, al disiparse esa sensación, su mente se despejó y comenzó a atar cabos.
+El sonido de múltiples respiraciones se mezclaba con la atmósfera sombría de la habitación. La imagen, apenas perceptible en la oscuridad, le provocó un breve mareo; pero, al disiparse esa sensación, su mente, ahora más despejada, comenzó a atar cabos.
 
-"¿Esto es...? ¿Dónde estoy?" se preguntó entre bostezos. Su pesado despertar la había llevado a pensar que se encontraba en la sala de algún hogar, aunque aún no tenía claro cuál. Las paredes de la habitación —que, por alguna razón, le hacían imaginar que podría estar dentro de un árbol— apenas se distinguían gracias a la tenue luz que se filtraba por las ventanas cerradas. Sombras alargadas se proyectaban sobre un suelo desordenado, todo inmerso en una atmósfera sombría, inmóvil y familiar.
+La incongruencia entre sus recuerdos y el presente quedó en evidencia con la confusión que la invadió de inmediato.
 
-Afuera, el susurro de un mundo dominado por la noche se colaba con suavidad, un murmullo lejano que apenas perturbaba la tranquilidad del interior.
+"¿Esto es...? ¿Dónde estoy?" se preguntó entre bostezos. Se hallaba en la sala de una casa que, debido a la falta de luz y su propia pesadez, no lograba reconocer. Las paredes de la habitación —que, por alguna razón, le hacían imaginar que podría estar dentro de un árbol— apenas se distinguían bajo la tenue luminosidad que se filtraba por las ventanas cerradas. Sombras alargadas se proyectaban sobre un suelo desordenado, todo inmerso en una atmósfera sombría, inmóvil y extrañamente familiar.
 
-¿Por qué estaba allí? ¿Por qué había tantos ponis durmiendo a su alrededor? ¿Por qué se sentía tan fresca?
+Afuera, el susurro de un mundo dominado por la noche era absoluto, un murmullo lejano que apenas perturbaba la tranquilidad del interior.
 
-Intentando ponerse de pie a ciegas en medio de sus cuestionamientos, Applejack tropezó con una botella. Con reflejos rápidos, la atrapó instintivamente antes de que rodara demasiado. La tomó con cuidado y la examinó de cerca.
+¿Por qué estaba allí? ¿Por qué había tantos ponis durmiendo a su alrededor? ¿Por qué se sentía tan ligera?
+
+Intentando ponerse de pie a ciegas en medio de sus cuestionamientos, Applejack tropezó con una botella. Con reflejos rápidos, la atrapó instintivamente antes de que rodara demasiado. La sostuvo con cuidado y la examinó de cerca.
 
 "¿Sidra?" murmuró, notando el intenso aroma que emanaba del recipiente. Al escudriñar la habitación con mayor atención, distinguió más botellas esparcidas por el suelo.
 
