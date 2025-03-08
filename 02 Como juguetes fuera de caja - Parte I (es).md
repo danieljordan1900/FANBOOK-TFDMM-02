@@ -56,19 +56,21 @@ Ahora todo tenía sentido. Las siluetas de los ponis a su alrededor encajaban pe
 
 "Supongo que aún es temprano... Uhhhhhh... Descansar un poco más no estaría mal..." murmuró entre bostezos, contagiada por las débiles respiraciones de sus compañeras.
 
-Volviendo a echarse en el suelo donde había estado, no tuvo problemas en acomodarse, pese a contar únicamente con una manta gruesa como colchón y una sábana ligera a un lado. Se acurrucó, más como un animal salvaje que como una poni refinada de ciudad.
+Volviendo a echarse en el suelo donde había estado, no tuvo problemas para acomodarse, pese a contar únicamente con una manta gruesa como colchón y una sábana ligera a un lado. Se acurrucó con expresión tranquila y cerró los ojos.
 
 Sí, todo parecía estar en orden. No había nada de qué preocuparse... podía volver a dormir en paz.
 
 Así pensaba Applejack mientras intentaba recuperar el sueño.
 
-Sin embargo, éste no acudía.
+Sin embargo, este no acudía.
 
-Algo… no parecía estar bien.
+Algo… nuevamente frustraba su descanso.
 
-Fresca. Muy fresca. Ligera… como si algo le faltara sobre la cabeza.
+Ligereza. Frescura. Las sensaciones incómodas de antes volvían a hacerse presentes. No obstante, esta vez su mente captó con claridad la causa.
 
-En medio de sus pensamientos, casi por instinto, Applejack —aún recostada y con los ojos cerrados— extendió sus cascos y buscó a tientas entre las sombras a su alrededor.
+Algo le faltaba sobre la cabeza.
+
+En medio de sus pensamientos, Applejack —aún recostada y con los ojos cerrados— extendió sus cascos y buscó a tientas entre las sombras a su alrededor.
 
 No encontró lo que buscaba.
 
@@ -76,7 +78,7 @@ No encontró lo que buscaba.
 
 Nada. Su sombrero no estaba.
 
-"¿Qué demonios...?" murmuró, sintiéndose algo molesta. Ya completamente despierta, miró hacia la oscuridad de la habitación, esperando hallar lo que buscaba.
+"¿Qué demonios...?" murmuró, sintiéndose algo molesta. Ya completamente despierta, Applejack miró hacia la oscuridad de la habitación, esperando hallar el sombrero que tanto la caracterizaba.
 
 Las siluetas de cuatro ponis se distinguían, fantasmales, en la negrura. Eran sus amigas, sin duda. Todas aún dormidas, acomodadas en el suelo o sobre los muebles, abrigadas con mantas y sábanas. Aunque… se veían algo desordenadas, tal vez por los movimientos realizados al dormir.
 
@@ -88,7 +90,7 @@ Y en medio de todo esto, en el centro de la habitación, sobre la mesa, se halla
 
 "Muy gracioso, Rainbow Dash..." murmuró Applejack con fastidio, tomando el sombrero con fuerza. No le sorprendió en absoluto que fuera su traviesa amiga pegaso quien lo hubiera tomado.
 
-Sin más que decir, se dirigió de vuelta a su cama, ignorando las somnolientas protestas de la pegaso arcoíris. Se colocó el sombrero y entonces...
+Decidida esta vez a conciliar el sueño, se dirigió de vuelta a su cama, ignorando las somnolientas protestas de la pegaso arcoíris. Se colocó el sombrero y entonces...
 
 "¡Umphh!"
 
@@ -98,7 +100,7 @@ Ese no era su sombrero.
 
 Un escalofrío recorrió su cuerpo. Un ligero olor cáustico le llenó la nariz, haciéndola fruncir el ceño. Lentamente, Applejack giró la cabeza hacia la oscuridad de la habitación.
 
-Y entonces lo vio.
+Y entonces lo noto.
 
 Sobre la mesa central, donde yacía Rainbow Dash, la cabeza de la pegaso asomaba de entre las sábanas, murmurando entre sueños. Sin el sombrero que Applejack le había quitado, su melena arcoíris se distinguía bajo la tenue luz, pero también…
 
@@ -108,9 +110,11 @@ Vendas.
 
 Muchas vendas blancas y delgadas cubrían el rostro de Rainbow Dash, dejando al descubierto solo la mitad de su cara. Applejack tragó saliva con fuerza.
 
-Pero no era solo eso. Las vendas, semejantes a gruesos hilos de una araña pomposa, se extendían más allá del cuerpo de la pegaso, arrastrándose sobre la mesa, el suelo y los muebles. Algunas estaban cortadas, desgarradas, sucias... esparcidas por toda la habitación.
+¿Cuándo había sido que su amiga se había lastimado tanto? Pensó en medio de su temor.
 
-Applejack comenzó a retroceder, su mirada errática saltando de un punto a otro. Solo entonces notó lo que realmente la rodeaba.
+Pero no solo se trataba de eso.
+
+Las vendas, semejantes a gruesos hilos de una araña pomposa, se extendían más allá del cuerpo de la pegaso, arrastrándose sobre la mesa, el suelo y los muebles. Algunas estaban cortadas, desgarradas, sucias... esparcidas por toda la habitación.
 
 No solo eran vendas.
 
