@@ -122,9 +122,9 @@ El suelo estaba salpicado de manchas oscuras; goteos de un líquido viscoso y ne
 
 Su respiración se volvió errática. Su corazón golpeaba con furia contra su pecho. La oscuridad parecía espesarse, volviéndose más densa... más viva.
 
-"¡Au!"
+"¡Au!" exclamó, llevándose los cascos a la cabeza.
 
-Un dolor agudo le atravesó la cabeza, como un aguijonazo perforando lo más profundo de su mente.
+Un dolor agudo le atravesó, como un aguijonazo perforando lo más profundo de su mente.
 
 Recuerdos.
 
@@ -132,7 +132,7 @@ Fragmentos difusos de un tren. Un enemigo. Una batalla. Un sueño violento… ¿
 
 La conmoción la golpeó de lleno. El dolor nubló sus sentidos. Applejack cerró los ojos con fuerza, intentando bloquear las imágenes que se agolpaban en su mente.
 
-Sin darse cuenta, siguió retrocediendo… hasta chocar contra la pared.
+Sin darse cuenta, con pasos tambaleantes, siguió retrocediendo… hasta chocar contra la pared.
 
 "CLICKK."
 
