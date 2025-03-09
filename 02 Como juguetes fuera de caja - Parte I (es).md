@@ -36,7 +36,7 @@ El sonido de múltiples respiraciones se mezclaba con la atmósfera sombría de 
 
 La incongruencia entre sus recuerdos y el presente quedó en evidencia con la confusión que la invadió de inmediato.
 
-"¿Esto es...? ¿Dónde estoy?" se preguntó entre bostezos. Se hallaba en la sala de una casa que, debido a la falta de luz y su propia pesadez, no lograba reconocer. Las paredes de la habitación —que, por alguna razón, le hacían imaginar que podría estar dentro de un árbol— apenas se distinguían bajo la tenue luminosidad que se filtraba por las ventanas cerradas. Sombras alargadas se proyectaban sobre un suelo desordenado, todo inmerso en una atmósfera sombría, inmóvil y extrañamente familiar.
+"¿Esto es...? ¿Dónde estoy?" se preguntó entre bostezos. Se hallaba en la sala de una casa que, debido a la falta de luz y su propia pesadez, no lograba reconocer. Las paredes de la habitación —cuyos reflejos, por alguna razón, le hacían imaginar que podría estar dentro de un árbol— apenas se distinguían bajo la tenue luminosidad que se filtraba por las ventanas cerradas. Sombras alargadas se proyectaban sobre un suelo desordenado, todo inmerso en una atmósfera sombría, inmóvil y extrañamente familiar.
 
 Afuera, el susurro de un mundo dominado por la noche era absoluto, un murmullo lejano que apenas perturbaba la tranquilidad del interior.
 
@@ -48,9 +48,9 @@ Intentando ponerse de pie a ciegas en medio de sus cuestionamientos, Applejack t
 
 Entonces, el recuerdo… o más bien, la revelación, llegó como un relámpago. De golpe, todas las piezas encajaron en su mente.
 
-Era tan obvio… ¿Cómo podía haber desconfiado tanto? Libros, paredes de madera, botellas de sidra… La imagen era clara: la noche anterior, ella y las demás habían celebrado el ascenso del sol de verano en la casa de Twilight, quedándose a dormir allí tras la fiesta.
+"Ja, ja, ja..." comenzo a reir con cuidado la poni. Era tan obvio… ¿Cómo podía haber desconfiado tanto? Libros, paredes de madera, botellas de sidra… La imagen era clara: la noche anterior, ella y las demás habían celebrado el ascenso del sol de verano en la casa de Twilight, quedándose a dormir allí tras la fiesta.
 
-"Ja, ja, ja... Creo que nos pasamos un poco con la sidra..." rió Applejack con una sonrisa algo avergonzada, dejando la botella en el suelo. Un repentino hipo la sacudió, pero lo sofocó con una profunda respiración.
+"Creo que nos pasamos un poco con la sidra..." murmuro Applejack con una sonrisa algo avergonzada, dejando la botella en el suelo. Un repentino hipo la sacudió, pero lo sofocó con una profunda respiración.
 
 Ahora todo tenía sentido. Las siluetas de los ponis a su alrededor encajaban perfectamente en el cuadro: eran sus amigas, aún dormidas tras la intensa fiesta de horas antes.
 
