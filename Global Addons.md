@@ -64,6 +64,8 @@ Bajo una tierra de sensibilidad.
 
 -> el mundo uno tendra como jugadores a: las manex six, quienes se encontraran inesperadamente con Badwhiz, luego enfrentaran a un mounstruo rojo y blanco que terminara siendo Magi. Una vez descrubriendo esto, escaparan con la ayuda de Magi de aquel lugar. En un globo llegaran al mundo dos, donde se encontraran con Discord quien terminara atrapandolas a todas.
 
+puertas infinitas, cada una tiene una forma especial de abrirse, o cerrarse.
+
 Mundo 2:
 
 ** - "The world without pink ..."
