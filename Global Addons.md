@@ -66,6 +66,11 @@ Bajo una tierra de sensibilidad.
 
 puertas infinitas, cada una tiene una forma especial de abrirse, o cerrarse.
 
+los tres cristales de la unidad
+Discord del futuro los utiliza para sacar a Twilight y sus amigos de ese mundo
+Estaba aburrido y sintio pena al ver las situacion tan dificil que pasaban las manesix
+Este Discord del futuro los entrega a sus otras versiones a modo de pago para permanecer en ese mundo.
+
 Mundo 2:
 
 ** - "The world without pink ..."
