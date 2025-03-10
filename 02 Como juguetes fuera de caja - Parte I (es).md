@@ -14,15 +14,15 @@ Nada tenía importancia, nada sucedía y, luego, de pronto... todo importaba y o
 
 "Ughhh..." Un quejido se escuchó en la penumbra.
 
-Applejack protestó mientras sus párpados se resistían a abrirse, a pesar de sus continuos esfuerzos por despertar. Poco a poco, la conciencia volvía a ella, como una marea lenta que arrastraba los últimos vestigios de su sueño. Tras varios minutos de agitación en las sombras del letargo, la realidad empezó a imponerse en todo su cuerpo.
+Applejack protestó mientras sus párpados se resistían a abrirse. Poco a poco, la conciencia volvía a ella, como una marea lenta que arrastraba los últimos vestigios de su sueño. Tras varios minutos de agitación luchando por despertar, la realidad empezó a imponerse en todo su cuerpo.
 
 Un escozor intenso se extendía por su lomo y un sabor agrio impregnaba su boca; sensaciones incómodas que, lejos de disiparse, se volvían más notorias a cada segundo.
 
-Finalmente, abrió los ojos y, sin pensarlo, escupió a un lado, sin preocuparse por la oscuridad que la envolvía.
+Finalmente, abrió los ojos y escupió a un lado, sin preocuparse por la oscuridad que la envolvía.
 
 El escozor persistía, pero, tras revolverse en el frío suelo y presionar la zona adolorida contra la superficie, la molestia comenzó a amainar hasta desvanecerse.
 
-"Mucho mejor..." murmuró aliviada Applejack, recostada, respirando con calma antes de volver a cerrar los ojos. La penumbra indefinida y el sueño latente la empujaban nuevamente al descanso.
+"Mucho mejor..." murmuró aliviada Applejack, recostada, respirando con calma antes de volver a cerrar los ojos. La penumbra indefinida y el sueño latente la arrastraban nuevamente al descanso.
 
 Pero, antes de quedar completamente sumida en su pesadez, una nueva sensación llamó su atención.
 
