@@ -14,7 +14,7 @@ Badwhiz siguió lanzando más truenos, explosiones azotaron el lugar.
 
 La batalla se había convertido en un duelo de resistencia.
 
-Rainbow Dash sentía su cuerpo desfallecer. Cada fibra de sus músculos le gritaba que se detuviera, pero ella se negó a hacerlo. Podía escuchar sus huesos crujir y ver sus alas torcerse en el aire, obligándola a desviarse de su trayectoria.
+Rainbow Dash sentía su cuerpo desfallecer. Cada fibra de sus músculos le gritaba que se detuviera, pero ella se negó a hacerlo. Podía escuchar sus huesos chocar y ver sus alas torcerse en el aire, obligándola a desviarse de su trayectoria.
 
 Pero no se detuvo. No podía hacerlo.
 
@@ -132,21 +132,23 @@ Y así, desapareció de aquel mundo...
 
 [---]
 
-"¡Rainbow Dash! ¡Rainbow Dash!"Applejack sostenía con fuerza a su amiga, agitándola, intentando hacerla despertar.
+"¡Rainbow Dash! ¡Rainbow Dash!"
 
-La pegaso, que hasta entonces había mostrado pocas señales de vida, abrió su único ojo visible por instantes, para luego volverlo a cerrar.
+En medio de la habitación desordenada, Applejack sostenía con fuerza a su amiga, agitándola en un intento desesperado por hacerla despertar.
 
-Entonces, en medio de los forcejeos, el ojo de Rainbow Dash se abrió de par en par.
+La pegaso, cuyo rostro vendado apenas mostraba signos de vida, entreabría su único ojo visible por instantes, solo para cerrarlo de nuevo casi de inmediato.
 
-"¡Rainbow Dash, por fin despertaste, gracias a... Ughhh!" Apenas pudo decir Applejack, aliviada de tener a su amiga de vuelta, cuando una potente patada la golpeó en el estómago, haciéndola caer de espaldas.
+Entonces, en medio del forcejeo, su ojo se abrió de golpe.
 
-Rainbow Dash, en un estado de euforia palpable, miraba en todas direcciones como un animal acorralado. Sin decir palabra, comenzó a morder las vendas de su cuerpo y a agitar sus alas como un colibrí atrapado en una telaraña asfixiante.
+"¡Rainbow Dash, por fin despertaste, gracias a... Ughhh!" Apenas pudo exclamar Applejack, sintiendo el alivio de recuperar a su amiga, cuando una potente patada la golpeó en el estómago, enviándola de espaldas al suelo.
+
+Rainbow Dash, de pie, en un estado de euforia palpable, miraba en todas direcciones como un animal acorralado. Sin decir palabra, comenzó a morder las vendas de su cuerpo y a agitar sus alas como un colibrí atrapado en una telaraña asfixiante.
 
 Applejack, poniéndose de pie con dificultad, observó consternada cómo su amiga salía disparada en todas direcciones, golpeando muebles y paredes, lastimándose en el proceso y chocando contra sus otras amigas, que también estaban despertando.
 
 "¡Rainbow Dash, no! ¡Espera! ¡Detente, Rainbow!" gritó, sin ser escuchada.
 
-Rainbow Dash estaba fuera de control. Y Applejack era la única que podía detenerla. Debía hacerlo pronto.
+Rainbow Dash estaba completamente fuera de control, y Applejack era la única que podía hacer algo al respecto. No podía perder tiempo.
 
 Con esa apremiante misión en mente, la poni granjera escaneó su alrededor en busca de algo que pudiera ayudarla. De inmediato, fijó la mirada en la larga venda que aún colgaba del cuello de Rainbow Dash.
 
@@ -172,7 +174,7 @@ Los ojos de Rainbow Dash, ahora visibles tras perder la cubierta de vendas, esta
 
 ¿No conocía a alguien en Ponyville con una mirada semejante?
 
-De pronto, un viejo recuerdo vino a su mente. Y con él, una idea iluminó su rostro.
+De pronto, un viejo recuerdo vino a su mente. Y con él, una idea que iluminó su rostro.
 
 Ahora sabía qué hacer.
 
@@ -182,39 +184,47 @@ La pegaso arcoíris recibió de lleno el cocacho, pero no cayó al suelo. Perman
 
 Applejack la observó con ansiedad.
 
-Entonces, Rainbow Dash comenzó a moverse de nuevo, pero esta vez con mayor control. Su expresión cambió. Sus ojos, que hasta entonces habían girado sin rumbo fijo, poco a poco volvieron a enfocarse.
+Entonces, Rainbow Dash comenzó a moverse de nuevo, pero esta vez con más control. Su expresión cambió. Sus ojos, que hasta hacía poco giraban sin rumbo, poco a poco volvieron a enfocarse.
 
-Las alas, que no habían dejado de agitarse, finalmente se detuvieron y se plegaron con suavidad. Sus extremidades, que hacían movimientos erráticos, se estiraron una última vez y volvieron a una posición de reposo.
+Las alas, que no habían dejado de agitarse, finalmente se detuvieron y se plegaron con suavidad. Sus extremidades, que se movían de forma errática, se estiraron una última vez antes de relajarse.
 
-Rainbow Dash, por fin volviendo a la calma, respiró hondo y cerró los ojos, como si regresara al sueño en el que había estado sumida.
+Rainbow Dash, con el semblante que la caracterizaba, respiró hondo y cerró los ojos, como si regresara al sueño del que acababa de despertar.
 
-Applejack, sorprendida por lo que acababa de presenciar, se rascó la cabeza, confundida. Tras otro instante de silencio, finalmente se decidió y se acercó con cautela.
+Applejack, sorprendida por lo que acababa de presenciar, ladeó la cabeza, confundida. Permaneció inmóvil, expectante, preguntándose si algo más ocurriría. Tras un instante de silencio, finalmente se acercó con cautela.
 
 "¿Rainbow Dash?" preguntó con voz temblorosa.
 
 La respuesta fue inmediata.
 
-"¡Auch, Applejack! ¿Qué rayos te pasa?" protestó la pegaso arcoíris, llevándose un casco a la cabeza y frotándose el chichón que ahora adornaba su frente. Toda la escena angustiante vivida momentos antes, ahora parecía una alucinación extraña y lejana en el tiempo.
+"¡Auch, Applejack! ¿Qué rayos te pasa?" protestó la pegaso, llevándose un casco a la cabeza y frotándose el chichón que ahora adornaba su frente. La escena angustiante de hace unos momentos se desvanecía como un mal sueño.
 
-Una sonrisa viva se dibujó en el rostro de Applejack. Que luego dio paso aun risa creciente.
+Una sonrisa iluminó el rostro de Applejack. Luego, sin poder contenerse, estalló en carcajadas.
 
-"¡Jajaja Jajaja!" La risa desbordante de Applejack resonaba por toda la habitación, incluso atravesando las paredes. Dominada por la pura alegría del reencuentro, no dudó en saltar sobre su amiga y abrazarla con todas sus fuerzas.
+"¡Jajaja, jajajaja!"
+
+Su risa resonó en toda la habitación, desbordante, incontenible. Dominada por la pura alegría del reencuentro, no dudó en saltar sobre su amiga y abrazarla con todas sus fuerzas.
 
 "¡Ey, ey, Applejack! ¡Qué haces? ¡No aprietes tan fuerte! ¡Oye, espera...! ¿Estás llorando?"
 
-Confundida, Rainbow Dash no entendía nada de lo que estaba pasando. Para ella, apenas había despertado de un sueño salvaje y su memoria seguía borrosa.
+Rainbow Dash parpadeó, confundida. Para ella, apenas había despertado de un sueño salvaje y su memoria seguía borrosa.
 
-"¡Tu gran cabeza dura! Jajaja, no puedo creerlo. ¡Estás a salvo! ¡Todas estamos a salvo! ¡Yeeep!" relinchó sin freno la poni granjera mientras continuaba abrazando con fuerza a su amiga arcoíris.
+"¡Tu gran cabeza dura! Jajaja, no puedo creerlo. ¡Estás a salvo! ¡Todas estamos a salvo! ¡Yeeep!" relinchó la poni granjera sin freno, apretando aún más fuerte a su amiga arcoíris.
 
-"¿Estamos a salvo...? Eso suena bien, ¿no? Pero, ¿dónde estamos a salvo, exactamente?" preguntó Rainbow Dash, cada vez más confundida y preocupada por el extraño comportamiento de Applejack.
+"¿Estamos a salvo...? Eso suena bien, ¿no?" respondio Rainbow Dash sin saber que decir, cada vez más confundida y preocupada por el extraño comportamiento de Applejack.
 
-"Yo..." Applejack finalmente se detuvo, su júbilo desvaneciéndose de golpe. Se apartó un poco de su amiga, pues la simple pregunta de Rainbow Dash la hizo recordar la inquietante situación en la que se encontraban. "No estoy segura. Tal vez sea... ¿la casa de Twilight?"
+"¡Siiii eso esta muy bien!" respondió Applejack cuyas emociones parecian amainar un poco. 
 
-Rainbow Dash se quedó en silencio, sin comprender del todo lo que Applejack acababa de decir. Sin embargo, tras una rápida mirada a su desordenado alrededor, coincidió con aquella imposible posibilidad.
+"Genial... y... ¿dónde estamos a salvo, exactamente?" preguntó Rainbow Dash, barriendo la habitación con la mirada.
 
-"Ok... estamos en la vieja casa de Twilight, ¿no?"
+Applejack abrió la boca, pero ninguna respuesta acudió de inmediato. Su alegría se apagó de golpe. Se apartó un poco, su expresión nublándose al recordar la inquietante situación en la que se encontraban.
 
-"Yep", respondió Applejack, también echando un vistazo a su alrededor.
+"Yo... no estoy segura. Tal vez sea... ¿la casa de Twilight?"
+
+Rainbow Dash se quedó en silencio, sin comprender del todo la respuesta. Pero tras observar mejor su desordenado alrededor, la absurda afirmación comenzó a cobrar sentido.
+
+"Bien... estamos en la vieja casa de Twilight, ¿no?"
+
+"Yep", respondió Applejack, echando otro vistazo a la habitación.
 
 "O sea, la biblioteca de Ponyville, Golden Oak, ¿no?"
 
@@ -222,9 +232,9 @@ Rainbow Dash se quedó en silencio, sin comprender del todo lo que Applejack aca
 
 "La misma que Tirek destruyó casi por completo, ¿no?"
 
-"Yep..." confirmó Applejack, esta vez con un tono más serio y añadio: "No lo entiendo."
+"Yep..." confirmó Applejack, esta vez con un tono más grave. Tras un momento de duda, añadió: "No lo entiendo."
 
-"Ok... esto es extraño. Muy extraño..." murmuró Rainbow Dash, desviando la mirada con evidente desconfianza. Luego continuó: "¿Y las demás chicas...?"
+"Concuerdo... esto es extraño. Muy extraño..." murmuró Rainbow Dash, desviando la mirada con evidente desconfianza a todo lo que la rodeaba. Luego continuó: "¿Y las demás chicas...?"
 
 "También están aquí, a salvo en..." Applejack se detuvo al volver la mirada hacia el interior de la habitación.
 
@@ -238,7 +248,11 @@ Más allá, en una esquina, rodeada de cuchillos incrustados, botellas rotas y u
 
 Incapaces de reaccionar en esa situación, Applejack y Rainbow Dash observaron en silencio cómo Fluttershy comenzaba a despertarse.
 
-Tras un adorable bostezo, la pegaso de melena rosa, abrió los ojos y al encontrarse con la mirada de sus amigas preguntó con suavidad: "¿Pasó algo malo?"
+La pegaso de melena rosa se estiró con la inocente gracia de un gatito, soltó un adorable bostezo y, con su habitual dulzura, abrió los ojos.
+
+Al encontrarse con las expresiones graves de sus amigas, parpadeó y preguntó con suavidad:
+
+"¿Pasó algo malo?"
 
 [---]
 
