@@ -1,6 +1,6 @@
 En medio de un frondoso bosque celeste, la última y trágica batalla daba inicio...
 
-"¡Haaaaaaaaaaaaaaaa!" Rainbow Dash gritó, lanzándose contra su oponente. Llena de toda la furia que podía caber en ella. Con las pocas fuerzas que le quedaba, voló hacia Badwhiz a toda velocidad y, de una patada, hizo volar muy lejos el cristal sellador que tenía en su casco izquierdo. Luego, con otro ataque, dirigió una patada hacia su cabeza.
+"¡Haaaaaaaaaaaaaaaa!" Rainbow Dash gritó, lanzándose contra su oponente. Llena de toda la furia que podía caber en ella. Con las pocas fuerzas que le quedaban, voló hacia Badwhiz a toda velocidad y, de una patada, hizo volar muy lejos el cristal sellador que tenía en su casco izquierdo. Luego, con otro ataque, dirigió una patada hacia su cabeza.
 
 No fue suficiente. El escudo mágico de Badwhiz se activó en el último momento, resistiendo el golpe que lo habría dejado inconsciente.
 
