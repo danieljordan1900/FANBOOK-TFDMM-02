@@ -228,7 +228,7 @@ Rainbow Dash se quedó en silencio, sin comprender del todo lo que Applejack aca
 
 "También están aquí, a salvo en..." Applejack se detuvo al volver la mirada hacia el interior de la habitación.
 
-El silencio de Applejack era comprensible. En medio del desastre causado por las anteriores embestidas de Rainbow Dash, la casa de Twilight se encontraba en un caos aún mayor que antes. Sus amigas, atrapadas en el desorden, estaban desperdigadas por la habitación en situaciones absurdas.
+El silencio inmediato de Applejack era comprensible. En medio del desastre causado por las anteriores embestidas de Rainbow Dash, la casa de Twilight se encontraba en un caos aún mayor que antes. Sus amigas, atrapadas en el desorden, estaban desperdigadas por la habitación en situaciones absurdas.
 
 Colgando del techo, como una piñata, Pinkie Pie se balanceaba envuelta en sus propias vendas.
 
