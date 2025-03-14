@@ -134,7 +134,9 @@ En medio de la habitación desordenada, Applejack sostenía con fuerza a su amig
 
 La pegaso, con el rostro vendado, apenas mostraba signos de vida. Entreabría su único ojo visible por instantes, solo para cerrarlo de nuevo casi de inmediato.
 
-Entonces, en medio del forcejeo, su dormido ojo se abrió de golpe.
+"¡Rainbow Dash! ¡Despierta!"
+
+Entonces, en medio del forcejeo, ese mismo ojo dormido se abrió de golpe.
 
 "¡Rainbow Dash, por fin despertaste, gracias a... Ughhh!" Apenas pudo exclamar Applejack, sintiendo el alivio de recuperar a su amiga, cuando una inesperada patada la golpeó en el estómago, enviándola de espaldas al suelo.
 
