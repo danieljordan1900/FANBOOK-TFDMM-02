@@ -244,13 +244,13 @@ Colgando del techo, como una piñata, Pinkie Pie se balanceaba envuelta en sus p
 
 Debajo de un librero caído, sobre un colchón de afortunadas almohadas, Rarity se agitaba con desesperación, intentando liberarse de la sofocante trampa en la que había quedado encerrada.
 
-Más allá, en una esquina, rodeada de cuchillos incrustados, botellas rotas y un incipiente fuego, Fluttershy permanecía dormida en su sencilla cama. Indemne, con una expresión angelical de tranquilidad absoluta, parecía completamente ajena a todo lo ocurrido hasta ese momento.
+Más allá, en una esquina, rodeada de cuchillos incrustados, botellas rotas y un incipiente fuego, Fluttershy permanecía dormida en su sencilla cama. Indemne, con una expresión angelical de tranquilidad absoluta, parecía completamente ajena a todo lo ocurrido en la habitación hasta ese momento.
 
-Incapaces de reaccionar en esa situación, Applejack y Rainbow Dash observaron en silencio cómo Fluttershy comenzaba a despertarse.
+Incapaces de reaccionar, Applejack y Rainbow Dash observaron en silencio cómo Fluttershy comenzaba a despertarse.
 
-La pegaso de melena rosa se estiró con la inocente gracia de un gatito, soltó un adorable bostezo y, con su habitual dulzura, abrió los ojos.
+La pegaso de melena rosa se estiró, abrió la boca y, con la inocente gracia de un gatito, soltó un adorable bostezo. Sin ningún rastro de dolor o inquietud que empañara su habitual dulzura, abrió los ojos lentamente, disipando el apacible sueño que aún la envolvía.
 
-Al encontrarse con las expresiones graves de sus amigas, parpadeó y preguntó con suavidad:
+Al notar las expresiones graves de sus amigas, parpadeó por unos instantes y, tras unos segundos de silencio, inclinó ligeramente la cabeza antes de preguntar con suavidad:
 
 "¿Pasó algo malo?"
 
