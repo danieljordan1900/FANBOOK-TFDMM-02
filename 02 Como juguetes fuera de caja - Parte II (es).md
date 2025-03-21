@@ -258,27 +258,27 @@ Al notar las expresiones graves de sus amigas, parpadeó por unos instantes y, t
 
 [---]
 
-Envuelta por una densa noche, un grito constante surgía desde el interior de la casa-árbol de Twilight.
+Envuelta en una densa noche, un grito constante surgía desde el interior de la casa-árbol de Twilight.
 
 "AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA"
 
-"¡No grites tan fuerte, Pinkie! ¡No estás ayudando!" se quejó Applejack, molesta. A su lado, Rainbow Dash tenía una expresión semejante. Ambas avanzaban con cuidado entre el desorden de la habitación, llevando sobre sus lomos el cuerpo parcialmente vendado y enyesado de su amiga rosada.
+"¡No grites tan fuerte, Pinkie! ¡No estás ayudando!" se quejó Applejack, molesta. A su lado, Rainbow Dash tenía una expresión similar. Ambas avanzaban con cuidado entre el desorden de la habitación, llevando sobre sus lomos el cuerpo parcialmente vendado y enyesado de su amiga rosada.
 
-"Lo siento..." intentó disculparse Pinkie Pie, solo para seguir gritando con apenas un poco menos de intensidad.
+"Lo siento..." intentó disculparse Pinkie Pie, solo para seguir gritando, aunque con un poco menos de intensidad.
 
 Applejack rodó los ojos.
 
 Habían pasado varios minutos desde que ella despertara a Rainbow Dash y al resto de sus amigas. Y, si bien al principio se sintió feliz de reencontrarse con ellas, aquella emoción no perduró mucho debido a lo que ocurrió después.
 
-"AAAAAAAAAAAAAA..." El grito continuó llenando la habitación.
+"AAAAAAAAAAAAAA..." El grito seguía resonando en la habitación.
 
 El llanto constante de Pinkie era ensordecedor. A esas alturas, los tímpanos de Applejack comenzaban a dolerle, además de la culpa que pesaba sobre ella por sus decisiones previas...
 
 Momentos antes, ella y Rainbow Dash se habían dispuesto a auxiliar a sus amigas atrapadas. Para entonces, estaba claro que Fluttershy se encontraba completamente ilesa —algo que Applejack agradecía a las estrellas desde lo más profundo de su corazón—, pero lo mismo no podía decirse de Rarity y Pinkie Pie.
 
-En el caso de Rarity, no presentaba daños físicos importantes, pero la falta de oxígeno tras quedar atrapada bajo un librero la había dejado en un estado de profunda confusión y con una pérdida parcial de memoria. Al ser liberada, apenas podía articular palabras y tenía problemas para mantenerse en pie, lo que preocupó a sus amigas. Afortunadamente, la rápida intervención de Fluttershy la estabilizó, devolviéndole poco a poco la claridad y poniéndola al tanto de la situación. Ahora, Rarity se recuperaba lentamente en el sofá de la habitación, bajo la atenta mirada de la gentil pegaso de melena rosa.
+En el caso de Rarity, no presentaba daños físicos importantes, pero la falta de oxígeno tras quedar atrapada bajo un librero la había dejado en un estado de profunda confusión y con una pérdida parcial de memoria. Al ser liberada, apenas podía articular palabras y tenía dificultades para mantenerse en pie, lo que preocupó a sus amigas. Afortunadamente, la rápida intervención de Fluttershy la estabilizó, devolviéndole poco a poco la claridad y poniéndola al tanto de la situación. Ahora, Rarity se recuperaba lentamente en el sofá de la habitación, bajo la atenta mirada de la gentil pegaso de melena rosa.
 
-Por otro lado, la condición de Pinkie Pie era inesperadamente extraña. Al igual que Rainbow Dash, antes de despertar, su cuerpo estaba completamente vendado y cubierto de bloques de yeso, como si hubiese sufrido una caída tan grave que hubiera requerido inmovilizarla por completo. Incluso su rostro estaba parcialmente enyesado, con solo unas pequeñas aberturas para respirar. Alarmada por los sonidos de asfixia que provenían de esas diminutas rendijas, Applejack decidió quitarle el yeso del rostro para ayudarla a respirar mejor.
+Por otro lado, la condición de Pinkie Pie resultaba ... extraña. Al igual que Rainbow Dash, antes de despertar, su cuerpo estaba completamente vendado y cubierto de bloques de yeso, como si hubiese sufrido una caída tan grave que hubiera requerido inmovilizarla por completo. Incluso su rostro estaba parcialmente enyesado, con solo unas pequeñas aberturas para respirar. Alarmada por los sonidos de asfixia que provenían de esas diminutas rendijas, Applejack decidió quitarle el yeso del rostro para ayudarla a respirar mejor.
 
 Fue un terrible error.
 
@@ -288,19 +288,21 @@ Aun así, a pesar de que no tenía heridas ni confusión aparente, Pinkie Pie se
 
 "¡No lo sé!"
 
-"Alguien podria por favor ¡CALLARLA DE UNA BUENA VEZ!" grito Rarity, que se encontraba en el sofá, con una expresión de vivida dolor y frustración.
+Así pasaron los minutos, sin una respuesta clara y soportando un escándalo que se volvía más insoportable con cada segundo.
 
-"¡Pinkie, basta! ¡Esto no es divertido!" exclamó Applejack con voz agria, sintiendo un punzante dolor en los oídos. En un descuido, dejó caer a su amiga enyesada al suelo con un sonoro golpe.
+"¿¡Alguien podría, por favor, CALLARLA DE UNA BUENA VEZ!?" gritó Rarity desde el sofá, con una expresión de pura frustración mientras sentía cómo su migraña se intensificaba.
 
-"¡Aaaaaaaa! Lo siento, Applejack... pero... pero... ¡Ugggggg, no puedo evitarlo! ¡Aaaaaaaaaaaa!". Su voz, aunque teñida de culpa, dejaba claro que no estaba jugando. Era incapaz de dejar de gritar, aun cuando antes Rainbow Dash intentó taparle la boca con un calcetín improvisado que encontró por ahí. No funciono, el intento solo la hizo gritar aún más fuerte.
+"¡Pinkie, basta! ¡Esto no es divertido!" exclamó Applejack con voz agria, sintiendo también un dolor punzante en los oídos. En un descuido, dejó caer a su amiga enyesada al suelo con un sonoro golpe.
 
-Cubriéndose los oídos, todas estaban incómodas con la situación. De hecho, Rarity ya empezaba a mirar a su alrededor con desesperación, buscando el librero donde había estado atrapada antes, probablemente considerando meterse de nuevo debajo de él.
+"¡Aaaaaaaa! Lo siento, Applejack... pero... pero... ¡Ugggggg, no puedo evitarlo! ¡Aaaaaaaaaaaa!" La voz de Pinkie Pie, aunque teñida de culpa, dejaba claro que no estaba jugando. En verdad era incapaz de dejar de gritar, aun cuando antes Rainbow Dash había intentado taparle la boca con un calcetín improvisado que encontró por ahí. No funcionó; el intento solo la hizo gritar aún más fuerte.
 
-Justo cuando la paciencia de Applejack se agotaba, una voz inesperada la sacudió desde atrás.
+Cubriéndose los oídos, la incomodidad alcanzaba el límite de todas. Tanto así que Rarity ya empezaba a mirar a su alrededor con desesperación, buscando el librero donde había estado atrapada antes, probablemente considerando meterse de nuevo debajo de él.
+
+Justo cuando la paciencia de Applejack se agotaba, una voz inesperada pero salvadora la sacudió desde atrás.
 
 "¡A un lado!" ordenó con fiereza Rainbow Dash, que ahora traía consigo un enorme mazo de madera entre sus cascos.
 
-"¿Qué...? Espera, Rainbow Dash, ¿no estarás pensando en...?" Applejack no llegó a terminar sus palabras. Antes de que alguna de sus amigas pudiera detenerla, Rainbow Dash se lanzó hacia adelante, haciendo girar el mazo en el aire en un movimiento certero y potente, golpeando a Pinkie Pie en la cabeza del mismo modo que se haría con un topo de feria.
+"¿De dónde sacaste...? Espera, Rainbow Dash, ¿no estarás pensando en...?" Applejack no llegó a terminar la frase. Antes de que alguna de sus amigas pudiera detenerla, Rainbow Dash se lanzó hacia adelante, haciendo girar el mazo en el aire en un movimiento certero y potente, golpeando a Pinkie Pie en la cabeza del mismo modo que se haría con un topo de feria.
 
 Para alivio y posterior consternación de sus amigas, los gritos de Pinkie Pie se detuvieron de inmediato. Rainbow Dash, orgullosa, se plantó firme ante la pila de yeso roto y vendas desmoronadas bajo las cuales estaba sepultada Pinkie Pie. Sus amigas, por su parte, suspiraron aliviadas. Pasaron segundos, quizá minutos, mientras todas recuperaban la calma. Sin embargo, justo cuando la angustia de lo sucedido comenzaba a hacerse consciente en ellas, otro sonido se escuchó.
 
