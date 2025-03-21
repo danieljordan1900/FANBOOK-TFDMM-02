@@ -278,7 +278,7 @@ Momentos antes, ella y Rainbow Dash se habían dispuesto a auxiliar a sus amigas
 
 En el caso de Rarity, no presentaba daños físicos importantes, pero la falta de oxígeno tras quedar atrapada bajo un librero la había dejado en un estado de profunda confusión y con una pérdida parcial de memoria. Al ser liberada, apenas podía articular palabras y tenía dificultades para mantenerse en pie, lo que preocupó a sus amigas. Afortunadamente, la rápida intervención de Fluttershy la estabilizó, devolviéndole poco a poco la claridad y poniéndola al tanto de la situación. Ahora, Rarity se recuperaba lentamente en el sofá de la habitación, bajo la atenta mirada de la gentil pegaso de melena rosa.
 
-Por otro lado, la condición de Pinkie Pie resultaba ... extraña. Al igual que Rainbow Dash, antes de despertar, su cuerpo estaba completamente vendado y cubierto de bloques de yeso, como si hubiese sufrido una caída tan grave que hubiera requerido inmovilizarla por completo. Incluso su rostro estaba parcialmente enyesado, con solo unas pequeñas aberturas para respirar. Alarmada por los sonidos de asfixia que provenían de esas diminutas rendijas, Applejack decidió quitarle el yeso del rostro para ayudarla a respirar mejor.
+Por otro lado, la condición de Pinkie Pie resultaba ... extraña. Dejando de lado que estuviera colgando del techo. Al igual que Rainbow Dash, antes de despertar, su cuerpo estaba completamente vendado y cubierto de bloques de yeso, como si hubiese sufrido una caída tan grave que hubiera requerido inmovilizarla por completo. Incluso su rostro estaba parcialmente enyesado, con solo unas pequeñas aberturas para respirar. Alarmada por los sonidos de asfixia que provenían de esas diminutas rendijas, Applejack decidió quitarle el yeso del rostro para ayudarla a respirar mejor.
 
 Fue un terrible error.
 
@@ -288,29 +288,35 @@ Aun así, a pesar de no presentar heridas ni confusión aparente, Pinkie Pie seg
 
 "¡No lo sé!"
 
-Así transcurrieron los minutos, sin una explicación clara y soportando un escándalo que se volvía más insoportable con cada segundo.
+Así transcurrieron los minutos hasta el presente, sin una explicación clara y soportando un escándalo que se volvía más insoportable con cada segundo.
 
-"¡¿Alguien podría, por favor, CALLARLA DE UNA BUENA VEZ?!" gritó Rarity desde el sofá, con una expresión de pura frustración mientras sentía cómo su migraña se intensificaba.
+"¡¿Alguien podría, por favor, CALLARLA DE UNA BUENA VEZ?!" gritó Rarity desde el sofá, con una expresión de pura frustración mientras su migraña se intensificaba.
 
 "¡Pinkie, basta! ¡Esto no es divertido!" exclamó Applejack con voz agria, sintiendo también un dolor punzante en los oídos. En un descuido, dejó caer a su amiga enyesada al suelo con un sonoro golpe.
 
-"¡Aaaaaaaa! Lo siento, Applejack... pero... pero... ¡Ugggggg, no puedo evitarlo! ¡Aaaaaaaaaaaa!" La voz de Pinkie Pie, aunque teñida de culpa, dejaba claro que no estaba jugando. En verdad era incapaz de dejar de gritar, aun cuando Rainbow Dash había intentado taparle la boca con un calcetín improvisado que encontró por ahí. No funcionó; el intento solo la hizo gritar aún más fuerte.
+"¡Aaaaaaaa! Lo siento, Applejack... pero... pero... ¡Ugggggg, no puedo evitarlo! ¡Aaaaaaaaaaaa!" La voz de Pinkie Pie, aunque teñida de culpa, dejaba claro que no estaba jugando. En verdad era incapaz de dejar de gritar, incluso después de que Rainbow Dash intentara taparle la boca con un calcetín improvisado que encontró por ahí. No funcionó; el intento solo la hizo gritar aún más fuerte.
 
-Cubriéndose los oídos, la incomodidad de todas bordeaba el punto límite. Tanto así que Rarity ya empezaba a mirar a su alrededor con desesperación, buscando el librero donde había estado atrapada antes, probablemente considerando meterse de nuevo debajo de él.
+Cubriéndose los oídos, todas alcanzaban el límite de su paciencia. Tanto así que Rarity comenzó a mirar desesperadamente a su alrededor, buscando el librero donde había estado atrapada antes, probablemente considerando meterse de nuevo debajo de él.
 
 Justo cuando la paciencia de Applejack se agotaba, una voz inesperada pero salvadora la sacudió desde atrás.
 
-"¡A un lado!" ordenó con fiereza Rainbow Dash, que ahora traía consigo un enorme mazo de madera entre sus cascos.
+"¡A un lado!" ordenó con fiereza Rainbow Dash, que ahora sostenía un enorme mazo de madera entre sus cascos.
 
-"¿De dónde sacaste...? Espera, Rainbow Dash, ¿no estarás pensando en...?" Applejack no llegó a terminar la frase. Antes de que alguna de sus amigas pudiera detenerla, Rainbow Dash se lanzó hacia adelante, haciendo girar el mazo en el aire en un movimiento certero y potente, golpeando a Pinkie Pie en la cabeza del mismo modo que se haría con un topo de feria.
+"¿De dónde sacaste...? Espera, Rainbow Dash, ¿no estarás pensando en...?" Applejack no llegó a terminar la frase. Antes de que alguna pudiera detenerla, Rainbow Dash se lanzó hacia adelante, haciendo girar el mazo en el aire con un movimiento certero y potente, golpeando a Pinkie Pie en la cabeza como si fuera un topo de feria.
 
-Para alivio y posterior consternación de sus amigas, los gritos de Pinkie Pie se detuvieron de inmediato. Rainbow Dash, orgullosa, se plantó firme ante la pila de yeso roto y vendas desmoronadas bajo las cuales estaba sepultada Pinkie Pie. Sus amigas, por su parte, suspiraron aliviadas. Pasaron segundos, quizá minutos, mientras todas recuperaban la calma. Sin embargo, justo cuando la angustia de lo sucedido comenzaba a hacerse consciente en ellas, otro sonido se escuchó.
+Un golpe sordo resonó en la habitación. Luego, silencio.
+
+Para alivio —y posterior consternación— de sus amigas, los gritos de Pinkie Pie se detuvieron de inmediato. Rainbow Dash, orgullosa, se plantó firme sobre la pila de yeso roto y vendas desmoronadas bajo las cuales ahora yacía la poni rosa. Sus amigas, por su parte, suspiraron aliviadas. Pasaron segundos, quizá minutos, recuperando la calma.
+
+Sin embargo, la realidad pronto se hizo presente: no se oía ni un solo sonido bajo los escombros. Ningún murmullo. Ninguna risa. Nada.
+
+La conciencia del agravio sumada a la falta de señales de vida de Pinkie se reflejó en todas con una mueca de nerviosismo. La angustia comenzaba a invadirlas cuando, de pronto, un sonido rompió el silencio.
 
 Como si un globo se inflara de golpe, una figura rosa emergió de entre la pila de yeso y vendas rotas.
 
-"¡Soy libreeeee!" exclamó Pinkie Pie, toda sonrisas y desbordando alegría desde lo más profundo de su ser... solo unos segundos antes de caer de cara al suelo.
+"¡Soy libreeeee!" exclamó Pinkie Pie, toda sonrisas y desbordando la alegría que tanto la caracterizaba... solo para desplomarse de cara al suelo segundos después.
 
-"Estoy bien..." murmuró sin levantarse, siendo atendida de inmediato por Fluttershy.
+"Estoy bien..." murmuró sin moverse, mientras Fluttershy corría a atenderla.
 
 Rainbow Dash, con un gesto de desinterés, desvió la mirada.
 
