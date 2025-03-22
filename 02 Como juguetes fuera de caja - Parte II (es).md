@@ -320,15 +320,65 @@ Como si un globo se inflara de golpe, una figura rosa emergió de entre la pila 
 
 Rainbow Dash, con un gesto de desinterés, desvió la mirada.
 
-"Bueno, Pinkie ya no es una momia gritona, Rarity ya puede respirar, Fluttershy es inmune a todo y tú no tienes sombrero. ¿Ya puedo preguntar qué está pasando aquí?" dijo de mal humor, arrojando a un lado el mazo que llevaba.
+"Perfecto, Pinkie ya no es una momia gritona, Rarity ya puede respirar, Fluttershy es inmune a todo y tú no tienes sombrero. ¿Alguien ya me puede decir qué está pasando aquí?" preguntó con mal humor, arrojando a un lado el enorme mazo y alzando el vuelo dentro del cuarto.
 
-Las cejas de Applejack se arquearon.
+Applejack arqueó una ceja.
 
-"Gracias por preocuparte tanto por mí, querida Rainbow Dash. Estoy muy bien..." se escuchó la voz indignada de Rarity desde el sofá.
+"Gracias por preocuparte tanto por mí, querida. Estoy muy bien..." se oyó la voz indignada de Rarity desde el sofá.
 
-Ignorando las quejas de la unicornio, Applejack reflexionó sobre la pregunta de Rainbow Dash. Y, para su molestia, se dio cuenta de que no tenía respuesta.
+Ignorando las quejas de la unicornio, Applejack reflexionó sobre la pregunta de Rainbow Dash. Y, para su molestia, se dio cuenta de que no tenía una respuesta.
 
-No lo sabía. Nadie lo sabía.
+Cuando miró al resto de sus amigas, sus expresiones eran idénticas. Nadie tenía una explicación clara.
+
+El silencio volvió, pesado y melancólico. Hasta que, de repente, algo lo quebró.
+
+"Tal vez..." se escuchó una voz suave de fondo. "Deberíamos empezar diciendo qué fue lo que pasó."
+
+Las miradas se dirigieron hacia Fluttershy, quien aún sostenía a Pinkie Pie entre sus brazos. Casi de inmediato, la atención de todas viró hacia la otra pegaso en la habitación.
+
+Rainbow Dash se paralizó al instante al sentir las agudas miradas de sus compañeras.
+
+"Oigan, esperen un segundo. Fui la última en quedar de pie. Si van a empezar a pedir explicaciones, primero deberían darme las suyas," respondió a la defensiva, aunque con un leve nerviosismo en su voz.
+
+"¿Es así, querida? ¿Fuiste la última en quedar de pie? Pero, ¿no fuiste también la primera en irte? Cuéntanos, dulzura, ¿qué tal te fue en tu cita con Vainilla?" preguntó Rarity con un oscuro sarcasmo. Seguía recostada en el sofá con una almohada sobre su adolorida cabeza, pero en la pequeña abertura que dejaba ver su rostro, sus ojos brillaban con una mirada tan afilada como la punta de un diamante, clavada en Rainbow Dash.
+
+La respuesta de la pegaso no tardó en llegar.
+
+"¿Disculpa? No las dejé para ir a un duelo de buenos modales como a los que estás acostumbrada, Rarity. ¡Fui a pelear por todas ustedes!"
+
+"Ahh, lo siento, Rainbow. Tal vez no me expliqué bien antes, pero... no esquives la pregunta. ¿Cómo te fue?"
+
+Rainbow Dash, que seguía en el aire, se quedó en silencio. Sin saber qué responder, descendió al suelo, se sentó y, agachando la cabeza, respondió con un tono abatido:
+
+"Perdí..."
+
+Una fría atmósfera llenó la habitación desordenada. Pinkie Pie, que había permanecido en el suelo, se incorporó con una expresión de preocupación similar a la de Fluttershy y, sin decir una palabra, se acomodó a su lado. Rarity, con mucha más elegancia, hizo lo mismo desde su lugar.
+
+Applejack, que ya se esperaba esa respuesta, se apoyó en su amiga en un intento de confortarla. Rainbow Dash, por su parte, no reaccionó. Tras un breve silencio, continuó:
+
+"No estoy segura de qué pasó... Lo tenía en mis cascos, lo había atrapado y estaba a punto de volver con ustedes, pero... entonces él hizo algo. Después de eso, todo es confuso. Creo que, de alguna forma, tomaron control de mí y me obligaron a atacarlas. De no haber sido por Twilight, no sé qué más habría pasado," confesó con una voz cansada, impropia de ella. Los recuerdos de la batalla y su derrota se agolpaban en su cabeza, llenándola de una amargura que le apretaba la garganta y hacía flaquear su espíritu.
+
+Fue entonces, en medio de aquella angustiosa confesión, que un pensamiento apareció de golpe en la mente de todas al mismo tiempo.
+
+"Twilight... ¿dónde estaba?"
+
+Antes de que alguna pudiera articular el pánico por su obvia y sumamente importante ausencia, una voz se les adelantó.
+
+"¡Hooo por todo lo ROSA!" exclamó Pinkie Pie con una expresión de absoluta sorpresa que hizo que todas contuvieran el aliento. "¡Applejack! ¡No tienes sombrero!"
+
+Nadie respondió a esa tardía e inoportuna revelación. Mucho menos Applejack, quien, conteniendo la repentina ira que la invadía, soltó un intenso suspiro. Esas no eran las palabras importantes que esperaba oír en ese momento, pero tampoco eran falsas, así que lo dejó pasar como una manda de cerdos salvajes en medio de su camino.
+
+Lo que también siguió su camino fue la lengua de Pinkie Pie, que continuó: "...y ¡Twilight! ... ¿no está?" terminó de decir con una expresión que apenas ocultaba el pavor que sentía.
+
+¿Había sido la anterior declaración de Pinkie un acto premeditado? Nadie pensó en eso en ese momento, pero de haberlo hecho, habría tenido mucho sentido. Porque el pánico que invadió al grupo de amigas fue mucho menor del que habría sido sin aquella distracción.
+
+Sorprendidas y angustiadas, pero no desesperadas, las amigas de Twilight se miraron entre sí, sin saber qué decir. Pronto, todas comenzaron a buscarla con la mirada por la habitación.
+
+
+
+
+
+[---]
 
 El silencio volvió a apoderarse de la desordenada habitación. Applejack y el resto de sus amigas observaban a su alrededor, confusas, sin entender completamente la escena en la que se encontraban. Por alguna razón desconocida, todas estaban de vuelta en la sala principal de la antigua casa-árbol de Twilight Sparkle. Un lugar familiar, en el que habían convivido tantas veces en el pasado, pero que, en el presente, ya no debería existir.
 
