@@ -370,30 +370,72 @@ Nadie respondió a esa tardía e inoportuna revelación. Mucho menos Applejack, 
 
 Lo que también siguió su camino fue la lengua de Pinkie Pie, que continuó: "...y ¡Twilight! ... ¿no está?" terminó de decir con una expresión que apenas ocultaba el pavor que sentía.
 
-¿Había sido la anterior declaración de Pinkie un acto premeditado? Nadie pensó en eso en ese momento, pero de haberlo hecho, habría tenido mucho sentido. Porque el pánico que invadió al grupo de amigas fue mucho menor del que habría sido sin aquella distracción.
+¿Había sido aquella declaración de Pinkie un acto premeditado? Nadie lo pensó en ese momento, pero de haberlo hecho, habría tenido mucho sentido. Porque el pánico que invadió al grupo de amigas fue mucho menor del que habría sido sin aquella distracción.
 
-Sorprendidas y angustiadas, pero no desesperadas, las amigas de Twilight se miraron entre sí, sin saber qué decir. Pronto, todas comenzaron a buscarla con la mirada por la habitación.
+Sorprendidas y angustiadas, pero no desesperadas, las amigas de Twilight se miraron entre sí, sin saber qué decir. Pronto, todas comenzaron a buscarla por la habitación.
 
+Pero no había ninguna señal de su gran amiga.
 
-[---]
+"¡¿Cómo es que nadie lo notó antes?!" exclamó Rainbow Dash, frustrada, revisando entre los libreros y los armarios caídos.
 
-El silencio volvió a apoderarse de la desordenada habitación. Applejack y el resto de sus amigas observaban a su alrededor, confusas, sin entender completamente la escena en la que se encontraban. Por alguna razón desconocida, todas estaban de vuelta en la sala principal de la antigua casa-árbol de Twilight Sparkle. Un lugar familiar, en el que habían convivido tantas veces en el pasado, pero que, en el presente, ya no debería existir.
+"Lo siento, fue mi error. Yo pensé que aún estábamos en su casa. En ese entonces nosotras dormíamos abajo y ella, en ocasiones, en el..." respondió Applejack, intentando justificarse mientras movía un sofá. Pero, a mitad de la revelación que tomaba forma en sus palabras, otra voz la interrumpió.
 
-Aún más extraño era que, aunque la habitación parecía superficialmente idéntica a como la recordaban, había muchas diferencias. Applejack, la primera en notarlo al despertar, se percató de inmediato de esas incongruencias: muebles dispuestos sin lógica, sillas con patas faltantes, copias de libros que eran solo cubiertas, almohadas de cartón... y muchas más anomalías dispersas a su alrededor. Todo daba la impresión de ser una colección de cosas incompletas y fuera de lugar.
+"¡AAAAAAAAAAAAAAAAAAAAAAAA!"
 
-Pero, de todas esas rarezas, la más evidente era lo que se hallaba en un extremo de la habitación. ¿Qué era ese extraño símbolo en la puerta de la casa?
+De pronto, un grito desgarrador resonó en la habitación. De inmediato, todas dejaron lo que estaban haciendo y se volvieron hacia la poni que lo había lanzado.
 
-Intrigada, la mirada de Applejack vagó hasta la puerta, cuya superficie exhibía un enorme rombo compuesto por caracteres ilegibles e intrincados de un vivo color negro.
+De pie, con una expresión de puro horror, Rarity retrocedía invadida por el pánico, con los ojos fijos en el sofá sobre el que había estado recostada hasta entonces.
 
-No tenía ni idea de qué podría significar. ¿Una advertencia? Tal vez. O tal vez no. Estaba perdida. Pero si alguien podía llegar a descubrirlo, ese sería...
+Sin entender del todo qué pasaba, Applejack se acercó a la asustada unicornio.
 
-Justo cuando sus pensamientos se dirigían hacia la persona más importante que faltaba en ese momento, una voz quebró el silencio, haciendo que todas voltearan hacia su origen.
+"¿Qué sucede, Rarity? ¿Encontraste algo?"
 
-"AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA"
+"¿Que si encontré algo? ¡Por supuesto que encontré algo! ¡Míralo por ti misma!" exclamó Rarity, con la voz al borde del llanto.
 
-Pinkie Pie gritó desde el suelo, aún a los pies de Fluttershy.
+Confundida, Applejack observó el sofá al que la unicornio señalaba con sus cascos temblorosos.
 
-"¿Qué ocurre, Pinkie?" preguntó angustiada Applejack, notando el rostro consternado de la poni rosa.
+"Esto es... un sofá," dijo sin pensarlo demasiado, sin notar nada inusual a simple vista.
 
-"Applejack... tú... tú... ¡tu sombrero no está!" exclamó Pinkie Pie apuntandole con una casco, con voz temblorosa y un pánico injustificado brillando en sus ojos.
+Pero para Rarity, cuyos ojos estaban entrenados para ver más allá de lo evidente, aquel sofá era algo mucho peor...
 
+"Es... ¡de plástico!" gritó entre lágrimas, sin ocultar su horror ni frenar su dramatismo, haciendo gestos exageradamente teatrales.
+
+Applejack contuvo el impulso de desplomarse de lado y simplemente observó en silencio cómo su amiga de la moda terminaba su espectáculo. También escuchó los susurros a su espalda:
+
+"Qué terrible..."
+"¡Es en serio!"
+"¿Alguien vio mi cola?"
+
+Ladeando la cabeza con impaciencia, Rainbow Dash exclamó en voz alta:
+
+"Brillante. Ahora los muebles de mala calidad son más importantes que una amiga perdida."
+
+"¡No se trata solo de muebles de mala calidad, Rainbow Dash! ¡Las luces son de plástico! ¡Las paredes son de plástico! ¡Incluso los libros son de plástico! ¡Todo es de plaaásticooo!" gritó Rarity, desconsolada, apoyándose en Fluttershy para no derrumbarse.
+
+Extrañadas por este descubrimiento, las demás amigas observaron de nuevo a su alrededor, dándose cuenta de que Rarity tenía razón. Lo que antes parecía una habitación desordenada pero familiar, ahora se veía como un lugar completamente extraño y ajeno.
+
+Intentando mantener la calma, Applejack habló.
+
+"Bien, entonces... solo tenemos un problema de plásticos... ¿no?" preguntó, esperando la reacción del grupo. Sin embargo, las expresiones mixtas de sus amigas no mostraban mucha conformidad con su conclusión.
+
+Fue entonces cuando otro grito sacudió la habitación.
+
+"¡AAAAAAAAAAAAAAAAAAAAAAAA!"
+
+Pinkie Pie, con el rostro pálido y la mirada congelada, dejó escapar el alarido.
+
+"Por favor, si se trata de que mi corte de melena se ve diferente, será mejor que no lo digas, Pinkie," exclamó Rainbow Dash de inmediato, con una expresión de obvio malestar.
+
+Pero Pinkie Pie no respondió. Su mirada seguía clavada en la dirección de Rainbow Dash.
+
+"¿Qué sucede, Pinkie? ¿Qué estás mirando...?" preguntó Applejack, notando la expresión petrificada de su amiga y girándose en la misma dirección.
+
+Applejack se congeló al instante.
+
+Las demás hicieron lo mismo al ver lo que ella veía.
+
+Varios pasos detrás de Rainbow Dash, más allá del sofá, una escalinata llevaba al segundo piso de lo que parecía la vieja casa de Twilight Sparkle.
+
+Pero, a mitad de trayecto... oculto entre las sombras de la escalera, se encontraba una figura.
+
+Badwhiz Starheart, enemigo declarado de las Mane Six, observaba en silencio a las amigas de Twilight...

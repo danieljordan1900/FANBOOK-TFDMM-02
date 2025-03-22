@@ -53,3 +53,29 @@ Parte 2 - con acord
 -> Conversacion caotica entre las ponis
 
 -> El tercer grito de Pinkie Pie, descubre a Badwhiz observandolas desde arriba
+
+
+
+
+[---]
+
+El silencio volvió a apoderarse de la desordenada habitación. Applejack y el resto de sus amigas observaban a su alrededor, confusas, sin entender completamente la escena en la que se encontraban. Por alguna razón desconocida, todas estaban de vuelta en la sala principal de la antigua casa-árbol de Twilight Sparkle. Un lugar familiar, en el que habían convivido tantas veces en el pasado, pero que, en el presente, ya no debería existir.
+
+Aún más extraño era que, aunque la habitación parecía superficialmente idéntica a como la recordaban, había muchas diferencias. Applejack, la primera en notarlo al despertar, se percató de inmediato de esas incongruencias: muebles dispuestos sin lógica, sillas con patas faltantes, copias de libros que eran solo cubiertas, almohadas de cartón... y muchas más anomalías dispersas a su alrededor. Todo daba la impresión de ser una colección de cosas incompletas y fuera de lugar.
+
+Pero, de todas esas rarezas, la más evidente era lo que se hallaba en un extremo de la habitación. ¿Qué era ese extraño símbolo en la puerta de la casa?
+
+Intrigada, la mirada de Applejack vagó hasta la puerta, cuya superficie exhibía un enorme rombo compuesto por caracteres ilegibles e intrincados de un vivo color negro.
+
+No tenía ni idea de qué podría significar. ¿Una advertencia? Tal vez. O tal vez no. Estaba perdida. Pero si alguien podía llegar a descubrirlo, ese sería...
+
+Justo cuando sus pensamientos se dirigían hacia la persona más importante que faltaba en ese momento, una voz quebró el silencio, haciendo que todas voltearan hacia su origen.
+
+"AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA"
+
+Pinkie Pie gritó desde el suelo, aún a los pies de Fluttershy.
+
+"¿Qué ocurre, Pinkie?" preguntó angustiada Applejack, notando el rostro consternado de la poni rosa.
+
+"Applejack... tú... tú... ¡tu sombrero no está!" exclamó Pinkie Pie apuntandole con una casco, con voz temblorosa y un pánico injustificado brillando en sus ojos.
+
