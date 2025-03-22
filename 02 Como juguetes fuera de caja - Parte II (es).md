@@ -410,7 +410,7 @@ Ladeando la cabeza con impaciencia, Rainbow Dash exclamó en voz alta:
 
 "Brillante. Ahora los muebles de mala calidad son más importantes que una amiga perdida."
 
-"¡No se trata solo de muebles de mala calidad, Rainbow Dash! ¡Las luces son de plástico! ¡Las paredes son de plástico! ¡Incluso los libros son de plástico! ¡Todo es de plaaásticooo!" gritó Rarity, desconsolada, apoyándose en Fluttershy para no derrumbarse.
+"¡No se trata solo de muebles de mala calidad, Rainbow Dash! ¡Las paredes son de plástico! ¡Las luces son de plástico! ¡Incluso los libros son de plástico! ¡Todo es de plaaásticooo!" gritó Rarity, desconsolada, apoyándose en Fluttershy para no derrumbarse.
 
 Extrañadas por este descubrimiento, las demás amigas observaron de nuevo a su alrededor, dándose cuenta de que Rarity tenía razón. Lo que antes parecía una habitación desordenada pero familiar, ahora se veía como un lugar completamente extraño y ajeno.
 
