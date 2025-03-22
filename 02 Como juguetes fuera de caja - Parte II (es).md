@@ -262,7 +262,7 @@ Envuelta en una densa noche, un grito constante surgía desde el interior de la 
 
 "AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA"
 
-"¡No grites tan fuerte, Pinkie! ¡No estás ayudando!" se quejó Applejack, molesta. A su lado, Rainbow Dash tenía una expresión similar. Ambas avanzaban con cuidado entre el desorden de la habitación, llevando sobre sus lomos el cuerpo parcialmente vendado y enyesado de su amiga rosada.
+"¡No grites tan fuerte, Pinkie! ¡No estás ayudando!" se quejó Applejack, molesta. A su lado, Rainbow Dash lucía una expresión igual. Ambas avanzaban con cuidado entre el desorden de la habitación, llevando sobre sus lomos el cuerpo parcialmente vendado y enyesado de su amiga rosada.
 
 "Lo siento..." intentó disculparse Pinkie Pie, solo para seguir gritando, aunque con un poco menos de intensidad.
 
@@ -290,7 +290,7 @@ Aun así, a pesar de no presentar heridas ni confusión aparente, Pinkie Pie seg
 
 Así transcurrieron los minutos hasta el presente, sin una explicación clara y soportando un escándalo que se volvía más insoportable con cada segundo.
 
-"¡¿Alguien podría, por favor, CALLARLA DE UNA BUENA VEZ?!" gritó Rarity desde el sofá, con una expresión de pura frustración mientras su migraña se intensificaba.
+"¡Por Celestia!¡¿Alguien podría, por favor, CALLARLA DE UNA BUENA VEZ?!" gritó Rarity desde el sofá, con una expresión de pura frustración mientras su migraña se intensificaba.
 
 "¡Pinkie, basta! ¡Esto no es divertido!" exclamó Applejack con voz agria, sintiendo también un dolor punzante en los oídos. En un descuido, dejó caer a su amiga enyesada al suelo con un sonoro golpe.
 
@@ -373,9 +373,6 @@ Lo que también siguió su camino fue la lengua de Pinkie Pie, que continuó: ".
 ¿Había sido la anterior declaración de Pinkie un acto premeditado? Nadie pensó en eso en ese momento, pero de haberlo hecho, habría tenido mucho sentido. Porque el pánico que invadió al grupo de amigas fue mucho menor del que habría sido sin aquella distracción.
 
 Sorprendidas y angustiadas, pero no desesperadas, las amigas de Twilight se miraron entre sí, sin saber qué decir. Pronto, todas comenzaron a buscarla con la mirada por la habitación.
-
-
-
 
 
 [---]
