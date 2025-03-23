@@ -258,25 +258,19 @@ Al notar las expresiones graves de sus amigas, parpadeó por unos instantes y, t
 
 [---]
 
-Envuelta en una densa noche, un grito constante surgía desde el interior de la casa-árbol de Twilight.
+Envuelta en una densa noche, un grito surgía desde el interior de la casa-árbol de Twilight.
 
-"¡¡Aaaaaaaahhhhhh!!"
+"¡Aaaaaahhh!"
 
-"¡No grites tan fuerte, Pinkie! ¡No estás ayudando!" se quejó Applejack, molesta. A su lado, Rainbow Dash lucía una expresión igual. Ambas avanzaban con cuidado entre el desorden de la habitación, llevando sobre sus lomos el cuerpo parcialmente vendado y enyesado de su amiga rosada.
+"¡No grites tan fuerte, Pinkie! ¡No estás ayudando!" se quejó Applejack, molesta. A su lado, Rainbow Dash lucía una expresión igual de frustrada. Ambas avanzaban con cuidado entre el desorden de la habitación, llevando sobre sus lomos el cuerpo parcialmente vendado y enyesado de su amiga rosada.
 
-"Lo siento..." intentó disculparse Pinkie Pie, solo para seguir gritando, aunque con un poco menos de intensidad.
+"Lo siento..." intentó disculparse Pinkie Pie, solo para soltar otro grito más corto.
 
-Applejack rodó los ojos.
+Applejack rodó los ojos y suspiró.
 
-Habían pasado varios minutos desde que ella despertara a Rainbow Dash y al resto de sus amigas. Y, si bien al principio se sintió feliz de reencontrarse con ellas, aquella emoción no perduró mucho debido a lo que ocurrió después.
+Momentos antes, ella y Rainbow Dash se habían dispuesto a auxiliar a sus amigas atrapadas. Para entonces, estaba claro que Fluttershy se encontraba completamente ilesa, algo que Applejack agradecía desde lo más profundo de su corazón. Sin embargo, no podía decir lo mismo de Rarity y Pinkie Pie.
 
-"¡¡Aaaaaaaahhhhhh!!" El grito seguía resonando en la habitación.
-
-El llanto constante de Pinkie era ensordecedor. A esas alturas, los tímpanos de Applejack comenzaban a dolerle, además de la culpa que pesaba sobre ella por sus decisiones previas...
-
-Momentos antes, ella y Rainbow Dash se habían dispuesto a auxiliar a sus amigas atrapadas. Para entonces, estaba claro que Fluttershy se encontraba completamente ilesa —algo que Applejack agradecía a las estrellas desde lo más profundo de su corazón—, pero lo mismo no podía decirse de Rarity y Pinkie Pie.
-
-En el caso de Rarity, no presentaba daños físicos importantes, pero la falta de oxígeno tras quedar atrapada bajo un librero la había dejado en un estado de profunda confusión y con una pérdida parcial de memoria. Al ser liberada, apenas podía articular palabras y tenía dificultades para mantenerse en pie, lo que preocupó a sus amigas. Afortunadamente, la rápida intervención de Fluttershy la estabilizó, devolviéndole poco a poco la claridad y poniéndola al tanto de la situación. Ahora, Rarity se recuperaba lentamente en el sofá de la habitación, bajo la atenta mirada de la gentil pegaso de melena rosa.
+Rarity no presentaba daños físicos importantes, pero la falta de oxígeno tras quedar atrapada bajo un librero la había dejado en un estado de confusión. Al ser liberada, apenas podía articular palabras y tenía dificultades para mantenerse en pie. Afortunadamente, la rápida intervención de Fluttershy la estabilizó. Ahora, se recuperaba lentamente en el sofá, bajo la atenta mirada de la pegaso de melena rosa.
 
 Por otro lado, la condición de Pinkie Pie resultaba ... extraña. Dejando de lado que estuviera colgando del techo. Al igual que Rainbow Dash, antes de despertar, su cuerpo estaba completamente vendado y cubierto de bloques de yeso, como si hubiese sufrido una caída tan grave que hubiera requerido inmovilizarla por completo. Incluso su rostro estaba parcialmente enyesado, con solo unas pequeñas aberturas para respirar. Alarmada por los sonidos de asfixia que provenían de esas diminutas rendijas, Applejack decidió quitarle el yeso del rostro para ayudarla a respirar mejor.
 
@@ -334,15 +328,15 @@ El silencio volvió, pesado y melancólico. Hasta que, de repente, algo lo quebr
 
 "Tal vez..." se escuchó una voz suave de fondo. "Deberíamos empezar diciendo qué fue lo que pasó."
 
-Las miradas se dirigieron hacia Fluttershy, quien aún sostenía a Pinkie Pie entre sus brazos. Casi de inmediato, la atención de todas viró hacia la otra pegaso en la habitación.
+Las miradas se dirigieron hacia Fluttershy, quien aún sostenía a Pinkie Pie entre sus brazos. Casi de inmediato, la atención de todas viró hacia Rainbow Dash.
 
 Rainbow Dash se paralizó al instante al sentir las agudas miradas de sus compañeras.
 
-"Oigan, esperen un segundo. Fui la última en quedar de pie. Si van a empezar a pedir explicaciones, primero deberían darme las suyas," respondió a la defensiva, aunque con un leve nerviosismo en su voz.
+"Oigan, esperen un segundo. Fui la última en quedar de pie. Si van a empezar a pedir explicaciones, primero deberían darme las suyas," respondió a la defensiva.
 
-"¿Es así, querida? ¿Fuiste la última en quedar de pie? Pero, ¿no fuiste también la primera en irte? Cuéntanos, dulzura, ¿qué tal te fue en tu cita con Vainilla?" preguntó Rarity con un oscuro sarcasmo. Seguía recostada en el sofá con una almohada sobre su adolorida cabeza, pero en la pequeña abertura que dejaba ver su rostro, sus ojos brillaban con una mirada tan afilada como la punta de un diamante, clavada en Rainbow Dash.
+"Oh, querida, ¿así que fuiste la última en quedar de pie?" dijo Rarity con un tono ligeramente sarcástico. "Pero, ¿no fuiste también la primera en irte? Cuéntanos, dulzura, ¿qué tal te fue en tu cita con Vainilla?"
 
-La respuesta de la pegaso no tardó en llegar.
+Las plumas de la pegaso se crisparon al instante.
 
 "¿Disculpa? No las dejé para ir a un duelo de buenos modales como a los que estás acostumbrada, Rarity. ¡Fui a pelear por todas ustedes!"
 
@@ -376,55 +370,53 @@ Sorprendidas y angustiadas, pero no desesperadas, las amigas de Twilight se mira
 
 Pero no había ninguna señal de su gran amiga.
 
-"¡¿Cómo es que nadie lo notó antes?!" exclamó Rainbow Dash, frustrada, revisando entre los libreros y los armarios caídos.
+"¡¿Cómo es que nadie lo notó antes?!" exclamó Rainbow Dash, frustrada, mientras revisaba entre los libreros y los armarios caídos.
 
-"Lo siento, fue mi error. Yo pensé que aún estábamos en su casa. En ese entonces nosotras dormíamos abajo y ella, en ocasiones, en el..." respondió Applejack, intentando justificarse mientras movía un sofá. Pero, a mitad de la revelación que tomaba forma en sus palabras, otra voz la interrumpió.
+"Lo siento, fue mi error. Pensé que aún estábamos en su casa. En ese entonces, nosotras dormíamos abajo y ella, en ocasiones, en el..." Applejack movió un sofá mientras intentaba justificarse, pero se interrumpió cuando otra voz irrumpió en la habitación.
 
-"¡¡Aaaaaaaahhhhhh!!"
+"¡Aaaaaahhh!"
 
-De pronto, un grito desgarrador resonó en la habitación. De inmediato, todas dejaron lo que estaban haciendo y se volvieron hacia la poni que lo había lanzado.
+Un grito desgarrador resonó de repente. De inmediato, todas dejaron lo que estaban haciendo y se giraron hacia la poni que lo había lanzado.
 
-De pie, con una expresión de puro horror, Rarity retrocedía invadida por el pánico, con los ojos fijos en el sofá sobre el que había estado recostada hasta entonces.
+Rarity, con el rostro descompuesto por el horror, retrocedía temblorosa, incapaz de apartar la mirada del sofá en el que había estado recostada.
 
 Sin entender del todo qué pasaba, Applejack se acercó a la asustada unicornio.
 
 "¿Qué sucede, Rarity? ¿Encontraste algo?"
 
-"¿Que si encontré algo? ¡Por supuesto que encontré algo! ¡Míralo por ti misma!" exclamó Rarity, con la voz al borde del llanto.
+"¿Que si encontré algo? ¡Míralo por ti misma!" exclamó Rarity, con la voz al borde del llanto.
 
-Confundida, Applejack observó el sofá al que la unicornio señalaba con sus cascos temblorosos.
+Confundida, Applejack miró el sofá al que su amiga señalaba con los cascos temblorosos.
 
-"Esto es... un sofá," dijo sin pensarlo demasiado, sin notar nada inusual a simple vista.
+"Esto es... un sofá," dijo lentamente.
 
-Pero para Rarity, cuyos ojos estaban entrenados para ver más allá de lo evidente, aquel sofá era algo mucho peor...
+Pero para Rarity, cuyos ojos estaban entrenados para notar detalles imperceptibles para otros, aquel sofá era algo mucho peor...
 
-"Es... ¡de plástico!" gritó entre lágrimas, sin ocultar su horror ni frenar su dramatismo, haciendo gestos exageradamente teatrales.
+"Es... ¡de plástico!" gritó entre lágrimas, sin ocultar su horror ni su dramatismo exagerado.
 
-Applejack contuvo el impulso de desplomarse de lado y simplemente observó en silencio cómo su amiga de la moda terminaba su espectáculo. También escuchó los susurros a su espalda:
+Applejack reprimió el impulso de desplomarse de lado y, en su lugar, simplemente respondió: "Plástico... ¿algo más?"
 
-"Qué terrible..."
-"¡Es en serio!"
-"¿Alguien vio mi cola?"
+"¡Por supuesto que hay más! ¡Las paredes son de plástico! ¡Las luces son de plástico! ¡Incluso los libros son de plástico! ¡Todo es de plaaásticooo!" gritó Rarity, desconsolada, apoyándose en Fluttershy para no desmayarse.
 
-Ladeando la cabeza con impaciencia, Rainbow Dash exclamó en voz alta:
+Extrañadas, las demás observaron con más atención a su alrededor. Lo que antes parecía una habitación desordenada pero familiar, ahora se veía como un lugar completamente extraño y ajeno.
 
-"Brillante. Ahora los muebles de mala calidad son más importantes que una amiga perdida."
+Sin previo aviso, Pinkie Pie tomó un libro del suelo y lamió su superficie.
 
-"¡No se trata solo de muebles de mala calidad, Rainbow Dash! ¡Las paredes son de plástico! ¡Las luces son de plástico! ¡Incluso los libros son de plástico! ¡Todo es de plaaásticooo!" gritó Rarity, desconsolada, apoyándose en Fluttershy para no derrumbarse.
+"Definitivamente es plástico..." murmuró con seriedad.
 
-Extrañadas por este descubrimiento, las demás amigas observaron de nuevo a su alrededor, dándose cuenta de que Rarity tenía razón. Lo que antes parecía una habitación desordenada pero familiar, ahora se veía como un lugar completamente extraño y ajeno.
+Del otro lado de la habitación, Applejack golpeó el piso con su casco y ladeó la cabeza, desconcertada. "Extraño..."
 
-Intentando mantener la calma, Applejack habló.
+En medio de los crecientes murmullos del grupo, Rainbow Dash tomó vuelo, llamando la atención de todas.
 
-"Bien, entonces... solo tenemos un problema de plásticos... ¿no?" preguntó, esperando la reacción del grupo. Sin embargo, las expresiones mixtas de sus amigas no mostraban mucha conformidad con su conclusión.
+"Bien, entonces, tenemos un problema de plásticos, ¿cierto? ¡Perfecto! ... ¿Qué tal si lo dejamos para después y nos concentramos en algo más importante? Algo como buscar, no sé... ¡a una amiga perdida!" exclamó, con una expresión de suma gravedad.
 
 Fue entonces cuando otro grito sacudió la habitación.
 
-"¡¡Aaaaaaaahhhhhh!!"
+"¡Aaaaaahhh!"
 
 Pinkie Pie, con el rostro pálido y la mirada congelada, dejó escapar el alarido.
 
-"Por favor, si se trata de que mi corte de melena se ve diferente, será mejor que no lo digas, Pinkie," exclamó Rainbow Dash de inmediato, con una expresión de obvio malestar.
+"Por favor, si se trata de que mi corte de melena se ve diferente, será mejor que no lo digas, Pinkie," exclamó Rainbow Dash de inmediato, visiblemente molesta.
 
 Pero Pinkie Pie no respondió. Su mirada seguía clavada en la dirección de Rainbow Dash.
 
@@ -436,6 +428,6 @@ Las demás hicieron lo mismo... y también se congelaron.
 
 A varios pasos detrás de Rainbow Dash, más allá del sofá, una escalinata llevaba al segundo piso de lo que parecía ser la vieja casa de su amiga princesa.
 
-Pero, a mitad de trayecto, oculto entre las sombras de la escalera, una figura los observaba en silencio.
+Pero, a mitad de trayecto, oculto entre las sombras de la escalera, alguien las observaba en silencio.
 
 Badwhiz Starheart, enemigo declarado de las Mane Six, estaba allí. Y las desprevenidas amigas de Twilight acababan de notar su presencia...
