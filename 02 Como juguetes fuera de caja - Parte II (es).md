@@ -430,4 +430,4 @@ A varios pasos detrás de Rainbow Dash, más allá del sofá, una escalinata lle
 
 Pero, a mitad de trayecto, oculto entre las sombras de la escalera, alguien las observaba en silencio.
 
-Badwhiz Starheart, enemigo declarado de las 
+Badwhiz Starheart, enemigo declarado de las Mane Six, estaba allí...
