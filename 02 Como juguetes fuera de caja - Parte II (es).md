@@ -368,15 +368,15 @@ Lo que también siguió su camino fue la lengua de Pinkie Pie, que continuó: ".
 
 Sorprendidas y angustiadas, pero no desesperadas, las amigas de Twilight se miraron entre sí, sin saber qué decir. Pronto, todas comenzaron a buscarla por la habitación.
 
-Pero no había ninguna señal de su gran amiga.
+Pero no había ninguna señal de su querida amiga.
 
 "¡¿Cómo es que nadie lo notó antes?!" exclamó Rainbow Dash, frustrada, mientras revisaba entre los libreros y los armarios caídos.
 
-"Lo siento, fue mi error. Pensé que aún estábamos en su casa. En ese entonces, nosotras dormíamos abajo y ella, en ocasiones, en el..." Applejack movió un sofá mientras intentaba justificarse, pero se interrumpió cuando otra voz irrumpió en la habitación.
+"Lo siento, fue mi error. Pensé que aún estábamos en su casa. En ese entonces, nosotras dormíamos abajo y ella, en ocasiones, en el..." Applejack movió un sofá mientras intentaba justificarse, pero se interrumpió cuando un grito desgarrador sacudió la habitación.
 
 "¡Aaaaaahhh!"
 
-Un grito desgarrador resonó de repente. De inmediato, todas dejaron lo que estaban haciendo y se giraron hacia la poni que lo había lanzado.
+De inmediato, todas dejaron lo que estaban haciendo y se giraron hacia la poni que lo había lanzado.
 
 Rarity, con el rostro descompuesto por el horror, retrocedía temblorosa, incapaz de apartar la mirada del sofá en el que había estado recostada.
 
@@ -388,13 +388,13 @@ Sin entender del todo qué pasaba, Applejack se acercó a la asustada unicornio.
 
 Confundida, Applejack miró el sofá al que su amiga señalaba con los cascos temblorosos.
 
-"Esto es... un sofá," dijo lentamente.
+"Esto es... un sofá", dijo lentamente.
 
 Pero para Rarity, cuyos ojos estaban entrenados para notar detalles imperceptibles para otros, aquel sofá era algo mucho peor...
 
 "Es... ¡de plástico!" gritó entre lágrimas, sin ocultar su horror ni su dramatismo exagerado.
 
-Applejack reprimió el impulso de desplomarse de lado y, en su lugar, simplemente respondió: "Plástico... ¿algo más?"
+Applejack reprimió el impulso de desplomarse de lado y, en su lugar, indiferente, simplemente respondió: "Plástico... ¿Algo más?"
 
 "¡Por supuesto que hay más! ¡Las paredes son de plástico! ¡Las luces son de plástico! ¡Incluso los libros son de plástico! ¡Todo es de plaaásticooo!" gritó Rarity, desconsolada, apoyándose en Fluttershy para no desmayarse.
 
@@ -416,7 +416,7 @@ Fue entonces cuando otro grito sacudió la habitación.
 
 Pinkie Pie, con el rostro pálido y la mirada congelada, dejó escapar el alarido.
 
-"Por favor, si se trata de que mi corte de melena se ve diferente, será mejor que no lo digas, Pinkie," exclamó Rainbow Dash de inmediato, visiblemente molesta.
+"Por favor, si se trata de que mi corte de melena se ve diferente, será mejor que no lo digas, Pinkie", exclamó Rainbow Dash de inmediato, visiblemente molesta.
 
 Pero Pinkie Pie no respondió. Su mirada seguía clavada en la dirección de Rainbow Dash.
 
@@ -430,4 +430,4 @@ A varios pasos detrás de Rainbow Dash, más allá del sofá, una escalinata lle
 
 Pero, a mitad de trayecto, oculto entre las sombras de la escalera, alguien las observaba en silencio.
 
-Badwhiz Starheart, enemigo declarado de las Mane Six, estaba allí. Y las desprevenidas amigas de Twilight acababan de notar su presencia...
+Badwhiz Starheart, enemigo declarado de las 
