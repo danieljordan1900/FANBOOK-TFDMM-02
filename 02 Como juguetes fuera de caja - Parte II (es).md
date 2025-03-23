@@ -260,7 +260,7 @@ Al notar las expresiones graves de sus amigas, parpadeó por unos instantes y, t
 
 Envuelta en una densa noche, un grito constante surgía desde el interior de la casa-árbol de Twilight.
 
-"¡AAAAAAAAAAAAAAAAAAAAAAAA!"
+"¡¡Aaaaaaaahhhhhh!!"
 
 "¡No grites tan fuerte, Pinkie! ¡No estás ayudando!" se quejó Applejack, molesta. A su lado, Rainbow Dash lucía una expresión igual. Ambas avanzaban con cuidado entre el desorden de la habitación, llevando sobre sus lomos el cuerpo parcialmente vendado y enyesado de su amiga rosada.
 
@@ -270,7 +270,7 @@ Applejack rodó los ojos.
 
 Habían pasado varios minutos desde que ella despertara a Rainbow Dash y al resto de sus amigas. Y, si bien al principio se sintió feliz de reencontrarse con ellas, aquella emoción no perduró mucho debido a lo que ocurrió después.
 
-"¡AAAAAAAAAAAAAAAAAAAAAAAA!" El grito seguía resonando en la habitación.
+"¡¡Aaaaaaaahhhhhh!!" El grito seguía resonando en la habitación.
 
 El llanto constante de Pinkie era ensordecedor. A esas alturas, los tímpanos de Applejack comenzaban a dolerle, además de la culpa que pesaba sobre ella por sus decisiones previas...
 
@@ -380,7 +380,7 @@ Pero no había ninguna señal de su gran amiga.
 
 "Lo siento, fue mi error. Yo pensé que aún estábamos en su casa. En ese entonces nosotras dormíamos abajo y ella, en ocasiones, en el..." respondió Applejack, intentando justificarse mientras movía un sofá. Pero, a mitad de la revelación que tomaba forma en sus palabras, otra voz la interrumpió.
 
-"¡AAAAAAAAAAAAAAAAAAAAAAAA!"
+"¡¡Aaaaaaaahhhhhh!!"
 
 De pronto, un grito desgarrador resonó en la habitación. De inmediato, todas dejaron lo que estaban haciendo y se volvieron hacia la poni que lo había lanzado.
 
@@ -420,7 +420,7 @@ Intentando mantener la calma, Applejack habló.
 
 Fue entonces cuando otro grito sacudió la habitación.
 
-"¡AAAAAAAAAAAAAAAAAAAAAAAA!"
+"¡¡Aaaaaaaahhhhhh!!"
 
 Pinkie Pie, con el rostro pálido y la mirada congelada, dejó escapar el alarido.
 
