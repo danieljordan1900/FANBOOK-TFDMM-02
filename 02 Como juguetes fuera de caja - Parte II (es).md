@@ -214,7 +214,7 @@ Rainbow Dash parpadeó, confundida. Para ella, apenas había despertado de un su
 
 "¿Estamos a salvo...? Eso suena bien, ¿no?" respondio Rainbow Dash sin saber que decir, cada vez más confundida y preocupada por el extraño comportamiento de Applejack.
 
-"¡Sí! ¡Eso está muy bien!" respondió Applejack cuyas emociones no parecian amainar un poco. 
+"¡Sí! ¡Eso está muy bien!"
 
 "Genial... y... ¿dónde estamos a salvo, exactamente?" preguntó Rainbow Dash, barriendo la habitación con la mirada.
 
