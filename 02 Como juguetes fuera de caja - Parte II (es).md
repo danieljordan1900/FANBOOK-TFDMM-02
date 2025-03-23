@@ -12,13 +12,13 @@ La pegaso, aunque su velocidad se veía reducida por el cansancio, no se desanim
 
 Badwhiz siguió lanzando más truenos, explosiones azotaron el lugar.
 
-Una tras otra, las conflagraciones estallaban, no hubo dialogos entre ellos, ni pausas en sus movimiento.
+Una tras otra, las conflagraciones estallaban. No hubo diálogos entre ellos, ni pausas en sus movimientos...
 
 La batalla sin cuartel pronto se convirtio en un duelo de resistencia.
 
 Dando todo de si, Rainbow Dash sentía su cuerpo desfallecer. Cada fibra de sus músculos le gritaba que se detuviera, pero ella se negó a hacerlo. Podía escuchar sus huesos chocar y ver sus alas torcerse en el aire, obligándola a desviarse de su trayectoria.
 
-Pero no se detuvo. No podía hacerlo.
+Pero no se detuvo; no podía hacerlo
 
 Fluttershy, Applejack, Twilight... todas.
 
@@ -182,7 +182,7 @@ Ahora sabía qué hacer.
 
 Alzando su casco, en un movimiento certero, golpeó con fuerza la cabeza de Rainbow Dash.
 
-La pegaso arcoíris recibió de lleno el cocacho, pero no cayó al suelo. Permaneció en pie, rígida, temblando como un viejo artefacto que reiniciaba sus funciones tras un largo tiempo de inactividad.
+La pegaso arcoíris recibió de lleno el golpe, pero no cayó al suelo... Permaneció en pie, rígida, temblando como un viejo artefacto que reiniciaba sus funciones tras un largo tiempo de inactividad.
 
 Applejack la observó con ansiedad.
 
@@ -206,7 +206,7 @@ Una sonrisa iluminó el rostro de Applejack. Luego, sin poder contenerse, estall
 
 Su risa resonó en toda la habitación, desbordante, incontenible. Dominada por la pura alegría del reencuentro, no dudó en saltar sobre su amiga y abrazarla con todas sus fuerzas.
 
-"¡Ey, ey, Applejack! ¡Qué haces? ¡No aprietes tan fuerte! ¡Oye, espera...! ¿Estás llorando?"
+"¡Ey, ey, Applejack! ¡Qué haces? ¡No aprietes tan fuerte! ¡Oye, espera!... ¿Estás llorando?"
 
 Rainbow Dash parpadeó, confundida. Para ella, apenas había despertado de un sueño salvaje y su memoria seguía borrosa.
 
@@ -348,7 +348,7 @@ La respuesta de la pegaso no tardó en llegar.
 
 "Ahh, lo siento, Rainbow. Tal vez no me expliqué bien antes, pero... no esquives la pregunta. ¿Cómo te fue?"
 
-Rainbow Dash, que seguía en el aire, se quedó en silencio. Sin saber qué responder, descendió al suelo, se sentó y, agachando la cabeza, respondió con un tono abatido:
+Rainbow Dash, que seguía en el aire, se quedó en silencio. Sin saber qué responder, lentamente descendió al suelo, se sentó, agacho la cabeza y, tras un tiempo que parecia detenerse, respondió con un tono abatido:
 
 "Perdí..."
 
@@ -428,14 +428,14 @@ Pinkie Pie, con el rostro pálido y la mirada congelada, dejó escapar el alarid
 
 Pero Pinkie Pie no respondió. Su mirada seguía clavada en la dirección de Rainbow Dash.
 
-"¿Qué sucede, Pinkie? ¿Qué estás mirando...?" preguntó Applejack, notando la expresión petrificada de su amiga y girándose en la misma dirección.
+"¿Pinkie? ¿Qué estás mirando...?" preguntó Applejack, notando la expresión petrificada de su amiga y girándose en la misma dirección.
 
-Applejack se congeló al instante.
+Applejack se quedó inmóvil.
 
-Las demás hicieron lo mismo al ver lo que ella veía.
+Las demás hicieron lo mismo... y también se congelaron.
 
-Varios pasos detrás de Rainbow Dash, más allá del sofá, una escalinata llevaba al segundo piso de lo que parecía la vieja casa de Twilight Sparkle.
+A varios pasos detrás de Rainbow Dash, más allá del sofá, una escalinata llevaba al segundo piso de lo que parecía ser la vieja casa de su amiga princesa.
 
-Pero, a mitad de trayecto... oculto entre las sombras de la escalera, se encontraba una figura.
+Pero, a mitad de trayecto, oculto entre las sombras de la escalera, una figura los observaba en silencio.
 
-Badwhiz Starheart, enemigo declarado de las Mane Six, observaba en silencio a las amigas de Twilight...
+Badwhiz Starheart, enemigo declarado de las Mane Six, estaba allí. Y las desprevenidas amigas de Twilight acababan de notar su presencia...
