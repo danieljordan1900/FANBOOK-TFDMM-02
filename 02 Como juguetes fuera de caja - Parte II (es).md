@@ -216,7 +216,7 @@ Rainbow Dash parpadeó, confundida. Para ella, apenas había despertado de un su
 
 "¡Sí! ¡Eso está muy bien!"
 
-"Genial... y... ¿dónde estamos a salvo, exactamente?" preguntó Rainbow Dash, barriendo la habitación con la mirada.
+"Genial... y... ¿dónde estamos a salvo, exactamente?" preguntó la pegaso, barriendo la habitación con la mirada.
 
 Applejack abrió la boca, pero ninguna respuesta fácil le vino a la mente. Su alegría se disipó de inmediato. Se apartó un poco, su expresión nublándose al recordar la inquietante situación en la que se encontraban.
 
@@ -278,7 +278,7 @@ Fue un terrible error.
 
 En cuanto su boca quedó libre, en lugar de palabras de alivio o agradecimiento, Pinkie Pie soltó un grito tan estridente y prolongado que todas se cubrieron los oídos de inmediato. La habitación entera vibró con su chillido. Desesperadas, intentaron calmarla para averiguar si estaba herida o confundida, pero, para sorpresa de todas, Pinkie Pie respondió con claridad: estaba completamente sana y consciente de la situación. Simplemente no había podido hablar antes debido al yeso en su boca. Más aún, reveló que había sido la segunda en despertar, justo después de que Applejack encendiera las luces de la habitación y mucho antes que Rainbow Dash.
 
-Aun así, a pesar de no presentar heridas ni confusión aparente, Pinkie Pie seguía gritando en medio de sus propias palabras. Cuando sus amigas, exasperadas, le preguntaron por qué lo hacía, su respuesta fue simple:
+Aun así, a pesar de mostrarse sana, Pinkie Pie seguía gritando en medio de sus propias palabras. Cuando sus amigas, exasperadas, le preguntaron por qué lo hacía, su respuesta fue simple:
 
 "¡No lo sé!"
 
@@ -306,9 +306,9 @@ Sin embargo, la realidad pronto se hizo presente: no se oía ni un solo sonido b
 
 La conciencia del agravio sumada a la falta de señales de vida de Pinkie se reflejó en todas con una mueca de nerviosismo. La angustia comenzaba a invadirlas cuando, de pronto, un sonido rompió el silencio.
 
-Como si un globo se inflara de golpe, una figura rosa emergió de entre la pila de yeso y vendas rotas.
+Como si un globo se inflara de golpe, una figura rosa emergió de entre la pila de despojos en el suelo.
 
-"¡Soy libreeeee!" exclamó Pinkie Pie, toda sonrisas y desbordando la alegría que tanto la caracterizaba... solo para desplomarse de cara al suelo segundos después.
+"¡Soy libreeeee!" exclamó Pinkie Pie, toda sonrisas y desbordando la alegría que tanto la caracterizaba... solo para desplomarse de cara al piso segundos después.
 
 "Estoy bien..." murmuró sin moverse, mientras Fluttershy corría a atenderla.
 
@@ -430,4 +430,4 @@ A varios pasos detrás de Rainbow Dash, más allá del sofá, una escalinata lle
 
 Pero, a mitad de trayecto, oculto entre las sombras de la escalera, alguien las observaba en silencio.
 
-Badwhiz Starheart, enemigo declarado de las Mane Six, estaba allí...
+Badwhiz Starheart, enemigo declarado de las portadoras de los elementos de la armonía, estaba allí...
