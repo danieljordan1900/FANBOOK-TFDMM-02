@@ -80,3 +80,17 @@ Mundo 2:
 ** - "Discord and Magi"
 
 Epilogo: ¿No es un prologo?
+
+Explicacion del primer mundo:
+
+    ->  Como juguetes fuera de caja. : Las manesix se encuentran en un lugar desconocido, hay una breve aparicion de Badwhiz quien desaparece sin explicacion, esto añade confusión a la situación.
+    ->  Descubriendo un mundo caótico. : Las manesix exploran el lugar donde estan buscando a Twilight, tras investigar un poco, descubren un moustruo rojo y blanco, al descubrir que persigue un poni morado, terminan enfrentandolo y descubriendo una mini-twilight.
+    ->  Perdidas aquí y allá. : Las manesix intentan entender porque Twilight es un potra. Al encontrar su diario, poco a poco empiezan a entender donde estan y lo que paso.
+
+Entre habitaciones encantadoras.
+
+Y pistas engañosas...
+
+Hasta que finalmente lo descubren.
+Están atrapadas.
+Bajo una tierra de sensibilidad.
