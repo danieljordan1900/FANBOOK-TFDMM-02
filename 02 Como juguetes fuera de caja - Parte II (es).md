@@ -130,25 +130,29 @@ Y así, desapareció de aquel mundo...
 
 [---]
 
+Mucho después... en el presente...
+
+[---]
+
 "¡Rainbow Dash! ¡Rainbow Dash!"
 
-En medio de la habitación desordenada, Applejack sostenía con fuerza a su amiga, agitándola en un intento desesperado por hacerla despertar.
+En medio de una habitación desordenada, Applejack sostenía con fuerza a Rainbow Dash, agitándola en un intento desesperado por hacerla despertar.
 
-La pegaso, con el rostro vendado, apenas mostraba signos de vida. Entreabría su único ojo visible por instantes, solo para cerrarlo de nuevo casi de inmediato.
+"¡Rainbow Dash! ¡Despierta!" continuó llamándola sin obtener respuesta. Su amiga, inconsciente, yacía con el rostro vendado, sin mostrar señales de vida. De vez en cuando, entreabría su único ojo visible y dejaba escapar balbuceos ininteligibles mientras su boca se torcía en una mueca desconcertante.
 
-"¡Rainbow Dash! ¡Despierta!"
+La escena se prolongó hasta que, de repente, aquel único ojo visible se abrió de golpe.
 
-Entonces, en medio del forcejeo, ese mismo ojo dormido se abrió de golpe.
+"¡Rainbow Dash, por fin despertaste, gracias a... Ughhh!" exclamó Applejack, apenas sintiendo alivio antes de que una inesperada patada la golpeara en el estómago, enviándola de espaldas al suelo.
 
-"¡Rainbow Dash, por fin despertaste, gracias a... Ughhh!" exclamo Applejack, apenas sintiendo el alivio de recuperar a su amiga, cuando una inesperada patada la golpeó en el estómago, enviándola de espaldas al suelo.
-
-Rainbow Dash, que acababa de patear a Applejack, se hallaba de pie, en un estado de euforia palpable, miraba en todas direcciones como un animal acorralado. Sin decir palabra, comenzó a morder las vendas de su cuerpo y a agitar sus alas como un colibrí atrapado en una telaraña asfixiante.
+Rainbow Dash, que acababa de patearla, se hallaba de pie, despierta... o más bien, atrapada en un estado de sonambulismo violento. Dominada por una euforia incontrolable, la pegaso no dejaba de mirar en todas direcciones, como un animal acorralado. Sin pronunciar palabra, comenzó a morder las vendas de su cuerpo y a agitar sus alas con desesperación, como un colibrí atrapado en una telaraña asfixiante.
 
 Applejack, levantándose del piso con dificultad, observó consternada cómo su amiga salía disparada en todas direcciones, golpeando muebles y paredes, lastimándose en el proceso y chocando contra sus otras amigas, que también estaban despertando.
 
 "¡Rainbow Dash, no! ¡Espera! ¡Detente, Rainbow!" gritó, sin ser escuchada.
 
-Rainbow Dash estaba completamente fuera de control, y Applejack era la única que podía hacer algo al respecto.
+Rainbow Dash estaba completamente fuera de control, y Applejack, la unica libre en ese momento, tambien era la única que podía hacer algo al respecto.
+
+Debía detenerla.
 
 Con esa apremiante misión en mente, la poni granjera escaneó su alrededor en busca de algo que pudiera ayudarla. De inmediato, fijó la mirada en la larga venda que aún colgaba del cuello de Rainbow Dash.
 
