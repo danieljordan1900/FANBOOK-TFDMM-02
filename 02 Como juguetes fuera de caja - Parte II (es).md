@@ -50,9 +50,9 @@ No sentía sus alas. Ni siquiera podía extenderlas. Pero no importaba. Solo nec
 
 Con un esfuerzo insoportable, Rainbow Dash se incorporó, ignorando el dolor lacerante en su cuerpo. Concentró lo poco que le quedaba de energía en sus extremidades y avanzó, acelerando con cada paso.
 
-Podía escuchar con claridad el crujido de sus huesos y el tirón de sus músculos al romperse, pero eso no la detenía.
+Podía escuchar con claridad el tronar de su agotamiento en su interior, pero eso no la detenía.
 
-Su oponente, al notar su avance, la miró con los ojos abiertos de par en par.
+Su oponente, aún aturdido, al notar su avance, la miró con los ojos abiertos de par en par.
 
 "¡Un poco más! ¡Haaaaa!"
 
