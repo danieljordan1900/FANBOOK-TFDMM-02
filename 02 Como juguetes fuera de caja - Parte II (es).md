@@ -150,7 +150,7 @@ Applejack, levantándose del piso con dificultad, observó consternada cómo su 
 
 "¡Rainbow Dash, no! ¡Espera! ¡Detente, Rainbow!" gritó, sin ser escuchada.
 
-Rainbow Dash estaba completamente fuera de control, y Applejack, la unica libre en ese momento, tambien era la única que podía hacer algo al respecto.
+Rainbow Dash estaba completamente fuera de control, y ella, la unica libre en ese momento, tambien era la única que podía hacer algo al respecto.
 
 Debía detenerla.
 
