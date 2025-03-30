@@ -412,7 +412,7 @@ Del otro lado de la habitación, Applejack golpeó el piso con su casco y ladeó
 
 En medio de los crecientes murmullos del grupo, Rainbow Dash tomó vuelo, llamando la atención de todas.
 
-"Bien, entonces, tenemos un problema de plásticos, ¿cierto? ¡Perfecto! ... ¿Qué tal si lo dejamos para después y nos concentramos en algo más importante? Algo como buscar, no sé... ¡a una amiga perdida!" exclamó, con una expresión de suma gravedad.
+"Bien, entonces, tenemos un problema de plásticos, ¿cierto? ¡Perfecto! ... ¿Qué tal si lo dejamos para después y nos concentramos en algo más importante? Algo como, no sé... ¡buscar a una amiga perdida!" exclamó, con una expresión de suma gravedad.
 
 Fue entonces cuando otro grito sacudió la habitación.
 
