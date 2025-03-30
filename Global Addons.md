@@ -94,3 +94,6 @@ Y pistas engañosas...
 Hasta que finalmente lo descubren.
 Están atrapadas.
 Bajo una tierra de sensibilidad.
+
+
+usar para los episodios relleno, situaciones que sean alegoridas a peliculas de los 80' y 90'!!!
