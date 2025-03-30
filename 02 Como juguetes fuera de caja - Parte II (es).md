@@ -400,7 +400,7 @@ Pero para Rarity, cuyos ojos estaban entrenados para notar detalles imperceptibl
 
 Applejack reprimió el impulso de desplomarse de lado y, en su lugar, indiferente, simplemente respondió: "Plástico... ¿Algo más?"
 
-"¡Por supuesto que hay más! ¡Las paredes son de plástico! ¡Las luces son de plástico! ¡Incluso los libros son de plástico! ¡Todo es de plaaásticooo!" gritó Rarity, desconsolada, apoyándose en Fluttershy para no desmayarse.
+"¡Por supuesto que hay más!" reprendio de inmediato "¡Las paredes son de plástico! ¡Las luces son de plástico! ¡Incluso los libros son de plástico! ¡Todo es de plaaásticooo!" termino de decir Rarity, casi en un grito, desconsolada, apoyándose en Fluttershy para no desmayarse.
 
 Extrañadas, las demás observaron con más atención a su alrededor. Lo que antes parecía una habitación desordenada pero familiar, ahora se veía como un lugar completamente extraño y ajeno.
 
