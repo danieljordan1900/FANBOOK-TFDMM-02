@@ -290,7 +290,7 @@ Así transcurrieron los minutos hasta el presente, sin una explicación clara y 
 
 "¡Por Celestia!¡¿Alguien podría, por favor, CALLARLA DE UNA BUENA VEZ?!" gritó Rarity desde el sofá, con una expresión de pura frustración mientras su migraña se intensificaba.
 
-"¡Pinkie, basta! ¡Esto no es divertido!" exclamó Applejack con voz agria, sintiendo también un dolor punzante en los oídos. En un descuido, dejó caer a su amiga enyesada al suelo con un sonoro golpe.
+"¡Pinkie, basta! ¡Esto no es divertido!" exclamó Applejack con voz agria, sintiendo también un dolor punzante en los oídos. Sin cuidado, dejó caer a su amiga enyesada al suelo con un sonoro golpe.
 
 "¡Aaaaaaaa! Lo siento, Applejack... pero... pero... ¡Ugggggg, no puedo evitarlo! ¡Aaaaaaaaaaaa!" La voz de Pinkie Pie, aunque teñida de culpa, dejaba claro que no estaba jugando. En verdad era incapaz de dejar de gritar, incluso después de que Rainbow Dash intentara taparle la boca con un calcetín improvisado que encontró por ahí. No funcionó; el intento solo la hizo gritar aún más fuerte.
 
