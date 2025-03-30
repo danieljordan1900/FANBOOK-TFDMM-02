@@ -83,17 +83,17 @@ Epilogo: ¿No es un prologo?
 
 Explicacion del primer mundo:
 
-    ->  Como juguetes fuera de caja. : Las manesix se encuentran en un lugar desconocido, hay una breve aparicion de Badwhiz quien desaparece sin explicacion, esto añade confusión a la situación.
-    ->  Descubriendo un mundo caótico. : Las manesix exploran el lugar donde estan buscando a Twilight, tras investigar un poco, descubren un moustruo rojo y blanco, al descubrir que persigue un poni morado, terminan enfrentandolo y descubriendo una mini-twilight.
-    ->  Perdidas aquí y allá. : Las manesix intentan entender porque Twilight es un potra. Al encontrar su diario, poco a poco empiezan a entender donde estan y lo que paso.
+    ->  1. Como juguetes fuera de caja. : Las manesix se encuentran en un lugar desconocido, hay una breve aparicion de Badwhiz quien desaparece sin explicacion, esto añade confusión a la situación.
+    ->  2. Descubriendo un mundo caótico. : Las manesix exploran el lugar donde estan buscando a Twilight, tras investigar un poco, descubren un moustruo rojo y blanco, al descubrir que persigue un poni morado, terminan enfrentandolo y descubriendo una mini-twilight.
+    ->  3. Perdidas aquí y allá. : Las manesix intentan entender porque Twilight es un potra. Al encontrar su diario, poco a poco empiezan a entender donde estan y el misterio de las habitaciones en donde estan.
 
-Entre habitaciones encantadoras.
+    1. Entre habitaciones encantadoras.
 
-    -> Jurasic Mall : personaje principal sera Applejack, secundario sera Pinkie Pie -> alimentos
-    -> Titanic Noir : personaje principal sera Rarity, secundario sera Fluttershy -> objetos de limpieza 
-    -> Pitch White : personaje principal sera Rainbow Dash, secundario sera Applejack -> medicina
-    -> Capibaraiser : personaje principal sera Pinkie Pie, secundario sera Rarity -> objetos de belleza
-    -> Tron Show : personaje principal sera Fluttershy, secundario sera Rainbow Dash -> objetos de entretenimiento [dash es el objeto de entretenimiento de los personajes de un video juego] 
+    -> 4.1 Jurasic Mall : personaje principal sera Applejack, secundario sera Pinkie Pie -> alimentos [persecucion]
+    -> 4.2 Titanic Noir : personaje principal sera Rarity, secundario sera Fluttershy -> objetos de limpieza [relax en el mar]
+    -> 4.3 Pitch White : personaje principal sera Rainbow Dash, secundario sera Applejack -> medicina [batalla en el desierto]
+    -> 4.4 Capibaraiser : personaje principal sera Pinkie Pie, secundario sera Rarity -> objetos de belleza [objeto maldito]
+    -> 4.5 Tron Show : personaje principal sera Fluttershy, secundario sera Rainbow Dash -> objetos de entretenimiento [dash es el objeto de entretenimiento de los personajes de un video juego] 
 
 Y pistas engañosas...
 
