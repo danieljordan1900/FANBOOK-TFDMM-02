@@ -89,6 +89,12 @@ Explicacion del primer mundo:
 
 Entre habitaciones encantadoras.
 
+    -> Jurasic Mall : personaje principal sera Applejack, secundario sera Pinkie Pie -> alimentos
+    -> Titanic Noir : personaje principal sera Rarity, secundario sera Fluttershy -> objetos de limpieza 
+    -> Pitch White : personaje principal sera Rainbow Dash, secundario sera Applejack -> medicina
+    -> Capibaraiser : personaje principal sera Pinkie Pie, secundario sera Rarity -> objetos de belleza
+    -> Tron Show : personaje principal sera Fluttershy, secundario sera Rainbow Dash -> objetos de entretenimiento [dash es el objeto de entretenimiento de los personajes de un video juego] 
+
 Y pistas engañosas...
 
 Hasta que finalmente lo descubren.
