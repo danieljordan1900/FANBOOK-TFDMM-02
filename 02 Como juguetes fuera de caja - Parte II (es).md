@@ -402,13 +402,13 @@ Applejack reprimió el impulso de desplomarse de lado y, en su lugar, indiferent
 
 "¡Por supuesto que hay más!" reprendio de inmediato "¡Las paredes son de plástico! ¡Las luces son de plástico! ¡Incluso los libros son de plástico! ¡Todo es de plaaásticooo!" termino de decir Rarity, casi en un grito, desconsolada, apoyándose en Fluttershy para no desmayarse.
 
-Extrañadas, las demás observaron con más atención a su alrededor. Lo que antes parecía una habitación desordenada pero familiar, ahora se veía como un lugar completamente extraño y ajeno.
+Extrañadas, las demás observaron con más atención a su alrededor. Lo que antes parecía una habitación desordenada pero familiar, ahora se veía como un lugar completamente extraño y ajeno. Un lugar envuelto en un aura de misterio que apenas empezaban a entender.
 
-Sin previo aviso, Pinkie Pie tomó un libro del suelo y lamió su superficie.
+Ignorando la confusión de sus amigas. Sin previo aviso, Pinkie Pie tomó un libro del suelo y lamió su superficie.
 
 "Definitivamente es plástico..." murmuró con seriedad.
 
-Del otro lado de la habitación, Applejack golpeó el piso con su casco y ladeó la cabeza, desconcertada. "Extraño..."
+Applejack, por su lado, golpeó el piso con su casco y ladeó la cabeza, desconcertada. "Extraño..."
 
 En medio de los crecientes murmullos del grupo, Rainbow Dash tomó vuelo, llamando la atención de todas.
 
@@ -418,7 +418,7 @@ Fue entonces cuando otro grito sacudió la habitación.
 
 "¡Aaaaaahhh!"
 
-Pinkie Pie, con el rostro pálido y la mirada congelada, dejó escapar el alarido.
+Pinkie Pie, con el rostro pálido y la mirada congelada, habia dejado escapar el alarido.
 
 "Por favor, si se trata de que mi corte de melena se ve diferente, será mejor que no lo digas, Pinkie", exclamó Rainbow Dash de inmediato, visiblemente molesta.
 
