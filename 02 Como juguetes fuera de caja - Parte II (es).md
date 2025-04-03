@@ -434,4 +434,6 @@ A varios pasos detrás de Rainbow Dash, más allá del sofá, una escalinata lle
 
 Pero, a mitad de trayecto, oculto entre las sombras de la escalera, alguien las observaba en silencio.
 
+Un ordinario poni terrestre de melena rosada, sin ningun equipamiento, apenas con una manta, se encontraba solo dirigiendoles una intensa mirada.
+
 Badwhiz Starheart, enemigo declarado de las portadoras de los elementos de la armonía, estaba allí...
