@@ -30,34 +30,42 @@ Al ver su situación, rodeado y sin ninguna posibilidad de escapar, Badwhiz solt
 
 [---]
 
-"¡Crack!" El sonido de un crujido resonó por todo el cuarto cuando el cuerpo de Rainbow Dash por fin se liberó de la pared en la que había quedado incrustado tras su embestida. Sin molestarse en agradecer a Pinkie Pie, quien la había ayudado a salir de ahí, la pegaso se elevó de inmediato y, apresurada, dirigió su atención al interior de la habitación.
+"¡Crack!" El sonido seco de un crujido resonó por todo el cuarto cuando el cuerpo de Rainbow Dash finalmente se liberó de la pared en la que había quedado incrustado tras su embestida. Sin molestarse en agradecer a Pinkie Pie, quien la había ayudado a salir de ahí, la pegaso se elevó de inmediato y, con urgencia, dirigió su atención al interior de la habitación.
 
 "¡¿Dónde está?! ¡¿Dónde está?! ...¡Túuuuuuu!" gritó al encontrar a Badwhiz con la mirada y lanzándose de nuevo contra él en un ataque furioso.
 
-"¡Alto ahí, Rainbow!" exclamó Applejack, deteniéndola en el aire a escasos centímetros de completar un potente golpe en la cabeza del poni.
+"¡Alto ahí, Rainbow!" exclamó Applejack, deteniéndola en el aire a escasos centímetros de asestar un potente golpe en la cabeza del poni.
 
-"¡¿Es en serio?! ¡Dame una buena razón para no moler a golpes a este tipo en este instante!" protestó la pegaso con furia, sin cambiar su postura ni apartar su mirada de los ojos de Badwhiz.
+"¡¿Es en serio?! ¡Dame una buena razón para no moler a golpes a este tipo en este instante!" protestó la pegaso, furiosa, sin cambiar su postura ni apartar la mirada de los ojos de Badwhiz.
 
-"Necesitamos respuestas, Rainbow. No sabemos dónde estamos, tampoco qué ha pasado aquí, y mucho menos dónde está Twilight," explicó Applejack, avanzando con calma, pero sin apartar su mirada severa del poni amarrado. "Pero él sí lo sabe. ¿No es así... Vainilla?" terminó diciendo la granjera, casi escupiendo el nombre.
+"Necesitamos respuestas, Rainbow. No sabemos dónde estamos, tampoco qué ha pasado aquí, y mucho menos dónde está Twilight," explicó Applejack, avanzando con calma pero sin apartar su mirada severa del poni amarrado. "Pero él sí lo sabe. ¿No es así... Vainilla?" terminó diciendo la granjera, casi escupiendo el nombre.
 
 Badwhiz, que había estado observando la escena con una mirada fría, se limitó a asentir.
 
-Disconforme, Rainbow Dash soltó un fuerte resoplido por la nariz. Durante un momento pareció contener sus emociones, pero finalmente descendió con un golpe seco, colocándose al lado de las demás ponis.
+Disconforme, Rainbow Dash soltó un fuerte resoplido por la nariz. Por un instante pareció contener sus emociones, pero finalmente descendió con un golpe seco, colocándose al lado de las demás ponis.
 
-"Y bien..." comenzó Applejack. "¿Vas a confesar como un poni educado o prefieres hacerlo al modo antiguo?"
+"Y bien..." comenzó Applejack. "¿Vas a confesar como un poni educado o prefieres hacerlo a la antigua?"
 
 Hasta ese momento, su voz se había mantenido neutra, pero ahora un tono agresivo comenzaba a filtrarse en sus palabras. Era evidente la intensa ira que intentaba contener.
 
-Badwhiz, en frente suyo, pareció percibirlo también. Su expresión severa se desmoronó lentamente, dando paso a un rostro cargado de arrepentimiento.
+Badwhiz, en frente suyo, pareció notarlo también. Su expresión severa se desmoronó lentamente, dando paso a un rostro cargado de arrepentimiento.
 
 Aquello tomó por sorpresa a todas, incluso a Rainbow Dash. Applejack, que estaba lo suficientemente cerca como para notar el cambio, tampoco bajó la guardia. Sin embargo, mantuvo su postura firme e impenetrable.
 
 "Badwhiz..." susurró el poni con voz tensa. "...Me llamo Badwhiz."
 
-"No quiero saber eso," respondió Applejack, tajante y sin apartar su mirada de él. "¿Dónde está Twilight?"
+"No quiero saber eso," respondió Applejack, tajante y sin apartar la mirada de él. "¿Dónde está Twilight?"
 
 Una mueca extraña se dibujó en el rostro de Badwhiz. Desvió la mirada hacia el suelo y, tras un largo silencio, murmuró:
 
 "No lo sé."
+
+El sonido abandono la habitación.
+
+""
+
+"¡NO LO SE!" grito silenciando a todas. "Ella estaba aqui, cuidandolas ... luego desaparecio. "
+
+
 
 
