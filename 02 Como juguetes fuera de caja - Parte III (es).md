@@ -86,7 +86,7 @@ O casi todas...
 
 "¡Está jugando con nosotras!" explotó Rainbow Dash. "Este es otro de sus espectáculos, Applejack. Este tipo es un..."
 
-"¡Basta, Rainbow Dash!" interrumpió Applejack con autoridad. Luego, su mirada se tornó gélida cuando se volvió hacia Badwhiz. Sin previo aviso, lo sujetó por el cuello y lo obligó a mirarla directamente a los ojos.
+"¡Basta, Rainbow Dash!" interrumpió Applejack imponiendose. Luego, su mirada se tornó gélida cuando se volvió hacia Badwhiz. Sin previo aviso, lo sujetó por el cuello y lo obligó a mirarla directamente a los ojos.
 
 Sus miradas se encontraron. Applejack se quedó inmóvil.
 
@@ -94,27 +94,65 @@ No había mentira en esos ojos marcados por la pena.
 
 Lentamente, la granjera lo soltó y dio un paso atrás, tratando de entender. Fue entonces cuando notó algo que antes había pasado por alto: vendas cubrían parte de la cabeza de Badwhiz... el mismo tipo de vendas que había visto en Rainbow Dash antes de que despertara.
 
-Atónita, una idea que hasta entonces no había considerado se instaló con fuerza en su mente.
+¿Acaso era posible? Penso. Atónita, una idea que hasta entonces no había considerado asalto su mente. 
 
-"¡Tú... nos estabas cuidando!" Su voz, aunque baja, se escuchó con claridad en medio del tenso silencio.
+"¡Tú... nos estabas cuidando!" Su voz, aunque baja, se escuchó con claridad en medio del tenso silencio. 
 
-Badwhiz, con los ojos vidriosos, asintió.
+Badwhiz, con los ojos vidriosos, asintió. Todas los demas en el cuarto contuvieron el aliento.
 
-Applejack sintió cómo el mundo a su alrededor daba vueltas. Se había hecho esa pregunta antes, pero ahora, con Badwhiz frente a ella, la duda emergió inevitablemente en su interior.
+Applejack sintió cómo el mundo a su alrededor daba vueltas. Se había hecho esa pregunta antes, pero ahora, con Badwhiz frente a ella, la duda emergió incontenible de su interior.
 
 "¿Cuánto tiempo ha pasado?" preguntó en voz alta, casi como si hablara consigo misma.
 
 Esta vez, la respuesta no tardó en llegar.
 
-"Siete meses..." respondió Badwhiz con un tono nuevamente frío. "La princesa calculó ese tiempo, pero tampoco estaba segura. Todas ustedes pasaron mucho tiempo inconscientes, igual que ella, antes de despertar."
+"Siete meses..." respondió Badwhiz con un tono nuevamente frío. "La princesa calculó ese tiempo, pero tampoco estaba segura. Todas ustedes pasaron mucho tiempo inconscientes, antes de despertar."
 
 Nadie dijo nada. Badwhiz continuó.
 
-"No sé los detalles de lo que ocurrió durante ese tiempo. Yo desperté mucho después. La princesa fue quien me encontró. No fue fácil para ella... tampoco para mí..." Su voz comenzaba a quebrarse. "Pensé que había muerto... pensé que todos habían muerto. Fue mi culpa. Yo no sabía muchas cosas sobre ustedes... lo siento mucho... realmente lo siento..."
+"No sé los detalles de lo que ocurrió durante ese tiempo. Yo desperté mucho después. La princesa fue quien me encontró. No fue fácil para ella... tampoco para mí..." Su voz comenzaba a quebrarse. "Pensé que había muerto... pensé que todos habían muerto. Fue mi culpa. Yo no sabía sobre ustedes... lo siento mucho... realmente lo siento..."
 
 Su última frase se perdió entre sollozos.
 
+Un aire sepulcral se apoderó de la habitación, desolador y amargo, unicamente interrumpido por el llanto de Badwhiz.
 
+Applejack, que solo observaba la escena inmovil, tenia los pensamientos muy lejos de ese lugar. 
+
+"Siete meses..." resonaba en su cabeza.
+
+"Ejem..." Se sobresalto al escuchar una voz detras de ella. Pronto, sin que se diera cuenta, Pinkie Pie se habia aparecido a su lado. "Perdonen por interrumpir, pero... Applejack ¿nos das un minuto? Las chicas quieren conversar de algo..." termino de decir con una sonrisa algo nerviosa.
+
+Applejack se volvio hacia atras. En una de las esquinas de la habitación, Fluttershy, Rainbow Dash y Rarity ya estaban reunidas ahi esperandola.
+
+Applejack dudo por un instante, aun desaorientada por las recientes revelaciones. Pero, finalmente, se decidió y rauda fue en direccion de sus amigas. Atras Pinkie Pie le siguio, no sin antes dejarle en la cara un pañuelo a Badwhiz.
+
+Reunidas hombro con hombre en un círculo, lo mas lejos posible de Badwhiz, el grupo de amigas recibio en silencio a Applejack y a Pinkie de inmediato.
+
+Rainbow Dash, ultima en incorporarse a la formacion, vigilente, estiro el cuello asegurandose que Badwhiz no hubiera intentado algo.
+
+El joven poni de melena rosada segui llorando en silencio, con una mirada oculta por el pañuelo en su cara.
+
+Convencida, la pegaso volvio su atencion con sus amigas y empezaron a hablar.
+
+"Y bien... alguien cree que este mintiendo?"
+
+"No" respondieron todas al unisono.
+
+"Applejack?" 
+
+"No, Rainbow Dash. No esta mintiendo" confirmo la granjera con gravedad.
+
+Rainbow Dash chasqueo la lengua. Un genuino nerviosismo se reflejaba en sus plumas. No era la unica, todas mostraban una expresion similar. Lo ultimo que Badwhiz le habia dicho pesaba sobre ellas.
+
+"Siete meses..." repitió Rarity revelando lo que todas pensaban. "¿Cómo es posible?"
+
+"No lo sé" respondio Applejack. ""
+
+"¿Fluttershy, tu que piensas?"
+
+"Tengo miedo de saber mas..." respondio en un murmullo la pegaso.
+
+Todas guardaron silencio, Fluttershy no era la unica con ese miedo.
 
 
 
