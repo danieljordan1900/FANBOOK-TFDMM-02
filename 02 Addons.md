@@ -36,6 +36,7 @@ Parte 2 - con acord
     -> Evita rimas involuntarias y redondancias si es posible.
     -> Respeta el uso de comillas dobles "" no las reemplaces.
     -> Mantén la narrativa coherente, añade transiciones si es necesario.
+    -> Los dialogos deben ser propios de los personajes.
 ]
 
 [Corrección de estilo y gramática]
