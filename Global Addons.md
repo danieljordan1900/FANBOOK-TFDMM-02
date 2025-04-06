@@ -1,8 +1,8 @@
 Bosquejo preliminar del fanfic 
 
 Atrapadas bajo una tierra de sensibilidad
-Navegando entre tres oceanos oscilantes
-Buscando el camino sobre el cielo no lineal
+Navegando entre mares derivados
+Siguiendo el viento sobre el cielo no lineal
 
 Trapped under a land of sensitivity
 Navigating between three oceans
