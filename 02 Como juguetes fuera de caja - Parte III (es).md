@@ -192,7 +192,7 @@ Entonces, un crujido, como de ollas golpeándose entre sí, resonó en medio del
 
 "¡Pinkie Pie! Este no es el momento para..." reprendió Rarity, pero justo entonces otro crujido se escuchó, esta vez proveniente de su lado. Avergonzada, la unicornio se tapó la boca con un casco, encogiéndose ante las miradas del grupo.
 
-"Entonces lo siguiente es: ¿dónde está Twilight... y la comida? ¿Algo más?", exclamó Rainbow Dash, intentando cerrar el tema y reanudar el interrogatorio a Badwhiz.
+"Entonces lo siguiente es: ¿dónde está Twilight... y la comida? ¿Algo más? A parte de todo lo que aun no sabemos", exclamó Rainbow Dash, intentando cerrar el tema y reanudar el interrogatorio a Badwhiz.
 
 Applejack, aún pensativa, desvió su mirada hacia la poni que menos había hablado. "¿Fluttershy? ¿Algo te preocupa?"
 
@@ -200,7 +200,46 @@ La pegaso, que había permanecido en silencio todo ese tiempo, alzó lentamente 
 
 "Sí..." respondió en un murmullo. "Tengo mucho miedo de saber más..."
 
-Las ponis se miraron entre sí. Fluttershy no era la única con ese temor.
+Las ponis se miraron entre sí. Quedaba bastante claro entre ellas, que Fluttershy no era la única con ese temor.
+
+[---]
+
+Badwhiz había guardado silencio durante un buen rato. Había dejado de llorar y ahora solo observaba, sin emoción, a sus captoras reunidas al otro lado de la habitación.
+
+"¿Qué estoy haciendo?" se preguntó a sí mismo, bajando la cabeza y fijando la vista en el pañuelo que Pinkie Pie le había dejado.
+
+Su vida se había vuelto tan confusa que describirla como una simple "montaña rusa" le parecía insuficiente.
+
+Atado, a merced de las amigas de la princesa, Badwhiz se preguntaba seriamente qué había hecho para terminar así.
+
+Los recuerdos no tardaron en invadirlo.
+
+Pensó en aquella primera etapa de su vida junto a su familia en Silver Hollow… una época de felicidad que terminó en desgracia.
+Luego, su despertar al final del reinado de las dos hermanas, y su  posterior entrega a la causa de los Caballeros del Orden.
+Y ahora, una vez más arrastrado por el destino, perdido en un mundo que aún le era extraño, había caído presa de los encantos de la princesa de la Amistad.
+
+"Soy tan débil... he fallado tantas veces... perdóname, abuelo", se lamentó.
+
+Para él, estaba claro: no importaba si el mundo se volvía de cabeza, si los ponis desaparecían o eran reemplazados por otras criaturas… había algo que jamás cambiaba, sin importar dónde estuviera.
+
+Nunca podría cumplir sus promesas.
+
+Nuevas lágrimas comenzaron a formarse en sus ojos.
+
+"Debo estar maldito... no hay otra razón...", murmuró con voz quebrada. "No puedo seguir así... quiero desaparecer..."
+
+Frente a él, el grupo de ponis comenzó a moverse. La reunión había terminado.
+
+"Nunca me perdonarán... pero no importa... solo tengo que contarles lo que pasó y..."
+
+Fue entonces cuando una voz llegó a sus oídos.
+
+Una voz que, tiempo atrás, jamás habría considerado familiar… y que, sin embargo, ahora lo significaba todo para él.
+
+"¿Princesa Twilight?" respondió, conmocionado, al llamado que provenía de más allá del cielo no lineal.
+
+[---]
+
 
 
 
