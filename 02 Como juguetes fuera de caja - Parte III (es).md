@@ -194,7 +194,7 @@ Entonces, un crujido, como de ollas golpeándose entre sí, resonó en medio del
 
 "Entonces lo siguiente es: ¿dónde está Twilight... y la comida? ¿Algo más? A parte de todo lo que aun no sabemos", exclamó Rainbow Dash, intentando cerrar el tema y reanudar el interrogatorio a Badwhiz.
 
-Applejack, aún pensativa, desvió su mirada hacia la poni que menos había hablado. "¿Fluttershy? ¿Algo te preocupa?"
+Applejack, aún pensativa sobre que tan blandas tendrian que ser con Badwhiz a partir de ahora, desvió su mirada hacia la poni que menos había hablado. "¿Fluttershy? ¿Algo te preocupa?"
 
 La pegaso, que había permanecido en silencio todo ese tiempo, alzó lentamente la vista. Sus ojos, apagados, mostraban una sombra de temor.
 
@@ -240,8 +240,19 @@ Una voz que, tiempo atrás, jamás habría considerado familiar… y que, sin em
 
 [---]
 
+Applejack, Rainbow Dash, Rarity, Fluttershy y Pinkie Pie se detuvieron a solo unos pasos de reuanudar el encuentro con Badwhiz. Ya habian acordado ser mas amables con el, empezando la relacion desde cero y presentarse adecuadamente al joven poni. Incluso Pinkie se habia ofrecido para ser la primera en iniciar la conversacion, en contraparte a la postura inflexiva de Rainbow Dash.
 
+No obstante, todos esos planes amicales jamas se llevarian a cabo.
 
+Ante los ojos de las sorprendidas ponis. El cuerpo de Badwhiz habia comenzado a brillar intensamente. 
+
+"¿Princesa Twilight?" se escucho su voz una ultima vez en la habitacion. Luego, en un destello de luz, desapareció.
+
+Ante el incredulo grupo de amigas, las cuerdas que habian mantenido prisionero al reformado villano se desmoronaron en el aire, desparramandose en el suelo sin ya ningun proposito.
+
+Nuevamente, nadie en ña habitacion reacciono.
+
+Tan inseperadamente como habia aparecido, Badwhiz habia desaparecido.
 
 
 
