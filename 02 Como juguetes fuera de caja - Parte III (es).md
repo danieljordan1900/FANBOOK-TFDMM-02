@@ -146,7 +146,7 @@ El joven poni de melena rosada seguía llorando en silencio, con la mirada ocult
 
 Convencida de que no representaba una amenaza inmediata, la pegaso volvió su atención al grupo, y entonces comenzaron a hablar.
 
-"Y bien... ¿alguien cree que esté mintiendo?"
+"Y bien, dejando de lado la locura en donde estamos ¿alguien cree que esté mintiendo?"
 
 "No", respondieron todas al unísono.
 
@@ -240,7 +240,9 @@ Una voz que, tiempo atrás, jamás habría considerado familiar… y que, sin em
 
 [---]
 
-Applejack, Rainbow Dash, Rarity, Fluttershy y Pinkie Pie se detuvieron a solo unos pasos de reuanudar el encuentro con Badwhiz. Ya habian acordado ser mas amables con el, empezando la relacion desde cero y presentarse adecuadamente al joven poni. Incluso Pinkie se habia ofrecido para ser la primera en iniciar la conversacion, en contraparte a la postura inflexiva de Rainbow Dash.
+Fue demasiado repentino.
+
+Applejack, Rainbow Dash, Rarity, Fluttershy y Pinkie Pie se habian detenido a solo unos pasos de reuanudar el encuentro con Badwhiz. Ya habian acordado ser mas amables con el, empezar la relacion desde cero y presentarse adecuadamente al joven poni. Esto con el objetivo de ganarse sus confianza y asi tener mas informacion de lo que estaba pasando. En ese sentido, Pinkie se habia ofrecido para ser la primera en iniciar la conversacion, en contraparte a la postura inflexiva de Rainbow Dash.
 
 No obstante, todos esos planes amicales jamas se llevarian a cabo.
 
@@ -250,10 +252,37 @@ Ante los ojos de las sorprendidas ponis. El cuerpo de Badwhiz habia comenzado a 
 
 Ante el incredulo grupo de amigas, las cuerdas que habian mantenido prisionero al reformado villano se desmoronaron en el aire, desparramandose en el suelo sin ya ningun proposito.
 
-Nuevamente, nadie en ña habitacion reacciono.
+Nuevamente, nadie en la habitacion reacciono.
 
 Tan inseperadamente como habia aparecido, Badwhiz habia desaparecido.
 
+Applejack, aun conmocionada, fue la primera en moverse. Acercandose a la pila de cuerdas en el suelo.
+
+Ningun rastro de Badwhiz era visible ahi...
+
+"¿Qué demonios acaba de pasar?", exclamo, sin entender.
+
+El silencio en la habitacion fue su unica respuesta.
+
+Fue entonces que, veloz, un proyectil arcoiris cruzo a su lado, acompañado de un grito ahogado cargado de ira. Era Rainbow Dash, quien furiosa volaba a toda prisa al piso de arriba de la casa de Twilight en busqueda de Badwhiz.
+
+Sin decirse palabras entre ellas, Applejack y el resto de ponis se pusieron en marcha. Contagiadas por la urgencia de su amiga, galoparon rapidamente por las escaleras del segundo piso, hasta llegar a la que deberia ser el viejo dormitorio de su amiga princesa.
+
+"¿Que rayos?" Applejack, frenando en seco junto con las demas, no pudo contener sus palabras. La que deberia ser una sencilla habitacion  propia una poni humilde como Twilight, era en cambio un lugar completamente opuesto a lo que uno podria esperar de ella.
+
+Amplia y sofisticada, iluminada por una luz tenue, llena de muebles y decoracion que armonizaban, con solo observar la elegante cama frente a ellas, quedaba claro que la habitacion en donde estaban se parecia mas a una suite de un hotel de lujo que el honrado dormitorio de su amiga.
+
+Y como si esa incongruencia no bastara, habian mas detalles en la habitacion que hacian que Applejack levantara una ceja incómoda.
+
+Muchos sombreros y botas propias de su armario personal. Grabados de manzanas en los muebles. Una gran cantidad de libros sobre cosechar manzanas en los libreros. Lamparas con forma de manzanas. Mazanas de plastico como decorativos. Manzanas en todo lo demas ... ¡Manzanas!
+
+Para ese momento a Applejack la cabeza le pesaba tanto ya parecia estar a punto de caerse al suelo como un manzana.
+
+"Ejem Applejack ..." llamo Pinkie Pie, frente a un retrato en la pared.
+
+Applejack, como un tractor sin conductor viro en direccion de su amiga, deteniendose y levantando la mirada para ver tambien el cuadro.
+
+"Hooo santas manzanas ..." exclamo con la boca abierta.
 
 
 
