@@ -280,7 +280,7 @@ Sombreros y botas que bien podrían haber salido de su propio armario. Grabados 
 
 Para ese momento, la cabeza de Applejack se sentía tan pesada que bien podría haberse desplomado como una fruta madura.
 
-"!Auuuhhhhh! !Applejack ven! ¡Tienes que ver esto!", llamó energica Pinkie Pie desde un extremo del cuarto, de pie frente a un retrato colgado en la pared.
+"!Ahhhhhuuu! !Applejack ven! ¡Tienes que ver esto!", llamó energica Pinkie Pie desde un extremo del cuarto, de pie frente a un retrato colgado en la pared.
 
 Applejack, como un tractor sin conductor, se giró en dirección a su amiga. Se detuvo, levantó la mirada… y la vio.
 
