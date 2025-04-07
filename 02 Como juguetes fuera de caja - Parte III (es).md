@@ -280,7 +280,7 @@ Sombreros y botas que bien podrían haber salido de su propio armario. Grabados 
 
 Para ese momento, la cabeza de Applejack se sentía tan pesada que bien podría haberse desplomado como una fruta madura.
 
-"Ejem… Applejack...", la llamó Pinkie Pie desde un rincón, de pie frente a un retrato colgado en la pared.
+"!Auuuhhhhh! !Applejack ven! ¡Tienes que ver esto!", llamó energica Pinkie Pie desde un extremo del cuarto, de pie frente a un retrato colgado en la pared.
 
 Applejack, como un tractor sin conductor, se giró en dirección a su amiga. Se detuvo, levantó la mirada… y la vio.
 
@@ -294,7 +294,7 @@ El poni retratado tenía una melena amarilla, vibrante, y un pelaje naranja, del
 
 Y si aquella imagen no pertenecia a Twilight, entonces solo podía tratarse de otra persona...
 
-"¿¡Princesa de las Manzanas, Lady Applejack!?", exclamó Rarity, con creciente conmoción, al leer el título dorado grabado al pie del cuadro.
+"¿¡Princesa de las Manzanas, Lady Applejack Sparkle!?", exclamó Rarity, con creciente conmoción, al leer el título dorado grabado al pie del cuadro.
 
 Aquello fue demasiado para la unicornio amante de la moda. Llevada al límite de sus emociones en aquel dia, Rarity se desmayó con una teatralidad impecable, cayendo en los cascos de Pinkie Pie, quien la acomodó con cuidado en el sofá más cercano.
 
@@ -302,7 +302,7 @@ Applejack, aún en shock, con la mirada perdida, desvió la atención hacia el b
 
 Allí, Fluttershy se acercaba con cautela a una inmóvil Rainbow Dash, que contemplaba el cielo nocturno con la cabeza en alto.
 
-Al llegar a su lado, bastó una mirada al mundo extraño que se extendía ante ellas para que la tímida pegaso comprendiera cuán profundo era el problema en el que se habían metido.
+Al llegar a su lado, bastó una mirada al mundo extraño que se extendía ante ellas para que la tímida pegaso comprendiera cuán profundo era el problema en el que se habían involucrado.
 
 Asaltada por la ansiedad, preguntó con voz baja:
 
