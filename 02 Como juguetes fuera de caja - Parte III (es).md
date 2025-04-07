@@ -242,21 +242,21 @@ Una voz que, tiempo atrás, jamás habría considerado familiar… y que, sin em
 
 Fue demasiado repentino.
 
-Applejack, Rainbow Dash, Rarity, Fluttershy y Pinkie Pie se habían detenido a solo unos pasos de reanudar el encuentro con Badwhiz. Ya habían acordado ser más amables con él, empezar la relación desde cero y presentarse adecuadamente al joven poni. Todo con el objetivo de ganarse su confianza y obtener más información sobre lo que estaba ocurriendo. En ese sentido, Pinkie se había ofrecido para ser la primera en hablar, como contraparte a la postura inflexible de Rainbow Dash.
+Applejack, Rainbow Dash, Rarity, Fluttershy y Pinkie Pie se habían detenido a solo unos pasos de reanudar el encuentro con Badwhiz. Ya habían acordado ser más amables con él, empezar la relación desde cero y presentarse adecuadamente al joven poni. Todo con el objetivo de ganarse su confianza y obtener más información sobre lo que estaba ocurriendo. En ese sentido, Pinkie se había ofrecido para iniciar la conversación, en contraste con la postura inflexible de Rainbow Dash.
 
-No obstante, esos planes amistosos jamás se llevarían a cabo.
+Sin embargo, esos planes amistosos jamás se llevarían a cabo.
 
 Ante los ojos de las sorprendidas ponis, el cuerpo de Badwhiz comenzó a brillar intensamente.
 
 "¿Princesa Twilight?", se escuchó su voz una última vez en la habitación. Luego, en un destello de luz, desapareció.
 
-Frente al incrédulo grupo de amigas, las cuerdas que habían mantenido prisionero al reformado villano se deshicieron en el aire, cayendo al suelo sin ya ningún propósito.
+Frente al incrédulo grupo de amigas, las cuerdas que lo habían mantenido prisionero se deshicieron en el aire, cayendo al suelo sin propósito alguno.
 
-Nuevamente, nadie en la habitación reaccionó.
+Una vez más, nadie reaccionó.
 
 Tan inesperadamente como había llegado, Badwhiz se había desvanecido.
 
-Applejack, aún perturbada, fue la primera en moverse, acercándose a la pila de cuerdas.
+Applejack, aún aturdida, fue la primera en moverse. Se acercó a la pila de cuerdas en el suelo.
 
 No quedaba ni rastro de Badwhiz…
 
@@ -264,58 +264,53 @@ No quedaba ni rastro de Badwhiz…
 
 El silencio en la habitación fue su única respuesta.
 
-Fue entonces que, veloz como un rayo, un proyectil arcoíris pasó junto a ella, acompañado de un grito ahogado lleno de furia. Era Rainbow Dash, quien, furiosa, voló a toda prisa escaleras arriba, en busca de Badwhiz.
+Entonces, como un relámpago, un proyectil arcoíris pasó a su lado, acompañado de un grito ahogado cargado de rabia. Era Rainbow Dash, quien, furiosa, voló escaleras arriba en busca de Badwhiz.
 
-Sin mediar palabra entre ellas, Applejack y el resto de ponis se pusieron en marcha. Contagiadas por la urgencia de su amiga, galoparon rápidamente por las escaleras hasta el segundo piso, llegando a lo que se suponía era el viejo dormitorio de la princesa Twilight.
+Sin decir una palabra, Applejack y las demás se lanzaron tras ella. Contagiadas por la urgencia de su amiga, galoparon rápidamente hasta el segundo piso, llegando a lo que se suponía era el antiguo dormitorio de la princesa Twilight.
 
-"¿Qué rayos...?", exclamó Applejack, frenando en seco junto con las demás, sin poder contener sus palabras.
+"¿Qué rayos...?", exclamó Applejack, frenando en seco junto con las demás, sin poder contenerse.
 
-La habitación, que se suponía sencilla y propia de una poni humilde como Twilight, era todo lo contrario.
+La habitación, que en otro tiempo habría sido sencilla y propia de una poni humilde como Twilight, era todo lo contrario.
 
-Amplia y sofisticada, iluminada por una luz tenue, repleta de muebles y decoraciones armoniosas. Con solo ver la elegante cama frente a ellas, quedaba claro que aquella habitación se parecía más a la suite de un hotel de lujo que al honrado dormitorio de su amiga.
+Amplia y sofisticada, iluminada por una tenue luz cálida, estaba repleta de muebles elegantes y decoraciones cuidadosamente dispuestas. Bastaba con ver la cama frente a ellas para comprender que aquello se parecía más a la suite de un hotel de lujo que al austero dormitorio de su amiga.
 
-Y como si esa incongruencia no bastara, había más detalles que hicieron que Applejack frunciera el ceño, incómoda.
+Y como si eso no fuera ya lo bastante extraño, había más detalles que hicieron que Applejack frunciera el ceño, incómoda.
 
-Sombreros y botas que bien podrían haber salido de su propio armario. Grabados de manzanas en los muebles. Una gran cantidad de libros sobre cultivo de manzanas en los estantes. Lámparas con forma de manzana. Manzanas decorativas de plástico. Manzanas por todos lados… ¡manzanas!
+Sombreros y botas que bien podrían haber salido de su propio armario. Grabados de manzanas en los muebles. Estanterías repletas de libros sobre cultivo de manzanas. Lámparas con forma de manzana. Manzanas decorativas de plástico. Manzanas por todas partes… ¡manzanas!
 
-Para ese momento, la cabeza de Applejack parecía tan pesada que bien podría haberse desplomado al suelo como una fruta madura.
+Para ese momento, la cabeza de Applejack se sentía tan pesada que bien podría haberse desplomado como una fruta madura.
 
-"Ejem, Applejack...", la llamó Pinkie Pie desde un rincón, frente a un retrato en la pared.
+"Ejem… Applejack...", la llamó Pinkie Pie desde un rincón, de pie frente a un retrato colgado en la pared.
 
-Applejack, como un tractor sin conductor, se giró en dirección a su amiga, deteniéndose para alzar la vista hacia el cuadro.
+Applejack, como un tractor sin conductor, se giró en dirección a su amiga. Se detuvo, levantó la mirada… y la vio.
 
 Tragó saliva con fuerza.
 
-Frente a ella, una imagen de Twilight mostraba a la alicornio sonriente, sosteniendo una manzana en uno de sus cascos. Si solo fuera eso, tal vez Applejack se habría sentido curiosa o incluso halagada. Pero no. Había demasiados detalles que hacían evidente que algo estaba terriblemente mal.
+Frente a ella, una imagen de Twilight mostraba a la alicornio sonriente, sosteniendo una manzana en uno de sus cascos. Si solo fuera eso, tal vez Applejack se habría sentido halagada. Pero no. Había demasiados detalles inquietantes en el cuadro como para ignorarlos.
 
-La figura en la pintura… no se parecía a Twilight.
+La figura en la pintura… no parecía Twilight.
 
-El poni retratado tenía una melena amarilla, vibrante, y un pelaje naranja, del color de la tierra fértil de un huerto. Si no fuera por el peinado, el perfil reconocible, las alas, el cuerno y la distinguida corona sobre su cabeza, habría jurado que se trataba de otra poni por completo.
+El poni retratado tenía una melena amarilla, vibrante, y un pelaje naranja, del color de la tierra fértil de un huerto. Si no fuera por el peinado reconocible, el perfil, las alas, el cuerno y la distinguida corona sobre su cabeza, habría pensado que se trataba de otra poni por completo.
 
-Y si la imagen representaba a otra poni en vez de Twilight, entonces eso solo podía significar...
+Y si aquella imagen no pertenecia a Twilight, entonces solo podía tratarse de otra persona...
 
-"¿¡Princesa de las Manzanas, Lady Applejack!?", exclamó Rarity, con creciente conmoción, al leer el título dorado al pie de la pintura.
+"¿¡Princesa de las Manzanas, Lady Applejack!?", exclamó Rarity, con creciente conmoción, al leer el título dorado grabado al pie del cuadro.
 
-Aquello fue demasiado para la unicornio amante de la moda. Llevada al límite de sus emociones, Rarity se desmayó con teatral exageración, cayendo en los cascos de Pinkie Pie, quien la acomodó cuidadosamente en el sofá más cercano.
+Aquello fue demasiado para la unicornio amante de la moda. Llevada al límite de sus emociones en aquel dia, Rarity se desmayó con una teatralidad impecable, cayendo en los cascos de Pinkie Pie, quien la acomodó con cuidado en el sofá más cercano.
 
-Applejack, aún en estado de shock, con la mirada perdida, desvió la atención hacia el balcón de la habitación.
+Applejack, aún en shock, con la mirada perdida, desvió la atención hacia el balcón de la habitación.
 
-Allí, Fluttershy se acercaba con calma a una quieta Rainbow Dash, que permanecía inmóvil, contemplando el cielo nocturno.
+Allí, Fluttershy se acercaba con cautela a una inmóvil Rainbow Dash, que contemplaba el cielo nocturno con la cabeza en alto.
 
-Al llegar a su lado, una sola mirada hacia el mundo extraño que se extendía frente a ellas fue suficiente para que la tímida pegaso comprendiera la magnitud del problema en el que se habían metido.
+Al llegar a su lado, bastó una mirada al mundo extraño que se extendía ante ellas para que la tímida pegaso comprendiera cuán profundo era el problema en el que se habían metido.
 
-Asaltada por el miedo, preguntó:
+Asaltada por la ansiedad, preguntó con voz baja:
 
 "¿Dónde estamos, Rainbow Dash?"
 
-Rainbow Dash, sin girarse, respondió con voz baja:
+Rainbow Dash, sin apartar la vista del exterior, respondió:
 
-"No lo sé..."
-
-Repitiendo, sin saberlo, las últimas palabras de Badwhiz.
-
-
-
+"No lo sé..." sin fuerza en su voz. Haciendo eco, sin saberlo, de las anteriores palabras de Badwhiz...
 
 
 

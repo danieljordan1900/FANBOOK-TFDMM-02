@@ -179,3 +179,74 @@ A varios pasos detrás de Rainbow Dash, más allá del sofá, una escalinata lle
 Pero, a mitad de trayecto, oculto entre las sombras de la escalera, una figura los observaba en silencio.
 
 Badwhiz Starheart, enemigo declarado de las Mane Six, estaba allí. Y las desprevenidas amigas de Twilight acababan de notar su presencia...
+
+[---]
+
+
+Fue demasiado repentino.
+
+Applejack, Rainbow Dash, Rarity, Fluttershy y Pinkie Pie se habian detenido a solo unos pasos de reuanudar el encuentro con Badwhiz. Ya habian acordado ser mas amables con el, empezar la relacion desde cero y presentarse adecuadamente al joven poni. Esto con el objetivo de ganarse sus confianza y asi tener mas informacion de lo que estaba pasando. En ese sentido, Pinkie se habia ofrecido para ser la primera en iniciar la conversacion, en contraparte a la postura inflexiva de Rainbow Dash.
+
+No obstante, todos esos planes amicales jamas se llevarian a cabo.
+
+Ante los ojos de las sorprendidas ponis. El cuerpo de Badwhiz habia comenzado a brillar intensamente. 
+
+"¿Princesa Twilight?" se escucho su voz una ultima vez en la habitacion. Luego, en un destello de luz, desapareció.
+
+Ante el incredulo grupo de amigas, las cuerdas que habian mantenido prisionero al reformado villano se desmoronaron en el aire, desparramandose en el suelo sin ya ningun proposito.
+
+Nuevamente, nadie en la habitacion reacciono.
+
+Tan inseperadamente como habia aparecido, Badwhiz habia desaparecido.
+
+Applejack, aun perturbada, fue la primera en moverse. Acercandose a la pila de cuerdas en el suelo.
+
+Ningun rastro de Badwhiz era visible ahi...
+
+"¿Qué demonios acaba de pasar?", exclamo, sin entender.
+
+El silencio en la habitacion fue su unica respuesta.
+
+Fue entonces que, veloz, un proyectil arcoiris cruzo a su lado, acompañado de un grito ahogado cargado de ira. Era Rainbow Dash, quien furiosa volaba a toda prisa al piso de arriba de la casa de Twilight en busqueda de Badwhiz.
+
+Sin decirse palabras entre ellas, Applejack y el resto de ponis se pusieron en marcha. Contagiadas por la urgencia de su amiga, galoparon rapidamente por las escaleras del segundo piso, hasta llegar a la que deberia ser el viejo dormitorio de su amiga princesa.
+
+"¿Que rayos?" exclamo Applejack, frenando en seco junto con las demas, sin poder contener sus palabras. La que deberia ser una sencilla habitacion  propia una poni humilde como Twilight, era en cambio un lugar completamente opuesto a lo que uno podria esperar de ella.
+
+Amplia y sofisticada, iluminada por una luz tenue, llena de muebles y decoracion que armonizaban, con solo observar la elegante cama frente a ellas, quedaba claro que la habitacion en donde estaban se parecia mas a una suite de un hotel de lujo que el honrado dormitorio de su amiga.
+
+Y como si esa incongruencia no bastara, habian mas detalles en la habitacion que hacian que Applejack levantara una ceja incómoda.
+
+Muchos sombreros y botas propias de su armario personal. Grabados de manzanas en los muebles. Una gran cantidad de libros sobre cosechar manzanas en los libreros. Lamparas con forma de manzanas. Mazanas de plastico como decorativos. Manzanas en todo lo demas ... ¡Manzanas!
+
+Para ese momento a Applejack la cabeza le pesaba tanto ya parecia estar a punto de caerse al suelo como un manzana madura.
+
+"Ejem Applejack ..." llamo Pinkie Pie, frente a un retrato en la pared.
+
+Applejack, como un tractor sin conductor viro en direccion de su amiga, deteniendose y levantando la mirada para ver tambien el cuadro.
+
+Trago saliva con fuerza.
+
+Frente a ella, una imagen de Twilight, con un gran sonrisa en su rostro, se mostraba radiante sosteniendo una manzana en uno de sus casco. Si solo fuera eso, Applejack tan solo le habria dado algo de curiosidad  e incluso le habria gustado la pintura. Pero no, aquella imagen tenia demasiado detalles que le hacen pensar que algo estaba terriblemente mal en ese lugar.
+
+La imagen de Twilight, no se asemejaba a Twilight. 
+
+El poni en la pintura tenia una melena amarilla, de intensa tonalidad, y un color de pelaje naranja similar al de la tierra de un saludable huerto. Si no fuera por el tipo de peinado, reconocible perfil, alas y cuerno, sumado a la distiguida corona sobre su cabeza, habria pensado que se trataba de otra poni en vez de Twilight.
+
+Y si, habia, y tenia, la imagen de otro posible poni en vez ella, entonces esa seria ...
+
+"¿Princesa de las manzanas, Lady Applejack?!!!" exclamo con creciente conmocion Rarity leyendo el titulo escrito en dorado en el pie de la pintura.
+
+Aquello fue demasiado para la unicornio amante de la moda. Llevada al limite de sus emociones, Rarity se desmayo con exagerada teatralidad. Sostenida en ultimo minuto por Pinkie Pie, quien la llevo al sofa mas cercano.
+
+Applejack, aun en estado de shock, con una vista perdida, llevo su atencion al balcon de la habitacion.
+
+Ahi Fluttershy avanzaba con calma en direccion de una quieta Rainbow Dash. Que parecia encontrarse mirando hacia la noche del exterior, con la cabeza en alto.
+
+Al llegar con su amiga. Una mirada hacia el mundo sensible que las aguardaba basto para que la timida pegaso entendiera hasta que punto se habia metido en graves problemas.
+
+Asaltada por sus recientes miedos, pregunto: "¿Donde estamos Rainbow Dash?"
+
+Rainbow Dash, sin voltearse, respondio: "No lo se..." haciendo eco de las anteriores palabras de Badwhiz.
+
+[---]
