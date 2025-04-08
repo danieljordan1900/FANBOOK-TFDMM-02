@@ -313,7 +313,3 @@ Asaltada por la ansiedad nacida de lo desconocido, preguntó con voz baja:
 Rainbow Dash, sin apartar la vista del exterior, respondió:
 
 "No lo sé..." sin fuerza en su voz. Haciendo eco, sin saberlo, de las anteriores palabras de Badwhiz...
-
-
-
-
