@@ -206,7 +206,7 @@ Las ponis se miraron entre sí. Quedaba bastante claro entre ellas, que Flutters
 
 Badwhiz había guardado silencio durante un buen rato. Había dejado de llorar y ahora solo observaba, sin emoción, a sus captoras reunidas al otro lado de la habitación.
 
-"¿Qué estoy haciendo?" se preguntó a sí mismo, bajando la cabeza y fijando la vista en el pañuelo que Pinkie Pie le había dejado.
+"¿Qué estoy haciendo?" se preguntó a sí mismo, bajando la cabeza y fijando la vista en el caido pañuelo que Pinkie Pie le había dejado.
 
 Su vida se había vuelto tan confusa que describirla como una simple "montaña rusa" le parecía insuficiente.
 
@@ -215,12 +215,14 @@ Atado, a merced de las amigas de la princesa, Badwhiz se preguntaba seriamente q
 Los recuerdos no tardaron en invadirlo.
 
 Pensó en aquella primera etapa de su vida junto a su familia en Silver Hollow… una época de felicidad que terminó en desgracia.
+
 Luego, su despertar al final del reinado de las dos hermanas, y su  posterior entrega a la causa de los Caballeros del Orden.
+
 Y ahora, una vez más arrastrado por el destino, perdido en un mundo que aún le era extraño, había caído presa de los encantos de la princesa de la Amistad.
 
 "Soy tan débil... he fallado tantas veces... perdóname, abuelo", se lamentó.
 
-Para él, estaba claro: no importaba si el mundo se volvía de cabeza, si los ponis desaparecían o eran reemplazados por otras criaturas… había algo que jamás cambiaba, sin importar dónde estuviera.
+Para él, estaba claro: no importaba si el mundo se volvía de cabeza, si los ponis desaparecían o eran reemplazados por otras criaturas… había algo que jamás cambiaria, sin importar dónde estuviera.
 
 Nunca podría cumplir sus promesas.
 
@@ -290,7 +292,7 @@ Frente a ella, una imagen de Twilight mostraba a la alicornio sonriente, sosteni
 
 La figura en la pintura… no parecía Twilight.
 
-El poni retratado tenía una melena amarilla, vibrante, y un pelaje naranja, del color de la tierra fértil de un huerto. Si no fuera por el peinado reconocible, el perfil, las alas, el cuerno y la distinguida corona sobre su cabeza, habría pensado que se trataba de otra poni por completo.
+El poni retratado tenía una melena amarilla, vibrante, y un pelaje naranja, del color de la tierra fértil de un huerto. Si no fuera por el peinado reconocible, el perfil noble, las alas, el cuerno y la distinguida corona sobre su cabeza, habría pensado que se trataba de otra poni por completo.
 
 Y si aquella imagen no pertenecia a Twilight, entonces solo podía tratarse de otra persona...
 
@@ -304,7 +306,7 @@ Allí, Fluttershy se acercaba con cautela a una inmóvil Rainbow Dash, que conte
 
 Al llegar a su lado, bastó una mirada al mundo extraño que se extendía ante ellas para que la tímida pegaso comprendiera cuán profundo era el problema en el que se habían involucrado.
 
-Asaltada por la ansiedad, preguntó con voz baja:
+Asaltada por la ansiedad nacida de lo desconocido, preguntó con voz baja:
 
 "¿Dónde estamos, Rainbow Dash?"
 
