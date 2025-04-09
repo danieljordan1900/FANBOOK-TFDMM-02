@@ -236,7 +236,7 @@ Rainbow Dash se quedó en silencio, sin comprender del todo la respuesta. Pero t
 
 "Yep", repitió Applejack.
 
-"La misma que Tirek destruyó casi por completo, ¿no?"
+"La misma que Tirek destruyó casi por completo lunas atras, ¿no?"
 
 "Yep..." confirmó Applejack, esta vez con un tono más grave y mirada nerviosa. Tras un momento de duda, añadió: "No lo entiendo."
 
