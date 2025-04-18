@@ -276,11 +276,27 @@ La habitación, que en otro tiempo habría sido sencilla y propia de una poni hu
 
 Amplia y sofisticada, iluminada por una tenue luz cálida, estaba repleta de muebles elegantes y decoraciones cuidadosamente dispuestas. Bastaba con ver la cama frente a ellas para comprender que aquello se parecía más a la suite de un hotel de lujo que al austero dormitorio de su amiga.
 
-Y como si eso no fuera ya lo bastante extraño, había más detalles que hicieron que Applejack frunciera el ceño, incómoda.
+Sorprendidas por el desconocido entorno, el grupo de amigas poni avanzo con cautela en la habitacion. 
 
-Sombreros y botas que bien podrían haber salido de su propio armario. Grabados de manzanas en los muebles. Estanterías repletas de libros sobre cultivo de manzanas. Lámparas con forma de manzana. Manzanas decorativas de plástico. Manzanas por todas partes… ¡manzanas!
+Todo alrrededor se veia demasiado perfecto, inquietantemente limpio, sobrecogedoramente artificial. Como si hubiera surgido de la nada apenas segundos atras. Tal era la impresion que causaba de ver que la urgencia de seguir el rastro de Rainboom Dash se habia desvanecido de sus mentes con tanta facilidad como dar una bocanada de aire.
 
-Para ese momento, la cabeza de Applejack se sentía tan pesada que bien podría haberse desplomado como una fruta madura.
+A todo esto, incluso el aire mismo de la habitacion, hacia olvidar que estuviera ocurriendo algun conflicto o algo anormal en ese momento.
+
+Inmovil y tibio, la atmosfera ideal del lugar, apenas era interrumpida por un fresca brisa que parecia venir de la nada.
+
+"Es un aire acondicionado bastante bueno ..." murmuro Rarity olfateando el ambiente con interes, como si pudiera descernir entre todos los aromas neutros que se mezclaban en el eter.
+
+"Si pero ... ¿de donde viene?" añadio Fluttershy mirando las paredes donde no habia ventillas o oberturas de donde se filtrase aquel viento.
+
+"No de aqui" respondio Pinkie Pie, que habia comenzado a juguetear con unos interruptores en la pared, los cuales a parte de sonar al ser presionados no parecian hacer nada mas.
+
+Sin añadir palabra a los ocasionales hallasgos de sus amigas, una ausente Applejack continuo explorando. La extrañesa del lugar ya ocupaba bastante espacio de su mente, y como si eso no fuera suficiente, había más detalles que saltaban a la vista que hacian que Applejack frunciera aun mas el ceño, incómoda.
+
+Sombreros y botas, que bien podrían haber salido de su propio armario, yacian esparcidas asomando aqui y alla. En los muebles, de una madera que le  recordaba mucho a su propio hogar, grabados de manzanas se destinguian. Las estanterías estaban repletas de libros sobre cultivo de manzanas. Todas las lámparas tenian forma de manzana o algun detalle relacionado sin excepcion. Tambien los adornos decorativas de plástico eran manzanas. Incluso los tapetes tenian manzanas... ¡manzanas!
+
+"Hay muchas manzanas..." hablo para si misma sin ocultar en su rostro el creciente estres que la invadia.
+
+Para ese momento, la cabeza de Applejack se sentía tan pesada por la sobrecargar de informacion que bien podría desplomarse como una fruta madura en cualquier instante.
 
 "!Ahhhhhuuu! !Applejack ven! ¡Tienes que ver esto!", llamó energica Pinkie Pie desde un extremo del cuarto, de pie frente a un retrato colgado en la pared.
 
