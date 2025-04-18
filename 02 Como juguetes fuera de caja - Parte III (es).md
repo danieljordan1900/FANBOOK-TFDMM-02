@@ -268,39 +268,39 @@ El silencio en la habitación fue su única respuesta.
 
 Entonces, como un relámpago, un proyectil arcoíris pasó a su lado, acompañado de un grito ahogado cargado de rabia. Era Rainbow Dash, quien, furiosa, voló escaleras arriba en busca de Badwhiz.
 
-Sin decir una palabra, Applejack y las demás se lanzaron tras ella. Contagiadas por la urgencia de su amiga, galoparon rápidamente hasta el segundo piso, llegando a lo que se suponía era el antiguo dormitorio de la princesa Twilight.
+Sin decir una palabra, Applejack y las demás se lanzaron tras ella. Contagiadas por la urgencia de su amiga, galoparon rápidamente hasta el segundo piso, atravesando la corta escalera que conducía a lo que se suponía era el antiguo dormitorio de la princesa Twilight.
 
-"¿Qué rayos...?", exclamó Applejack, frenando en seco junto con las demás, sin poder contenerse.
+"¿Qué rayos...?", exclamó Applejack apenas cruzó la puerta, frenando en seco junto con las demás, sin poder contenerse.
 
-La habitación, que en otro tiempo habría sido sencilla y propia de una poni humilde como Twilight, era todo lo contrario.
+La habitación, que en otro tiempo habría sido sencilla y propia de una poni humilde como Twilight, resultaba todo lo contrario.
 
-Amplia y sofisticada, iluminada por una tenue luz cálida, estaba repleta de muebles elegantes y decoraciones cuidadosamente dispuestas. Bastaba con ver la cama frente a ellas para comprender que aquello se parecía más a la suite de un hotel de lujo que al austero dormitorio de su amiga.
+Amplia y sofisticada, iluminada por una tenue luz cálida, estaba repleta de muebles elegantes y decoraciones meticulosamente dispuestas. Bastaba con ver la cama frente a ellas para comprender que aquello se parecía más a la suite de un hotel de lujo que al austero dormitorio de su amiga.
 
-Sorprendidas por el desconocido entorno, el grupo de amigas poni avanzo con cautela en la habitacion. 
+Sorprendidas por el entorno desconocido, el grupo de amigas avanzó con cautela dentro de la habitación.
 
-Todo alrrededor se veia demasiado perfecto, inquietantemente limpio, sobrecogedoramente artificial. Como si hubiera surgido de la nada apenas segundos atras. Tal era la impresion que causaba de ver que la urgencia de seguir el rastro de Rainboom Dash se habia desvanecido de sus mentes con tanta facilidad como dar una bocanada de aire.
+Era revelador. Todo alrededor se veía demasiado perfecto, inquietantemente limpio, sobrecogedoramente artificial. Como si hubiese surgido de la nada apenas unos segundos atrás. Tal era la impresión que causaba, que la urgencia de seguir el rastro de Rainbow Dash se desvaneció de sus mentes con la misma facilidad con la que se exhala una bocanada de aire.
 
-A todo esto, incluso el aire mismo de la habitacion, hacia olvidar que estuviera ocurriendo algun conflicto o algo anormal en ese momento.
+Incluso el aire mismo de la habitación contribuía a esa desconcertante calma, como si el ambiente se esforzara por hacer olvidar que algo extraño estaba ocurriendo.
 
-Inmovil y tibio, la atmosfera ideal del lugar, apenas era interrumpida por un fresca brisa que parecia venir de la nada.
+Inmóvil y tibia, la atmósfera ideal del lugar apenas era interrumpida por una brisa fresca que parecía surgir de la nada.
 
-"Es un aire acondicionado bastante bueno ..." murmuro Rarity olfateando el ambiente con interes, como si pudiera descernir entre todos los aromas neutros que se mezclaban en el eter.
+"Es un aire acondicionado bastante bueno...", murmuró Rarity, olfateando el ambiente con interés, como si pudiera discernir entre todos los aromas neutros que se mezclaban en el aire.
 
-"Si pero ... ¿de donde viene?" añadio Fluttershy mirando las paredes donde no habia ventillas o oberturas de donde se filtrase aquel viento.
+"Sí, pero... ¿de dónde viene?", añadió Fluttershy, mirando alrededor con inquietud. No había ventillas ni aberturas por las que pudiera filtrarse aquel viento.
 
-"No de aqui" respondio Pinkie Pie, que habia comenzado a juguetear con unos interruptores en la pared, los cuales a parte de sonar al ser presionados no parecian hacer nada mas.
+"No de aquí", respondió Pinkie Pie, que había empezado a juguetear con unos interruptores en la pared. Estos, aparte de emitir un leve clic al ser presionados, no parecían hacer nada más.
 
-Sin añadir palabra a los ocasionales hallasgos de sus amigas, una ausente Applejack continuo explorando. La extrañesa del lugar ya ocupaba bastante espacio de su mente, y como si eso no fuera suficiente, había más detalles que saltaban a la vista que hacian que Applejack frunciera aun mas el ceño, incómoda.
+Dejando atrás los descubrimientos de sus amigas, una ausente Applejack continuó explorando. La extrañeza del lugar ya ocupaba buena parte de su mente y, como si eso no fuera suficiente, más y más detalles saltaban a la vista, haciéndola fruncir el ceño con creciente incomodidad.
 
-Sombreros y botas, que bien podrían haber salido de su propio armario, yacian esparcidas asomando aqui y alla. En los muebles, de una madera que le  recordaba mucho a su propio hogar, grabados de manzanas se destinguian. Las estanterías estaban repletas de libros sobre cultivo de manzanas. Todas las lámparas tenian forma de manzana o algun detalle relacionado sin excepcion. Tambien los adornos decorativas de plástico eran manzanas. Incluso los tapetes tenian manzanas... ¡manzanas!
+Sombreros y botas —que bien podrían haber salido de su propio armario— yacían esparcidos aquí y allá. Los muebles, hechos de una madera que le recordaba al mobiliario de su casa, exhibían grabados de manzanas. Las estanterías estaban repletas de libros sobre cultivo de manzanas. Todas las lámparas, sin excepción, tenían forma de manzana o algún detalle relacionado. Incluso los adornos decorativos de plástico eran manzanas. Y los tapetes... también tenían manzanas. ¡Manzanas por todas partes!
 
-"Hay muchas manzanas..." hablo para si misma sin ocultar en su rostro el creciente estres que la invadia.
+"Hay muchas manzanas...", murmuró para sí, sin ocultar en su rostro el estrés creciente que la invadía.
 
-Para ese momento, la cabeza de Applejack se sentía tan pesada por la sobrecargar de informacion que bien podría desplomarse como una fruta madura en cualquier instante.
+Para ese momento, la cabeza de Applejack se sentía tan cargada de información que bien podría haberse desplomado como una fruta madura en cualquier instante.
 
-"!Ahhhhhuuu! !Applejack ven! ¡Tienes que ver esto!", llamó energica Pinkie Pie desde un extremo del cuarto, de pie frente a un retrato colgado en la pared.
+"¡Ahhhhhuuu! ¡Applejack, ven! ¡Tienes que ver esto!", llamó con entusiasmo Pinkie Pie desde un extremo del cuarto, de pie frente a un retrato colgado en la pared.
 
-Applejack, como un tractor sin conductor, se giró en dirección a su amiga. Se detuvo, levantó la mirada… y la vio.
+Applejack, como un tractor sin conductor, giró en dirección a su amiga. Se detuvo, levantó la mirada… y la vio.
 
 Tragó saliva con fuerza.
 
