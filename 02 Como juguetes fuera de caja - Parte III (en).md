@@ -242,74 +242,90 @@ A voice that, not so long ago, he would’ve never considered familiar… and ye
 
 [---]
 
-It happened too suddenly.
+It was too sudden.
 
-Applejack, Rainbow Dash, Rarity, Fluttershy, and Pinkie Pie had stopped just a few steps away from resuming their meeting with Badwhiz. They had already agreed to be kinder to him, to start the relationship from scratch and introduce themselves properly to the young pony. All with the goal of gaining his trust and learning more about what was going on. In that spirit, Pinkie had volunteered to start the conversation—quite the contrast to Rainbow Dash’s inflexible stance.
+Applejack, Rainbow Dash, Rarity, Fluttershy, and Pinkie Pie had stopped just a few steps away from resuming their encounter with Badwhiz. They had already agreed to treat him more kindly, to start over and introduce themselves properly to the young pony. Their goal was to earn his trust and gather more information about what was going on. In that spirit, Pinkie had volunteered to begin the conversation, in contrast to Rainbow Dash’s more rigid stance.
 
 However, those friendly plans would never come to pass.
 
-Before the eyes of the astonished ponies, Badwhiz’s body began to glow intensely.
+Before the startled ponies’ eyes, Badwhiz’s body began to glow intensely.
 
-"Princess Twilight?" his voice was heard one last time in the room. Then, in a flash of light, he vanished.
+"Princess Twilight?" his voice echoed one last time in the room. Then, in a flash of light, he vanished.
 
-In front of the stunned group of friends, the ropes that had kept him restrained unraveled in mid-air, falling to the floor without purpose.
+In front of the dumbfounded group of friends, the ropes that had held him captive unraveled in the air, falling to the ground with no purpose.
 
-Once again, no one moved.
+Once again, no one reacted.
 
-Just as suddenly as he had arrived, Badwhiz had disappeared.
+As suddenly as he had appeared, Badwhiz was gone.
 
-Applejack, still dazed, was the first to react. She walked over to the pile of ropes on the floor.
+Applejack, still stunned, was the first to move. She stepped closer to the pile of ropes on the floor.
 
-There wasn’t a trace of Badwhiz left…
+There wasn’t a trace of Badwhiz left...
 
-"What in tarnation just happened?" she exclaimed, baffled.
+"What the hay just happened?" she blurted out, confused.
 
-Silence was her only answer.
+Silence was the only answer the room offered.
 
-Then, like lightning, a rainbow-colored blur shot past her, accompanied by a choked cry filled with rage. It was Rainbow Dash, who, furious, flew upstairs in search of Badwhiz.
+Then, like a lightning bolt, a rainbow-colored blur shot past her, accompanied by a choked, rage-filled cry. It was Rainbow Dash, who, furious, flew upstairs in pursuit of Badwhiz.
 
-Without a word, Applejack and the others rushed after her. Drawn by their friend’s urgency, they galloped quickly to the second floor, arriving at what was supposed to be Princess Twilight’s former bedroom.
+Without a word, Applejack and the others rushed after her. Caught up in their friend’s urgency, they galloped swiftly up the short staircase that led to what was supposed to be Princess Twilight’s old bedroom.
 
-"What the hay...?" Applejack muttered, coming to a halt with the others, unable to hold back.
+"What the hay...?" Applejack exclaimed as soon as she crossed the doorway, stopping abruptly with the others, unable to hold back.
 
-The room, which at one time might have been simple and befitting a humble pony like Twilight, was anything but.
+The room, which once might have been simple and fitting for a humble pony like Twilight, was anything but.
 
-Spacious and sophisticated, lit by a soft warm glow, it was filled with elegant furniture and carefully arranged decorations. One look at the bed in front of them was enough to see that this looked more like a luxury hotel suite than the modest bedroom of their friend.
+Spacious and refined, lit by a warm and gentle glow, it was filled with elegant furniture and meticulously arranged decorations. One glance at the bed in front of them was enough to tell that this looked more like a luxury hotel suite than their friend’s modest bedroom.
 
-And as if that wasn’t strange enough, there were more details that made Applejack frown in discomfort.
+Surprised by the unfamiliar setting, the group of friends cautiously stepped inside.
 
-Hats and boots that could’ve come straight out of her own closet. Apple engravings on the furniture. Shelves packed with books about apple farming. Apple-shaped lamps. Decorative plastic apples. Apples everywhere… apples!
+It was revealing. Everything around them seemed too perfect, eerily clean, overwhelmingly artificial. As if it had come into existence just seconds before. The impression it gave off was so strong, the urgency of chasing after Rainbow Dash slipped from their minds as effortlessly as exhaling a breath.
 
-By then, Applejack’s head felt so heavy she could’ve dropped like a ripe fruit.
+Even the very air in the room contributed to the unsettling sense of calm, as though the environment itself was trying to make them forget something strange was going on.
 
-"Aaaahhhh! Applejack, come here! You have to see this!" called an energetic Pinkie Pie from one end of the room, standing in front of a portrait hanging on the wall.
+Still and warm, the room’s idyllic atmosphere was barely disturbed by a cool breeze that seemed to come from nowhere.
 
-Applejack, like a runaway tractor, turned toward her friend. She stopped, looked up… and saw it.
+"That’s a pretty good air conditioner..." murmured Rarity, sniffing the air with interest, as if she could distinguish the subtle neutral scents that mingled in the atmosphere.
+
+"Yeah, but... where’s it coming from?" Fluttershy added, glancing around uneasily. There were no vents or openings where the breeze could be slipping through.
+
+"Not from here," said Pinkie Pie, who had begun fiddling with some switches on the wall. Other than producing a soft click when pressed, they didn’t seem to do anything else.
+
+Leaving behind her friends’ small discoveries, a distant Applejack kept exploring. The oddity of the place already occupied a significant part of her mind, and as if that weren’t enough, more and more details stood out, deepening the furrow of unease on her brow.
+
+Hats and boots —the kind she could’ve sworn were hers— lay scattered here and there. The furniture, made of a wood that reminded her of the furniture back home, bore carved apple motifs. The shelves were filled with books on apple farming. Every single lamp was shaped like an apple or had some apple-themed detail. Even the plastic decorations were apples. And the rugs… those had apples too. Apples everywhere!
+
+"There’s a lotta apples..." she muttered to herself, unable to hide the growing stress on her face.
+
+By that point, Applejack’s head felt so overloaded with information, it could’ve dropped like a ripe fruit at any moment.
+
+"Ahhhhuuu! Applejack, come here! You gotta see this!" Pinkie Pie called out excitedly from the far end of the room, standing before a portrait hanging on the wall.
+
+Applejack, like a driverless tractor, turned toward her friend. She stopped, looked up… and saw it.
 
 She swallowed hard.
 
-In front of her, an image of Twilight showed the smiling alicorn holding an apple in one of her hooves. If that were all, maybe Applejack would have felt flattered. But no. There were far too many unsettling details in the painting to ignore.
+In front of her, a picture of Twilight showed the alicorn smiling, holding an apple in one of her hooves. If that had been all, perhaps Applejack would’ve felt flattered. But no. There were too many unsettling details in the painting to ignore.
 
-The figure in the painting… didn’t look like Twilight.
+The pony in the portrait… didn’t look like Twilight.
 
-The pony portrayed had a bright yellow mane and an orange coat, the color of fertile orchard soil. If it weren’t for the recognizable hairstyle, the noble profile, the wings, the horn, and the distinguished crown on her head, Applejack would’ve thought it was an entirely different pony.
+The pony portrayed had a vibrant yellow mane and orange fur, the color of rich orchard soil. If not for the recognizable hairstyle, the noble profile, the wings, the horn, and the distinguished crown upon her head, Applejack might have thought it was somepony else entirely.
 
-And if that image didn’t belong to Twilight, then it could only mean one thing...
+And if that image didn’t belong to Twilight, then it could only be one other pony...
 
-"Princess of Apples, Lady Applejack Sparkle?!" Rarity exclaimed, her voice rising in disbelief as she read the golden title engraved at the bottom of the painting.
+"Princess of Apples, Lady Applejack Sparkle?!" Rarity exclaimed, increasingly disturbed, as she read the golden title engraved at the base of the frame.
 
-That was too much for the fashion-loving unicorn. Pushed to the emotional brink that day, Rarity fainted with flawless drama, collapsing into Pinkie Pie’s hooves, who gently laid her on the nearest couch.
+That was too much for the fashion-loving unicorn. Pushed to the emotional brink after everything that day, Rarity fainted with dramatic flair, collapsing into Pinkie Pie’s hooves, who gently laid her on the nearest couch.
 
-Applejack, still in shock, eyes glazed, shifted her attention toward the bedroom’s balcony.
+Still in shock, her gaze vacant, Applejack turned toward the bedroom’s balcony.
 
-There, Fluttershy was cautiously approaching a motionless Rainbow Dash, who stood with her head held high, gazing at the night sky.
+There, Fluttershy was cautiously approaching a motionless Rainbow Dash, who was staring up at the night sky.
 
-Upon reaching her side, one glance at the strange world beyond was all the timid pegasus needed to understand how deep the trouble they were in truly went.
+As she reached her side, one look at the strange world that stretched out before them was all it took for the timid pegasus to realize how deep into trouble they had gotten.
 
-Overwhelmed by the anxiety born of the unknown, she asked quietly:
+Struck by the creeping anxiety of the unknown, she asked in a low voice:
 
 "Where are we, Rainbow Dash?"
 
-Rainbow Dash, eyes still locked on the outside, replied:
+Rainbow Dash, still gazing outward, replied:
 
-"I don’t know..." her voice empty. Unwittingly echoing the very words Badwhiz had spoken before...
+"I don’t know..." Her voice was faint, echoing—without knowing it—the final words spoken by Badwhiz...
