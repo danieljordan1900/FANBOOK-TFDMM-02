@@ -326,9 +326,11 @@ Applejack arqueó una ceja.
 
 Ignorando las quejas de la unicornio, Applejack reflexionó sobre la pregunta de Rainbow Dash. Y, para su molestia, se dio cuenta de que no tenía una respuesta.
 
-Cuando miró al resto de sus amigas, sus expresiones eran idénticas. Nadie tenía una explicación clara.
+¿Qué era lo que había pasado? ¿Acaso nada de lo sucedido desde que partieron en tren con sus amigas había sido real? ¿Todo había sido un sueño? No, Applejack no podía creer eso último. Los recuerdos eran tan vívidos dentro de ella que resultaba imposible aceptarlo.
 
-El silencio volvió, pesado y melancólico. Hasta que, de repente, algo lo quebró.
+Cuando miró al resto de sus amigas, encontró que sus expresiones eran idénticas. Nadie tenía una explicación clara.
+
+El silencio volvió, pesado y melancólico a la habitación. Hasta que, de repente, algo lo quebró.
 
 "Tal vez..." se escuchó una voz suave de fondo. "Deberíamos empezar diciendo qué fue lo que pasó."
 

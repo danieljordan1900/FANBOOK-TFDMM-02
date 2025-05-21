@@ -326,9 +326,11 @@ Applejack raised an eyebrow.
 
 Ignoring the unicorn’s sarcasm, Applejack pondered Rainbow Dash’s question. Much to her annoyance, she realized she didn’t have an answer.
 
-When she looked at the others, their expressions mirrored her own. No one had a clue.
+What had happened? Had nothing that had happened since the train ride with her friends been real? Had it all been a dream? No, Applejack couldn't believe that last one. The memories were so vivid inside her that it was impossible to accept.
 
-Silence fell again—heavy, and tinged with melancholy. Until, out of nowhere, something broke it.
+When she looked at the rest of her friends, she found that their expressions were identical. No one had a clear explanation.
+
+Silence returned, heavy and melancholy in the room. Until, suddenly, something broke it.
 
 "Maybe..." came a soft voice in the background. "We should start by saying what happened."
 
