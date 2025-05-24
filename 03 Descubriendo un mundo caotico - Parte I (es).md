@@ -6,9 +6,9 @@ Dentro de un vacío envuelto en oscuridad, un peñón púrpura se desplazaba, er
 
 La sonrisa afilada de la bestia se delineó entre las sombras.
 
-A su alrededor retumbaba un estruendo semejante al que un huracán provocaría al tocar tierra. Por supuesto, no había suficiente tierra ni, mucho menos, viento que lo justificara. Aquello, unido a la oscuridad opresiva y a la luz tétrica que emanaba del meteórico suelo, componía un escenario diametralmente opuesto a cualquier atisbo de dicha.
+A su alrededor retumbaba un estruendo semejante al que un huracán provocaría al tocar tierra. Por supuesto, no había ningun cielo ni, mucho menos, viento que lo justificara. Aquello, unido a la oscuridad opresiva y a la luz tétrica que emanaba del meteórico suelo, componía un escenario con poca (o más bien ninguna) posibilidad de dicha.
 
-Sin embargo, sobre la superficie del peñón púrpura reinaba la alegría.
+Y, sin embargo, sobre la superficie del peñón púrpura que vagaba en medio de la nada, habia surgido la alegría.
 
 La bestia, al fin, había hallado la luz al final del túnel... literalmente.
 
@@ -18,9 +18,9 @@ En la roca se había abierto una enorme grieta, de cuya profundidad brotaba un r
 
 Felicidad, auténtica felicidad, se derramaba en su interior. Un júbilo que estremeció su cuerpo y la hizo aullar con fuerza en medio del inconmensurable vacío.
 
-Sin testigos, dio rienda suelta a sus emociones: pisoteó las rocas, se revolcó en el suelo y destrozó aún más la violentada superficie del peñón púrpura.
+Sin testigos, dio rienda suelta a sus emociones: pisoteó las rocas, se revolcó en el suelo y destrozó aún más la violentada superficie del peñón.
 
-Fue una celebración desmesurada, volcánica y perfectamente acorde con la proeza recién lograda.
+Fue una celebración volcánica y perfectamente acorde con la proeza recién lograda.
 
 Después de todo lo vivido, después de todo el sufrimiento soportado, aquella grieta significaba ... ¿esperanza?
 
