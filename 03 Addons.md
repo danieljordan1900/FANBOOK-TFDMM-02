@@ -19,3 +19,5 @@ Parte 2: 4500 palabras
 -> 3.  El grupo de amigas se vuelve a reunir. En la falsa casa de arbol. Cada una con su propios descubrimientos. Pero no tiene tanto tiempo para las novedades. Ya que pronto son alcanzados por la bestia. Escapando a duras penas, las ponis se refugian en distintos lugares que son destrosados. Finalmente, en un ingenioso movimiento, Applejack monta ala bestia llevandola al poso del cercano al lugar, donde cae irrediablemente. Asi por fin, la crisis se resuelve.
 
 -> 4.  Ya con las cosas mas calmadas. Las amigas descubren a la mini-Twilight, quien no parece reconocerlas. Y actua infantilmente. Ademas de ella, en un repentino y desagradable accidente de indigestion. La mini-Twilight vomita la comida y con el un libro. Que resulta ser el diario de Twilight. Sorprendidas por el hallasgo las amigas por tiene la fuente de informacion que necesitan para saber que esta ocurriendo ahi.
+
+Tallarines rojos, lomo saltado
