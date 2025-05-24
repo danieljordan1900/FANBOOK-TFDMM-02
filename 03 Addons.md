@@ -1,3 +1,16 @@
+[
+    -> Edita el siguiente fragmento de mi fanfic de my little pony para corregir (la claridad) (la fluidez)
+    -> Respeta el uso de comillas dobles "" no las reemplaces.
+]
+
+[
+    -> Corrige cualquier error gramatical o de puntuación que encuentres. Considera buen uso de los gerundios y adverbios de modo. 
+    -> Evita rimas involuntarias y redondancias si es posible.
+    -> Respeta el uso de comillas dobles "" no las reemplaces.
+    -> Mantén la narrativa coherente, añade transiciones si es necesario.
+    -> Los diálogos deben ser propios de los personajes.
+]
+
 # Descubriendo un mundo caotico
 
 Estructura general: este capitulo desarrolla los acontecimientos posteriores a la llegada de los ponis al mundo de caos. Tres dias despues de lo narrado en el capitulo anterior. Esta dividido en varias escenas que se mencionaran a continuacion.
