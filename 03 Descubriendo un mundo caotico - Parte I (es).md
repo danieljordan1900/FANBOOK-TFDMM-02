@@ -1,32 +1,40 @@
 En un lugar indeterminado...
 
-Dentro de un vacío envuelto en oscuridad, un peñón púrpura se desplazaba, errante y sin freno, como un guijarro brillante arrojado a la noche.
+Dentro de un vacío envuelto en oscuridad, un punto brillante se desplazaba en medio de la negrura más absoluta.
+
+Diminuto, titilante, como una luciérnaga presurosa que atraviesa la noche. El peñón púrpura caía sin freno hacia la nada.
 
 [---]
 
-La sonrisa afilada de la bestia se delineó entre las sombras.
+No había forma de evitarlo: lo había logrado.
 
-A su alrededor retumbaba un estruendo semejante al que un huracán provocaría al tocar tierra. Por supuesto, no había ningun cielo ni, mucho menos, viento que lo justificara. Aquello, unido a la oscuridad opresiva y a la luz tétrica que emanaba del meteórico suelo, componía un escenario con poca (o más bien ninguna) posibilidad de dicha.
+Una fisura blanca surgía de entre las sombras, delineándose como lo haría una sonrisa.
 
-Y, sin embargo, sobre la superficie del peñón púrpura que vagaba en medio de la nada, habia surgido la alegría.
+Y en efecto, era una sonrisa. Gigantesca y afilada, completamente acorde al rostro de la bestia a la que pertenecía.
 
-La bestia, al fin, había hallado la luz al final del túnel... literalmente.
+Menos acorde, en cambio, era el entorno en el que se hallaba.
 
-En la roca se había abierto una enorme grieta, de cuya profundidad brotaba un resplandor tenue y familiar.
+Un estruendo constante, semejante al que provoca un huracán al tocar tierra, retumbaba a su alrededor. Por supuesto, no había ningún cielo ni, mucho menos, viento que lo justificara. Solo una negrura absoluta. Aquello, unido a la casi ingravidez, la ausencia de olores y de luz —con excepción del brillo tétrico que emanaba del meteórico suelo—, componía un escenario que ofrecía poca (o más bien ninguna) posibilidad de dicha.
 
-¿Cuánto tiempo tardó en horadar la roca sólida hasta forjar aquella insignificante fisura? La criatura no lo sabía; la pregunta se desvaneció en cuanto las lágrimas de júbilo afloraron a sus enormes ojos.
+Y, sin embargo, sobre la superficie del peñón púrpura que vagaba rumbo a la nada, había surgido la alegría.
 
-Felicidad, auténtica felicidad, se derramaba en su interior. Un júbilo que estremeció su cuerpo y la hizo aullar con fuerza en medio del inconmensurable vacío.
+Era la alegría de la bestia, que al fin había hallado la luz al final del túnel... literalmente.
 
-Sin testigos, dio rienda suelta a sus emociones: pisoteó las rocas, se revolcó en el suelo y destrozó aún más la violentada superficie del peñón.
+En el suelo rocoso se había abierto una enorme grieta, de cuya profundidad brotaba un resplandor tenue y familiar.
 
-Fue una celebración volcánica y perfectamente acorde con la proeza recién lograda.
+¿Cuánto tiempo le tomó horadar la roca sólida hasta forjar aquella insignificante fisura? La bestia no lo sabía, ni lo supo; la pregunta se desvaneció en cuanto las lágrimas de júbilo afloraron a sus enormes ojos.
 
-Después de todo lo vivido, después de todo el sufrimiento soportado, aquella grieta significaba ... ¿esperanza?
+Felicidad. Auténtica felicidad se derramaba en su interior. Un júbilo que estremeció su cuerpo y la hizo aullar con fuerza en medio del inconmensurable vacío.
 
-De pronto, sus movimientos cesaron, como si recordara por fin los detalles cruciales que la habían llevado hasta allí. Lentamente, una emoción nueva —e implacable— comenzó a dominarla. Una expresión agria inundó su oscurecido rostro, mientras el recuerdo vivido de una poni comenzaba a arder en el reflejo de sus ojos.
+Sin testigos, dio rienda suelta a sus emociones: pisoteó las rocas, se revolcó por el suelo y destrozó aún más la ya violentada superficie del peñón.
 
-"Princesa... " bramó en medio del vacío, con tanta fuerza que incluso el estruendo huracanado que la rodeaba quedó opacado por su voz.
+Fue una celebración volcánica, perfectamente acorde con la proeza recién lograda.
+
+Después de todo lo vivido, después de todo el sufrimiento soportado, aquella grieta significaba... ¿esperanza?
+
+De pronto, los movimientos de la bestia cesaron, como si recordara algo de golpe. Lentamente, una nueva emoción comenzó a apoderarse de su rostro. Una expresión agria inundó este, mientras el recuerdo vívido de una poni empezó a arder en el reflejo de sus ojos.
+
+"Princesa..." bramó la bestia en medio del vacío, con tanta fuerza que incluso el estruendo huracanado que la rodeaba quedó opacado por su voz.
 
 [---]
 
