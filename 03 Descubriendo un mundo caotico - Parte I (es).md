@@ -12,9 +12,7 @@ Una fisura blanca surgía de entre las sombras, delineándose como lo haría una
 
 En efecto, era una sonrisa. Pero gigantesca y afilada, desplegándose nítida dentro de una enorme masa oculta por las sombras.
 
-Se trataba de una bestia, cuyos únicos rasgos visibles en la penumbra eran sus cuernos, garras e implacables ojos brillantes.
-
-Y ahora, también su recién descubierta sonrisa.
+Se trataba de una bestia, cuyos únicos rasgos visibles en la penumbra eran sus cuernos, garras e implacables ojos brillantes. Y ahora, también su recién descubierta sonrisa.
 
 Todo esto daba forma a la silueta de un ser inquietante, cuya enigmática presencia solo era congruente con el desolado entorno en el que se hallaba.
 
@@ -30,7 +28,7 @@ En el suelo rocoso se había abierto una enorme grieta, de cuya profundidad brot
 
 Felicidad. Auténtica felicidad se derramaba en su interior. Un júbilo que estremeció su cuerpo y la hizo aullar con fuerza en medio del inconmensurable vacío.
 
-Sin testigos, dio rienda suelta a sus emociones: pisoteó las rocas, se revolcó por el suelo y destrozó aún más la ya violentada superficie del peñón.
+Sin testigos, la bestia dio rienda suelta a sus emociones: pisoteó las rocas, se revolcó por el suelo y destrozó aún más la ya violentada superficie del peñón.
 
 Fue una celebración volcánica, perfectamente acorde con la proeza recién lograda.
 
