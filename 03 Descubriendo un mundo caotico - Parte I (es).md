@@ -24,7 +24,7 @@ Y, sin embargo, sobre la superficie del peñón púrpura que vagaba rumbo a la n
 
 Era la alegría de la bestia, que al fin había hallado la luz al final del túnel... literalmente.
 
-En el suelo rocoso se había abierto una enorme grieta, de cuya profundidad brotaba un resplandor tenue y familiar, que se reflejaba en los dientes y ojos de la criatura.
+En el suelo rocoso se había abierto una enorme grieta, de cuya profundidad brotaba un resplandor tenue y familiar, que que hacía brillar los ojos y dientes de la criatura.
 
 ¿Cuánto tiempo le tomó horadar la roca sólida hasta forjar aquella insignificante fisura? La bestia no lo sabía, ni lo supo; la pregunta se desvaneció en cuanto las lágrimas de júbilo afloraron a sus enormes ojos.
 
@@ -36,7 +36,7 @@ Fue una celebración volcánica, perfectamente acorde con la proeza recién logr
 
 Después de todo lo vivido, después de todo el sufrimiento soportado, aquella grieta significaba... ¿esperanza?
 
-De pronto, los movimientos de la bestia cesaron, como si recordara algo de golpe. Lentamente, una nueva emoción comenzó a apoderarse de su rostro. Una expresión agria inundó este, mientras el recuerdo vívido de una poni empezó a arder en el reflejo de sus ojos.
+De pronto, los movimientos de la bestia cesaron, como si recordara algo de golpe. Lentamente, una nueva emoción comenzó a apoderarse de su rostro. Una expresión agria lo invadió, mientras el recuerdo vívido de una poni empezó a arder en el reflejo de sus ojos.
 
 "Princesa..." bramó la bestia en medio del vacío, con tanta fuerza que incluso el estruendo huracanado que la rodeaba quedó opacado por su voz.
 
