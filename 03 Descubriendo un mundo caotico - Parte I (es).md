@@ -10,17 +10,21 @@ No había forma de evitarlo: lo había logrado.
 
 Una fisura blanca surgía de entre las sombras, delineándose como lo haría una sonrisa.
 
-Y en efecto, era una sonrisa. Gigantesca y afilada, completamente acorde al rostro de la bestia a la que pertenecía.
+En efecto, era una sonrisa. Pero gigantesca y afilada, desplegándose nítida dentro de una enorme masa oculta por las sombras.
 
-Menos acorde, en cambio, era el entorno en el que se hallaba.
+Se trataba de una bestia, cuyos únicos rasgos visibles en la penumbra eran sus cuernos, garras e implacables ojos brillantes.
 
-Un estruendo constante, semejante al que provoca un huracán al tocar tierra, retumbaba a su alrededor. Por supuesto, no había ningún cielo ni, mucho menos, viento que lo justificara. Solo una negrura absoluta. Aquello, unido a la casi ingravidez, la ausencia de olores y de luz —con excepción del brillo tétrico que emanaba del meteórico suelo—, componía un escenario que ofrecía poca (o más bien ninguna) posibilidad de dicha.
+Y ahora, también su recién descubierta sonrisa.
+
+Todo esto daba forma a la silueta de un ser inquietante, cuya enigmática presencia solo era congruente con el desolado entorno en el que se hallaba.
+
+Un estruendo constante, semejante al que provoca un huracán al tocar tierra, retumbaba a su alrededor. Por supuesto, no había ningún cielo ni, mucho menos, viento que lo justificara. Solo una negrura absoluta. Aquello, unido a la casi ingravidez, la ausencia de olores y de luz —con excepción del brillo tétrico que emanaba del meteórico suelo—, componía un escenario que, sin duda, ofrecía poca (o más bien ninguna) posibilidad de dicha.
 
 Y, sin embargo, sobre la superficie del peñón púrpura que vagaba rumbo a la nada, había surgido la alegría.
 
 Era la alegría de la bestia, que al fin había hallado la luz al final del túnel... literalmente.
 
-En el suelo rocoso se había abierto una enorme grieta, de cuya profundidad brotaba un resplandor tenue y familiar.
+En el suelo rocoso se había abierto una enorme grieta, de cuya profundidad brotaba un resplandor tenue y familiar, que se reflejaba en los dientes y ojos de la criatura.
 
 ¿Cuánto tiempo le tomó horadar la roca sólida hasta forjar aquella insignificante fisura? La bestia no lo sabía, ni lo supo; la pregunta se desvaneció en cuanto las lágrimas de júbilo afloraron a sus enormes ojos.
 
