@@ -2,7 +2,7 @@ En un lugar indeterminado...
 
 Dentro de un vacío envuelto en oscuridad, un punto brillante se desplazaba en medio de la negrura más absoluta.
 
-Diminuto, titilante, como una luciérnaga presurosa que atraviesa la noche. El peñón púrpura caía sin freno hacia la nada.
+Diminuto, titilante, como una luciérnaga presurosa que atraviesa la noche. Un insospechado peñón púrpura caía sin freno hacia la nada.
 
 [---]
 
