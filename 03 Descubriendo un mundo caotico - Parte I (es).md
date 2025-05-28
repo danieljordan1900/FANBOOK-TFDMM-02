@@ -14,7 +14,7 @@ En efecto, era una sonrisa. Pero gigantesca y afilada, desplegándose nítida de
 
 Una figura inquietante, cuyos únicos rasgos visibles en la penumbra eran sus cuernos, garras e implacables ojos brillantes. Y ahora, también su recién descubierta sonrisa.
 
-Se trataba entonces de la silueta de una bestia, cuya enigmática presencia solo era congruente con el desolado entorno en el que se hallaba.
+Se trataba de la silueta de una bestia, cuya enigmática presencia solo era congruente con el desolado entorno en el que se hallaba.
 
 Un estruendo constante, semejante al que provoca un huracán al tocar tierra, retumbaba a su alrededor. Por supuesto, no había ningún cielo ni, mucho menos, viento que lo justificara. Solo una negrura absoluta. Aquello, unido a la casi ingravidez, la ausencia de olores y de luz —con excepción del brillo tétrico que emanaba del meteórico suelo—, componía un escenario que, sin duda, ofrecía poca (o más bien ninguna) posibilidad de dicha.
 
