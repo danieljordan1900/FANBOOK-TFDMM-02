@@ -1,6 +1,8 @@
 # Twilight frente a la oscura marcha marcial - Pt 02
 Fanfic - Libro de "My Little Pony" escrito en 2024
 
+![TFDMT 02 - IMG01](TFDMT%2002%20-%20IMG01.png)
+
 ## Información del Proyecto
 - Título codificado: FANBOOK-TFDMM-02
 - Título completo: Twilight frente a la oscura marcha marcial - Pt 02
