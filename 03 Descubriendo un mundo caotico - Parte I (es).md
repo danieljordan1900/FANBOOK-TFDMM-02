@@ -86,7 +86,7 @@ Ambas se miraron, sin decir una palabra durante un breve pero cargado instante.
 
 "En realidad, no se trata tanto de eso, Rarity. Ya es algo tarde y tú no venías..." comenzó a decir Applejack.
 
-"...así que les pido, ¡por favor!, que me permitan encargarme de preparar el almuerzo como ya lo teníamos planeado" terminó Rarity, pisando con fuerza el suelo.
+"...así que les pido, ¡por favor!, que me permitan encargarme de preparar el almuerzo como ya lo teníamos planeado" terminó de decir la unicornio, pisando con fuerza el suelo.
 
 "No tenemos problema con eso..." respondió Applejack sin desviar la mirada hacia las demás. "Pero, ¿realmente vas a estar bien con la cocina?"
 
@@ -104,7 +104,7 @@ O casi todas.
 
 "¡Achuuu!" Fluttershy había vuelto a estornudar, esta vez llamando la atención de las demás por lo intenso del estornudo.
 
-"Cielos, querida, este horrible lugar también está acabando contigo" dijo Rarity desde su asiento, pasándole rápidamente con su magia un pedazo de papel higiénico a su amiga, al mismo tiempo que esparcía más alcohol en el aire con su chisguete.
+"Cielos, querida, este horrible lugar también está acabando contigo" dijo Rarity mortificada desde su asiento, pasándole rápidamente con su magia un pedazo de papel higiénico a su amiga, al mismo tiempo que esparcía más alcohol en el aire con su chisguete.
 
 "Gracias, Rarity" respondió Fluttershy, no menos aliviada, limpiándose los mocos que empezaban a salirle por la nariz. El intenso aroma del alcohol que la rodeaba no parecía estar mejorando su estado.
 
