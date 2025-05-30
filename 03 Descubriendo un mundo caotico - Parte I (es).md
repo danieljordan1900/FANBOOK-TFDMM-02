@@ -52,19 +52,19 @@ No tan sorprendida, en el otro extremo de esta, se encontraba Applejack.
 
 "Nop, fue más bien algo que yo no dije" respondió Applejack mientras, mentalmente, empezaba a contar los segundos que pasaban. "(10... 9... 8... 7...)"
 
-"¿Y qué no dijiste?" preguntó Pinkie Pie, asomando su cabeza desde debajo de la mesa.
+"¿Y qué no dijiste?" preguntó Pinkie Pie, asomando la cabeza desde debajo de la mesa.
 
-"En cómo nos ayudaría en la preparación del almuerzo de hoy" respondió sin entusiasmo. "(3... 2... 1...)"
+"Cómo nos ayudaría en la preparación del almuerzo de hoy" respondió, sin entusiasmo. "(3... 2... 1...)"
 
 No había terminado de contar cuando, nuevamente, la puerta del comedor se abrió de golpe.
 
-Rarity había regresado, pero no como se había marchado: preparada para el desafío que, involuntariamente, le había propuesto Applejack. La unicornio ahora llevaba puesto un traje completo contra residuos tóxicos, equipada con un respirador artificial y un chisguete que no paraba de disparar alcohol en el aire con su magia. Avanzó al interior de la cocina, entre el siseo de su respirador y la sorpresa de las demás, y se dirigió hacia donde estaba Applejack.
+Rarity había regresado, pero no como se había marchado: ahora venía preparada para el desafío que, involuntariamente, le había propuesto Applejack. La unicornio llevaba puesto un traje completo contra residuos tóxicos, equipado con un respirador artificial y un chisguete que no paraba de rociar alcohol en el aire mediante su magia. Avanzó hacia la cocina entre el siseo del respirador y la sorpresa de las demás, dirigiéndose directamente hacia Applejack.
 
 Esta solo levantó una ceja, indiferente, a pesar del picante aroma del alcohol que llegaba a su nariz.
 
-Ambas se encontraron mirándose, sin decir una palabra por un instante.
+Ambas se miraron, sin decir una palabra durante un breve pero cargado instante.
 
-"¡Achuu!" se escuchó un nuevo estornudo en el tenso ambiente de la cocina, el cual fue ignorado por todas con la excepción de Pinkie Pie.
+"¡Achuu!" se oyó un nuevo estornudo en el tenso ambiente de la cocina, ignorado por todas... excepto por Pinkie Pie.
 
 "Pensaba que eras alérgica a los plásticos" dijo la poni granjera sin emoción, observando el llamativo traje que llevaba Rarity.
 
@@ -136,4 +136,9 @@ Algo extrañadas por esto, pero no tanto, las otras dos ponis comenzaron a dirig
 
 "Oh... uh... pero..." comenzó a decir Fluttershy, pero al notar la mirada decidida de Rarity, se calló. "Está bien... supongo."
 
-Debajo de la mesa, oculta en las sombras, Pinkie Pie, ignorando el resto de la conversación de sus amigas, continuó olfateando como un sabueso el interior de la mesa, tocando casi con su lengua la sólida superficie plástica de la que estaba hecha. Como si estuviera en medio de un trance, su voz susurrante, apenas audible, decía: "Sé que estás ahí, pequeño... no puedes ocultarte del olfato Pinkie Pie... mi precioso..." terminó de decir, casi relamiéndose los labios.
+Debajo de la mesa, oculta entre las sombras, Pinkie Pie —ajena a la conversación de sus amigas— seguía olfateando con intensidad como un sabueso. Rozaba con la punta de la lengua la superficie plástica, dura y sin sabor, como si esperara detectar algo más. Sumida en un trance extraño, murmuraba con una voz susurrante apenas audible:
+
+"Sé que estás ahí, pequeño... no puedes esconderte del olfato de Pinkie Pie... mi precioso..." terminó, casi relamiéndose los labios.
+
+[---]
+
