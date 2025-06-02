@@ -72,7 +72,7 @@ Ambas se miraron, sin decir una palabra durante un breve pero cargado instante.
 
 "En tu casa tienes cubiertos de plástico..." objetó Pinkie Pie, asomándose nuevamente desde debajo de la mesa.
 
-"Son para emergencias extremas, y son de Sweetie Belle" respondió Rarity de inmediato, sin apartar la mirada de Applejack ni prestar atención a cómo Pinkie volvía a esconderse.
+"Son para emergencias extremas, y son responsabilidad de Sweetie Belle" respondió Rarity de inmediato, sin apartar la mirada de Applejack ni prestar atención a cómo Pinkie volvía a esconderse.
 
 "Ya veo... alergias..." respondió Applejack, poco convencida, ajustando con una de sus patas un inexistente sombrero que llevaba puesto.
 
@@ -96,9 +96,9 @@ Ambas se miraron, sin decir una palabra durante un breve pero cargado instante.
 
 Al recibirla y darle una mirada, Rarity hizo una mueca inmediata. Pero fue breve; en un parpadeo, su mirada confiada regresó a su delicada apariencia, oculta en el traje de látex.
 
-"Puedo manejarlo, querida. Sé hacer mucho con poco" respondió segura, con una sonrisa.
+"Puedo manejarlo, querida. Sé hacer mucho con poco" respondió segura, con un gesto brillante.
 
-"Muy bien, todo tuyo entonces" respondió Applejack, cediendo su asiento con una leve sonrisa. Era la primera desde que Rarity regresara a la cocina y el tenso ambiente se instalara. Ahora, con el desacuerdo finalizado, las ponis podían respirar tranquilas y continuar con lo que estaban haciendo.
+"Muy bien, todo tuyo entonces" sin ningun deseo de prolongar aquella conversacion, Applejack cedio su asiento a su amiga, tenia una una leve sonrisa cuando lo hizo. Era la primera desde que Rarity regresara a la cocina y el tenso ambiente se instalara entre ellas. Ahora, con el desacuerdo finalizado, las ponis podían respirar tranquilas y continuar con lo que estaban haciendo en esa mañana.
 
 O casi todas.
 
@@ -120,7 +120,7 @@ Pero antes de que alguna dijera algo más, otra voz se alzó entre ambas.
 
 "Chicas, está bien. Es suficiente..." comenzó a hablar Fluttershy, poniéndose de pie en un tono conciliador. "Sí quisiera salir afuera, Rarity... pero no sola. ¿Applejack, me acompañas?" terminó de decir la pegaso, mirando a su amiga.
 
-"¿Acompañarte? ¡Por supuesto que sí!" respondió Applejack, acercándose a Fluttershy sin dudar. Rarity, por su parte, aún mantenía una mirada de desaprobación.
+"¿Acompañarte? ¡Por supuesto que sí!" respondió Applejack, acercándose a Fluttershy de un salto. Rarity, por su parte, aún mantenía una mirada de desaprobación.
 
 "Pinkie, ¿también quieres venir?" preguntó Fluttershy a su oculta amiga rosada.
 
@@ -141,4 +141,12 @@ Debajo de la mesa, oculta entre las sombras, Pinkie Pie —ajena a la conversaci
 "Sé que estás ahí, pequeño... no puedes esconderte del olfato de Pinkie Pie... mi precioso..." terminó, casi relamiéndose los labios.
 
 [---]
+
+"Un poco de aire fresco...¿Eh?" se cuestiono a si misma Applejack por lo tonta que habia sido propuesta en la cocina, mientras trotaba por el camino que salia de Ponyville.
+
+O mejor dicho, el camino que salía de No-Ponyville.
+
+
+
+
 
