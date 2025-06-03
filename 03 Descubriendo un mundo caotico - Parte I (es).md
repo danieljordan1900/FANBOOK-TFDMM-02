@@ -142,9 +142,29 @@ Debajo de la mesa, oculta entre las sombras, Pinkie Pie —ajena a la conversaci
 
 [---]
 
-"Un poco de aire fresco...¿Eh?" se cuestiono a si misma Applejack por lo tonta que habia sido propuesta en la cocina, mientras trotaba por el camino que salia de Ponyville.
+"Salir por un poco de aire fresco...gran idea ¿verdad, Applejack? haa..." no pudo evitar cuestionarse a si misma la poni granjera dando un resoplido en medio del camino que salia de Ponyville.
 
 O mejor dicho, el camino que salía de No-Ponyville.
+
+Desalentada, Applejack dio una mirada a los lados de la via, las fachadas de las coloridas casas le saludaron con sus plasticas tonalidades. Tal vez, si estuviera los suficientemente lejos de aquellas casas, podria fingir sentirse mas en el ambiente de su pueblo natal, sin embargo a esa distancia, era imposible ocultar la verdad del bizarro sitio donde estaba.
+
+"¿Qué diablos es este lugar?" deteniendose un momento y mirando a su alrededor, esta pregunta volvia a repetirse en su cabeza.
+
+No habia parado de pensar en ello desde que llegaran a aquel mundo...
+
+Cinco dias atras..., despues de perder el rasto de Badwhiz, el grupo de amigas descubrio que se encontraban en un lugar cuanto menos extraño. Se trataba de un Ponyville (en apariencia) completo, de casas, edificios administrativos, tiendas, vias e incluso vegetacion de la zona. Todo tal como ellas esperarian encontrar en su pueblo natal. 
+
+Salvo por el gran detalle que todo estaba hecho de plastico... y que no habia ningun residente en el lugar.
+
+Mas precisamente, ningun residente 'vivo' en el lugar.
+
+
+
+
+
+
+
+
 
 
 
