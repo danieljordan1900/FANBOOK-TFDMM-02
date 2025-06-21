@@ -110,11 +110,11 @@ O casi todas.
 
 "Tal vez necesitas salir afuera un poco, dulzura. El aire fresco te ayudará a recuperarte" sugirió Applejack, también incómoda por el ambiente gaseado.
 
-"¿Qué aire fresco? ¿Acaso quieres envenenarla aún más ahí afuera?" preguntó Rarity con voz de desaprobación esparciendo más de alcohol en el aire.
+"¿Qué aire fresco? ¿Acaso quieres envenenarla aún más ahí afuera?"
 
 "Es una idea. Estar aquí dentro tampoco la está ayudando."
 
-"Pues salir afuera sola no la ayudará en absoluto" respondió Rarity, chocando nuevamente su mirada con la de Applejack.
+"Pues salir afuera sola no la ayudará en absoluto" increpo Rarity, chocando nuevamente su mirada con la de Applejack.
 
 Pero antes de que alguna dijera algo más, otra voz se alzó entre ambas.
 
@@ -124,25 +124,67 @@ Pero antes de que alguna dijera algo más, otra voz se alzó entre ambas.
 
 "Pinkie, ¿también quieres venir?" preguntó Fluttershy a su oculta amiga rosada.
 
-"Ehh no, no, así está bien, chicas. Me quedaré aquí ayudando a Rarity en la cocina..." respondió Pinkie Pie desde debajo de la mesa en un extraño tono sin interés. No podían verla debido al extenso mantel blanco que cubría el lugar donde estaba, pero daba la impresión de estar muy ocupada... en lo que fuera que estuviera haciendo.
+"Ehh no, no, así está bien, chicas. Me quedaré aquí ayudando a Rarity en la cocina..." respondió Pinkie Pie desde debajo de la mesa en un extraño tono sin interés. No podían verla debido al extenso mantel blanco que cubría la mesa bajo la que estaba, pero daba la impresión de estar muy ocupada... en lo que fuera que estuviera haciendo.
 
 Algo extrañadas por esto, pero no tanto, las otras dos ponis comenzaron a dirigirse a la puerta. Justo cuando otra voz las interrumpió desde atrás.
 
 "¡Esperen!" había exclamado Rarity, poniéndose de pie. "Un paseo con compañía es una buena idea, pero si va a salir afuera, al menos debería hacerlo con protección."
 
-"¿Protección?" preguntó Applejack, justo cuando notaba cómo Rarity sacaba de una bolsa otro traje de látex similar al que llevaba. "¡Oh, no no! Eso es demasiado. No voy a ponerme eso para salir afuera."
+"¿Protección?" preguntó Applejack, justo cuando notaba cómo Rarity sacaba de una bolsa otro traje de látex similar al que llevaba. "¡Oh, no no! Eso es demasiado. No voy a ponerme ese disfraz de feria para salir afuera."
 
 "No lo digo por ti. Lo digo por ella" respondió Rarity, señalando a Fluttershy.
 
 "Oh... uh... pero..." comenzó a decir Fluttershy, pero al notar la mirada decidida de Rarity, se calló. "Está bien... supongo."
 
-Debajo de la mesa, oculta entre las sombras, Pinkie Pie —ajena a la conversación de sus amigas— seguía olfateando con intensidad como un sabueso. Rozaba con la punta de la lengua la superficie plástica, dura y sin sabor, como si esperara detectar algo más. Sumida en un trance extraño, murmuraba con una voz susurrante apenas audible:
+La conversacion en la cocina continuo. Pero al mismo tiempo ...
+
+Fuera de la vista y oido de todas, Pinkie Pie olfateaba con intensidad el vientre oculto de la mesa, rozando con la punta de su nariz la superficie plástica y dura de esta. Tal como haria un sabueso buscando a su presa. Sumida en este trance extraño, murmuraba con una voz susurrante apenas audible:
 
 "Sé que estás ahí, pequeño... no puedes esconderte del olfato de Pinkie Pie... mi precioso..." terminó, casi relamiéndose los labios.
 
 [---]
 
-"Salir por un poco de aire fresco...gran idea ¿verdad, Applejack? haa..." no pudo evitar cuestionarse a si misma la poni granjera dando un resoplido en medio del camino que salia de Ponyville.
+#   deficiencias del texto
+*   falta de conexion con la escena anterior
+*   demasiadas aclaraciones enetre dialogos (sopa de pollo sin pollo)
+*   mas dialogos personales
+   
+
+"Salir por un poco de aire fresco...brillante idea ¿no es asi, Applejack? haa..." se cuestiono a si misma la poni granjera dando un resoplido en medio de su trote en el supuesto 'ventilado exterior'.
+
+Acompañar a Fluttershy en su paseo en el exterior, habia sido una excusa muy buena para ella, no estaba segura si Rarity lo habia entendido de esa forma o no. Pero no se sentia comoda con ella en la cocina, la atmosfera entre ambas solia tornarse demasiado tensa cuando trabajaban juntas (eso mas el alcohol en el aire) y no queria estar ahí. 
+
+Aunque ahora, reflexionando en los sucedido, empezaba a dudar si habia sido una buena descision dejar el lugar al mando de aquel par de ponis.
+
+"Pinkie Pie puede manejarlo... pero Rarity... " mumuro. Podia confiar en que Pinkie prepararia un almuerzo decente para todas tal como habia hecho en los ultimos dias, pero, por otro lado, el posible plan curinario que su amiga unicornio amante de lo 'fabuloso' podria llegar preparar le empezaba a causar una profunda inquietud.
+
+"Mientras que no sea un buffet cinco herraduras ..." la imagen de una pasarela de platillos de comida de todos los colores y tamaos, ya desfilaba en la mente de Applejack cuando sus pasos comenzaron a detenerse. 
+
+Definitivamante no podia estar tranquila con eso. 
+
+"Debo volver ..." se ordeno a si misma, pero antes de que pudiera dar el primer paso, una voz desconocida la interrumpió.
+
+"[[¿Applejack? ¿Pasa algo?]]" 
+
+"Hayyyyyyyyy..." exclamo la poni granjera, pegando un salto del susto en el aire y volviendose hacia la fuente de la voz.
+
+Una figura de un poni en un traje de látex, de color amarillo intenso, se encontraba de pie detras de ella. Con un rostro identificable por el casco hermetico que protegia su cabeza, el desconcertante individuo avanzo un poco hacia Applejack, en medio de un sesio constante de un respirador.
+
+"[[Lo siento, no era mi intencion asustarte Applejack...]]"
+
+
+
+
+
+
+
+
+
+Las razones de los temores de la poni granjera estaban bien fundados. Era verdad que habia poca comida en la despensa de la cocina, no tan poca para que se acabara mañana mismo, sin embargo, sin un racionamiento adecuado, en un semana o menos, definitivamente no habria nada. Y sin una fuente de donde proveerse de comida, las cosas no iban a terminar bien.
+
+
+
+ en medio del camino que salia de Ponyville.
 
 O mejor dicho, el camino que salía de No-Ponyville.
 
