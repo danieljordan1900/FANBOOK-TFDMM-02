@@ -200,9 +200,11 @@ No importaba cuántas veces lo mirara, seguía sin gustarle.
 
 Se encontraban en medio del camino que salía del centro de Ponyville. O mejor dicho... de No-Ponyville.
 
-Incómoda, Applejack recorrió con la vista ambos lados del sendero. Las fachadas de las casas, coloridas y falsas, la saludaban con sus tonalidades plásticas. Tal vez, si estuviera lo suficientemente lejos de ellas, podría convencerse de que estaba en su verdadero pueblo. Pero a esa distancia... era imposible ignorar la verdad del extraño lugar donde estaban.
+Incómoda, Applejack recorrió con la vista ambos lados del sendero. Las fachadas de las casas, coloridas y falsas, la saludaban con sus tonalidades plásticas. Tal vez, si estuviera lo suficientemente lejos de ellas, podría convencerse de que estaba en su verdadero pueblo. Pero a esa distancia... era imposible ignorar la verdad de aquel extraño lugar.
 
-Una réplica a escala de Ponyville, construida por completo de plástico.
+Una réplica a escala de Ponyville, construida por completo de plástico, que incluso tenia en sus exteriores las propias versiones de plastico de la granja de su familia.
+
+"Que locura ..." murmuró Applejack, sintiéndose como si estuviera en un sueño extraño.
 
 
 
