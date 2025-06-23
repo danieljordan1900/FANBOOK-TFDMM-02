@@ -144,12 +144,6 @@ Fuera de la vista y oido de todas, Pinkie Pie olfateaba con intensidad el vientr
 
 [---]
 
-#   deficiencias del texto
-*   falta de conexion con la escena anterior
-*   demasiadas aclaraciones enetre dialogos (sopa de pollo sin pollo)
-*   mas dialogos personales
-   
-
 "Salir a tomar un poco de aire fresco... brillante idea, ¿no es así, Applejack?" se cuestionó a sí misma la poni granjera, soltando un resoplido mientras trotaba por el supuesto 'ventilado exterior'.
 
 Acompañar a Fluttershy en su paseo había sido una excelente excusa para alejarse. No sabía si Rarity lo había entendido de esa forma o no, pero en cualquier caso, no se sentía cómoda con ella en la cocina. La atmósfera entre ambas solía volverse demasiado tensa cuando trabajaban juntas y eso sumado a la situacion en la que se encontraban (sin contar el alcohol flotando en el aire de la cocina), no quería estar ahí.
@@ -194,17 +188,46 @@ Lo suficientemente amenazante como para erizarle el lomo a Applejack.
 
 Ni siquiera una brisa.
 
-Fue entonces cuando Applejack volvió su atención al mundo que la rodeaba. Por un instante, olvidó la preocupación por su cocina y observó con nuevos ojos el paisaje que se extendía frente a ellas.
+Fue entonces cuando Applejack volvió su atención al mundo que la rodeaba. Por un instante, dejó de pensar en la cocina y observó con nuevos ojos el paisaje que se extendía a su alrededor.
 
-No importaba cuántas veces lo mirara, seguía sin gustarle.
+No importaba cuántas veces lo mirara... seguía sin gustarle.
 
-Se encontraban en medio del camino que salía del centro de Ponyville. O mejor dicho... de No-Ponyville.
+Se encontraban a mitad del camino que salía desde el centro de Ponyville. O mejor dicho... de No-Ponyville.
 
-Incómoda, Applejack recorrió con la vista ambos lados del sendero. Las fachadas de las casas, coloridas y falsas, la saludaban con sus tonalidades plásticas. Tal vez, si estuviera lo suficientemente lejos de ellas, podría convencerse de que estaba en su verdadero pueblo. Pero a esa distancia... era imposible ignorar la verdad de aquel extraño lugar.
+Incómoda, Applejack recorrió con la mirada ambos lados del sendero. Las fachadas de las casas, coloridas pero falsas, la saludaban con sus tonalidades plásticas. Tal vez, si estuviera lo suficientemente lejos de ellas, podría engañarse y pensar que estaba en su verdadero pueblo. Pero a esa distancia... era imposible ignorar la verdad de lo que estaba viendo.
 
-Una réplica a escala de Ponyville, construida por completo de plástico, que incluso tenia en sus exteriores las propias versiones de plastico de la granja de su familia.
+Una réplica a escala de Ponyville, construida por completo de plástico. Incluso contenía reproducciones sintéticas de la granja de su familia y los campos de manzanas.
 
-"Que locura ..." murmuró Applejack, sintiéndose como si estuviera en un sueño extraño.
+Raro, penso haciendo una mueca. Y como si eso no fuera lo suficientemente extraño, más allá de esos límites...
+
+Applejack tragó saliva.
+
+Inmensos muros, que terminaban en un techo plano, se alzaban cerca del horizonte. Eran de un pálido color amarillo que se fundía con un cielo pintado e inmóvil. Los muros cubrían los cuatro puntos cardinales del pueblo, al igual que el cielo, formando así una gigantesca bóveda cúbica que encerraba tanto a ellas como a todo el lugar.
+
+"Qué locura..." murmuró la poni granjera para sus adentros, sintiéndose desorientada al alzar la vista, como si estuviera atrapada en un sueño extraño y vívido.
+
+Y no era para menos. El lugar resultaba incomprensible para todas ellas, desde el momento en que descubrieron la verdadera forma del sitio días atrás. Le había costado mucho encontrarle un propósito. Al principio pensaron que era una prisión construida por sus enemigos, los Caballeros del Orden. Pero pronto se dieron cuenta de que no era así, gracias al hallazgo del diario de Badwhiz en la cocina. En él se detallaban pistas claras que revelaban lo desconocido e inexplicable que era aquel espacio incluso para sus propios creadores.
+
+Según las notas encontradas, solo habían pasado seis días desde que Badwhiz —junto con Twilight— había llegado a ese lugar. Al parecer, perseguidos por alguien muy peligroso, ambos lograron refugiarse allí a duras penas. Eso, más las anotaciones dispersas sobre los alimentos que habían traído consigo, y un mapa detallado del recinto, era toda la información que tenían.
+
+Demasiado poco...
+
+Y todas las exploraciones que Rainbow Dash había realizado desde entonces no hicieron más que confirmar lo que ya habian supuesto: no había salida.
+
+Applejack masculló entre dientes al recordar el rostro del poni de cabellera de color helado.
+
+"No lo sé..." murmuró, repitiendo las palabras de su enemigo y luego de sus amigas. "Encerradas en una inmensa caja de juguetes..."
+
+Ahora tenía sentido que Badwhiz no hubiera podido responder cuando lo interrogaron tras capturarlo. Si ella hubiera estado en su lugar... probablemente tampoco habría sabido qué decir.
+
+
+
+
+
+
+
+
+
 
 
 
