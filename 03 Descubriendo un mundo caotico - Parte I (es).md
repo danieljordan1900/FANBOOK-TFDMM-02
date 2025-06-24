@@ -210,15 +210,17 @@ Y no era para menos. El lugar resultaba incomprensible para todas ellas, desde e
 
 Según las notas encontradas, solo habían pasado seis días desde que Badwhiz —junto con Twilight— había llegado a ese lugar. Al parecer, perseguidos por alguien muy peligroso, ambos lograron refugiarse allí a duras penas. Eso, más las anotaciones dispersas sobre los alimentos que habían traído consigo, y un mapa detallado del recinto, era toda la información que tenían.
 
-Demasiado poco...
+¿Por que el diario de Badwhiz que encontraron en la cocina se hallaba en tan mal estado que apenas era legible? Otra pregunta que no tenia respuesta.
 
-Y todas las exploraciones que Rainbow Dash había realizado desde entonces no hicieron más que confirmar lo que ya habian supuesto: no había salida.
+Pero regresando al punto anterior anterior. La informacion que tenian era demasiado poca...
 
-Applejack masculló entre dientes al recordar el rostro del poni de cabellera de color helado.
+Todas las exploraciones que Rainbow Dash había realizado desde entonces no hicieron más que confirmar lo que ya habian supuesto: no había salida de aquel lugar.
 
-"No lo sé..." murmuró, repitiendo las palabras de su enemigo y luego de sus amigas. "Encerradas en una inmensa caja de juguetes..."
+Applejack masculló entre dientes al recordar el rostro del poni de cabellera de color helado y las discusiones posteriores a su desaparicion.
 
-Ahora tenía sentido que Badwhiz no hubiera podido responder cuando lo interrogaron tras capturarlo. Si ella hubiera estado en su lugar... probablemente tampoco habría sabido qué decir.
+"No lo sé..." murmuró, repitiendo las palabras de Badwhiz en medio de su reflexion. "Encerradas en una caja de juguetes..."
+
+Ahora tenía sentido que aquel poni no hubiera podido responder cuando lo interrogaron tras capturarlo. Si ella hubiera estado en su lugar... probablemente tampoco habría sabido qué decir.
 
 
 
