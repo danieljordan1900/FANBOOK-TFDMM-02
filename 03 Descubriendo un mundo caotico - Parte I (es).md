@@ -214,7 +214,7 @@ Según las notas encontradas, solo habían pasado seis días desde que Badwhiz �
 
 Pero regresando al punto anterior anterior. La informacion que tenian era demasiado poca...
 
-Todas las exploraciones que Rainbow Dash había realizado desde entonces no hicieron más que confirmar lo que ya habian supuesto: no había salida de aquel lugar.
+Todas las exploraciones que Rainbow Dash había realizado desde el dia que llegaran no hicieron más que confirmar lo que ya habian descubierto en el diario.
 
 Applejack masculló entre dientes al recordar el rostro del poni de cabellera de color helado y las discusiones posteriores a su desaparicion.
 
