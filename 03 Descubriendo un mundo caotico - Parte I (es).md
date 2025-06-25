@@ -222,7 +222,7 @@ Applejack masculló entre dientes al recordar el rostro del poni de cabellera de
 
 Ahora tenía sentido que aquel poni no hubiera podido responder cuando lo interrogaron tras capturarlo. Si ella hubiera estado en su lugar... probablemente tampoco habría sabido qué decir.
 
-
+-> Applejack distrida
 
 
 
