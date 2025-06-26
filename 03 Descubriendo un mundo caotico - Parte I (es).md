@@ -204,6 +204,14 @@ Applejack tragó saliva.
 
 Inmensos muros, que terminaban en un techo plano, se alzaban cerca del horizonte. Eran de un pálido color amarillo que se fundía con un cielo pintado e inmóvil. Los muros cubrían los cuatro puntos cardinales, al igual que el cielo, formando así una gigantesca bóveda cúbica que encerraba a todas ellas junto con el pueblo entero.
 
+La superficie de los muros no era completamente lisa. A lo lejos, Applejack podía distinguir patrones regulares, casi como líneas de ensamblaje o marcas de moldeado, como si todo hubiera sido construido en una enorme fábrica. Algunas zonas mostraban desgastes falsos: arañazos pintados, grietas simuladas, como si alguien hubiera querido darle "carácter" a un decorado demasiado perfecto.
+
+El cielo tampoco era un verdadero cielo. No cambiaba de color, no tenía sol, ni luna, ni nubes. Solo una pátina azul pálida, casi desteñida, sin profundidad. No había viento. No había sonidos de aves. Ni siquiera zumbaban los insectos.
+
+Y el aire... el aire tenía algo antinatural. No olía a campo, ni a madera, ni a tierra. Era limpio, sí, pero de un modo clínico. Demasiado puro. Casi vacío.
+
+Applejack se estremeció.
+
 "Qué locura..." murmuró la poni granjera para sus adentros, alzando la vista, sintiéndose desorientada, como si estuviera atrapada en un sueño extraño y vívido.
 
 Y no era para menos.
