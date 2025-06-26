@@ -210,17 +210,25 @@ Y no era para menos. El lugar resultaba incomprensible para todas ellas, desde e
 
 Según las notas encontradas, solo habían pasado seis días desde que Badwhiz —junto con Twilight— había llegado a ese lugar. Al parecer, perseguidos por alguien muy peligroso, ambos lograron refugiarse allí a duras penas. Eso, más las anotaciones dispersas sobre los alimentos que habían traído consigo, y un mapa detallado del recinto, era toda la información que tenían.
 
-¿Por que el diario de Badwhiz que encontraron en la cocina se hallaba en tan mal estado que apenas era legible? Otra pregunta que no tenia respuesta.
+¿Por que el diario de Badwhiz que encontraron en la cocina se hallaba en tan mal estado que apenas era legible? ¿El mismo lo habia roto o alguien mas? Preguntas que no tenia respuesta.
 
-Pero regresando al punto anterior anterior. La informacion que tenian era demasiado poca...
+Pero regresando al punto anterior. La informacion que tenian era demasiado poca...
 
-Todas las exploraciones que Rainbow Dash había realizado desde el dia que llegaran no hicieron más que confirmar lo que ya habian descubierto en el diario.
+"No lo sé..." Applejack recordo las palabar del poni de cabellera de color helado y las  posteriores discusiones entre sus amigas a causa de su desaparicion. "Encerradas en una caja de juguetes..."
 
-Applejack masculló entre dientes al recordar el rostro del poni de cabellera de color helado y las discusiones posteriores a su desaparicion.
+Todas las exploraciones que Rainbow Dash había realizado desde ese dia no habian hecho mas que confirmar la primera impresion que habian tenido de aquel bizarro lugar. Eso, y que no habia ninguna salida a la vista.
 
-"No lo sé..." murmuró, repitiendo las palabras de Badwhiz en medio de su reflexion. "Encerradas en una caja de juguetes..."
+"Si se pudo entrar entonces, tambien debe poderse salir... ¿No?"
 
-Ahora tenía sentido que aquel poni no hubiera podido responder cuando lo interrogaron tras capturarlo. Si ella hubiera estado en su lugar... probablemente tampoco habría sabido qué decir.
+Habia pensado en ese momento y ahora tambien. Sin embargo la idea ya no le reconfortaba tanto como en un principio. Otros pensamientos comenzaban a invadirla.
+
+"¿Qué pasa Rainbow Dash no encuentra una salida? ¿Que tal si Twilight sello todas las salidas? ¿Que tal si nos quedamos atrapadas aquí para siempre?"
+
+En medio de un creciente mareo alimentado por sus temores, Applejack freno de pronto en seco sus ideas al sentir al percatarse de la mirada que caia sobre ella.
+
+A solo unos pasos, frente a ella, Fluttershy con el rostro descubierto, la miraba con profunda preocupacion.
+
+
 
 -> Applejack distrida
 
