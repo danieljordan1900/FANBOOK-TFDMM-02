@@ -192,41 +192,45 @@ Fue entonces cuando Applejack volvió su atención al mundo que la rodeaba. Por 
 
 No importaba cuántas veces lo mirara... seguía sin gustarle.
 
-Se encontraban a mitad del camino que salía desde el centro de Ponyville. O mejor dicho... de No-Ponyville.
+A mitad de un camino pintado en un suelo totalmente plano, Applejack recorrió con la mirada sus costados. Fachadas de casas, coloridas pero falsas, la saludaban con sus tonalidades plásticas. Tal vez, si estuviera lo suficientemente lejos de ellas, podría engañarse y pensar que estaba en el pueblo donde ella y sus amigas vivian. Pero desde esa distancia... era imposible ignorar la verdad de lo que estaba viendo.
 
-Incómoda, Applejack recorrió con la mirada ambos lados del sendero. Las fachadas de las casas, coloridas pero falsas, la saludaban con sus tonalidades plásticas. Tal vez, si estuviera lo suficientemente lejos de ellas, podría engañarse y pensar que estaba en su verdadero pueblo. Pero a esa distancia... era imposible ignorar la verdad de lo que estaba viendo.
+Una réplica a escala de Ponyville —un No-Ponyville— construido por completo de plástico. Incluso contaba con reproducciones artificiales de la granja de su familia y los campos de manzanas que ella cultivaba.
 
-Una réplica a escala de Ponyville, construida por completo de plástico. Incluso contenía reproducciones sintéticas de la granja de su familia y los campos de manzanas.
+"Raro..." pensó, haciendo una mueca.
 
-Raro, penso haciendo una mueca. Y como si eso no fuera lo suficientemente extraño, más allá de esos límites...
+Y como si eso no fuera lo suficientemente extraño, más allá de los límites del pueblo...
 
 Applejack tragó saliva.
 
-Inmensos muros, que terminaban en un techo plano, se alzaban cerca del horizonte. Eran de un pálido color amarillo que se fundía con un cielo pintado e inmóvil. Los muros cubrían los cuatro puntos cardinales del pueblo, al igual que el cielo, formando así una gigantesca bóveda cúbica que encerraba tanto a ellas como a todo el lugar.
+Inmensos muros, que terminaban en un techo plano, se alzaban cerca del horizonte. Eran de un pálido color amarillo que se fundía con un cielo pintado e inmóvil. Los muros cubrían los cuatro puntos cardinales, al igual que el cielo, formando así una gigantesca bóveda cúbica que encerraba a todas ellas junto con el pueblo entero.
 
-"Qué locura..." murmuró la poni granjera para sus adentros, sintiéndose desorientada al alzar la vista, como si estuviera atrapada en un sueño extraño y vívido.
+"Qué locura..." murmuró la poni granjera para sus adentros, alzando la vista, sintiéndose desorientada, como si estuviera atrapada en un sueño extraño y vívido.
 
-Y no era para menos. El lugar resultaba incomprensible para todas ellas, desde el momento en que descubrieron la verdadera forma del sitio días atrás. Le había costado mucho encontrarle un propósito. Al principio pensaron que era una prisión construida por sus enemigos, los Caballeros del Orden. Pero pronto se dieron cuenta de que no era así, gracias al hallazgo del diario de Badwhiz en la cocina. En él se detallaban pistas claras que revelaban lo desconocido e inexplicable que era aquel espacio incluso para sus propios creadores.
+Y no era para menos.
 
-Según las notas encontradas, solo habían pasado seis días desde que Badwhiz —junto con Twilight— había llegado a ese lugar. Al parecer, perseguidos por alguien muy peligroso, ambos lograron refugiarse allí a duras penas. Eso, más las anotaciones dispersas sobre los alimentos que habían traído consigo, y un mapa detallado del recinto, era toda la información que tenían.
+Desde que descubrieron la verdadera forma del sitio días atrás, el lugar había resultado incomprensible para todas. Le había costado mucho encontrarle un propósito. Al principio pensaron que se trataba de una prisión construida por sus enemigos, los Caballeros del Orden. Pero pronto comprendieron que no era así, gracias al sorprendente hallazgo del diario de Badwhiz en la cocina.
 
-¿Por que el diario de Badwhiz que encontraron en la cocina se hallaba en tan mal estado que apenas era legible? ¿El mismo lo habia roto o alguien mas? Preguntas que no tenia respuesta.
+En él se detallaban pistas que revelaban lo desconocido e inexplicable que resultaba aquel espacio para todos sus habitantes.
 
-Pero regresando al punto anterior. La informacion que tenian era demasiado poca...
+Según las notas encontradas, solo habían pasado seis días desde que Badwhiz —junto con Twilight— había llegado a ese lugar. Al parecer, estaban siendo perseguidos por alguien muy peligroso. Lograron refugiarse allí a duras penas, y pasaron los días siguientes recuperándose y cuidando de ellas. Eso, sumado a algunas anotaciones sobre los alimentos que habían traído consigo y un mapa detallado del recinto, constituía toda la información disponible.
 
-"No lo sé..." Applejack recordo las palabar del poni de cabellera de color helado y las  posteriores discusiones entre sus amigas a causa de su desaparicion. "Encerradas en una caja de juguetes..."
+¿Por qué el diario de Badwhiz estaba en tan mal estado que apenas podía leerse? ¿Lo había dañado él mismo... o alguien más? ¿Y cómo había logrado Twilight cuidar de cinco ponis adultas en coma mientras huían de una amenaza? Preguntas sin respuesta.
 
-Todas las exploraciones que Rainbow Dash había realizado desde ese dia no habian hecho mas que confirmar la primera impresion que habian tenido de aquel bizarro lugar. Eso, y que no habia ninguna salida a la vista.
+Pero volviendo al punto anterior, la información seguía siendo demasiado escasa...
 
-"Si se pudo entrar entonces, tambien debe poderse salir... ¿No?"
+"No lo sé..." murmuró Applejack, recordando las palabras del poni de cabellera color helado y las discusiones posteriores entre sus amigas tras su desaparición. "Encerradas en una caja de juguetes..."
 
-Habia pensado en ese momento y ahora tambien. Sin embargo la idea ya no le reconfortaba tanto como en un principio. Otros pensamientos comenzaban a invadirla.
+Rainbow Dash había dicho eso último. Y todas las exploraciones que había realizado desde entonces no habían hecho más que confirmar aquella primera y perturbadora impresión. También que no existía ninguna salida visible.
 
-"¿Qué pasa Rainbow Dash no encuentra una salida? ¿Que tal si Twilight sello todas las salidas? ¿Que tal si nos quedamos atrapadas aquí para siempre?"
+"Si se pudo entrar, entonces también debe poderse salir... ¿no?"
 
-En medio de un creciente mareo alimentado por sus temores, Applejack freno de pronto en seco sus ideas al sentir al percatarse de la mirada que caia sobre ella.
+Applejack lo había pensado en ese momento, y lo repetiría ahora. Sin embargo, la idea ya no le resultaba tan reconfortante como antes. Otros pensamientos comenzaban a invadirla.
 
-A solo unos pasos, frente a ella, Fluttershy con el rostro descubierto, la miraba con profunda preocupacion.
+"¿Qué pasa si Rainbow Dash no encuentra una salida? ¿Y si Twilight selló todas las entradas? ¿Y si nos quedamos atrapadas aquí para siempre?"
+
+Un mareo creciente, alimentado por sus temores, comenzó a envolverla. Pero Applejack frenó en seco sus pensamientos al notar algo: una mirada que se posaba sobre ella.
+
+A solo unos pasos, justo frente a ella, Fluttershy —ahora con el rostro descubierto— la observaba con profunda preocupación.
 
 
 
