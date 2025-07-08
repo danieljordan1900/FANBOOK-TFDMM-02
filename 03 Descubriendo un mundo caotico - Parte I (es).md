@@ -14,7 +14,7 @@ En efecto, era una sonrisa. Pero gigantesca y afilada, desplegándose nítida de
 
 Una figura inquietante, cuyos únicos rasgos visibles en la penumbra eran sus cuernos, garras e implacables ojos brillantes. Y ahora, también su recién descubierta sonrisa.
 
-Se trataba de la silueta de una bestia, cuya enigmática presencia solo era congruente con el desolado entorno en el que se hallaba.
+Se trataba de la silueta de una bestia, cia solo era congruente con el desolado entorno en el que se hallaba.
 
 Un estruendo constante, semejante al que provoca un huracán al tocar tierra, retumbaba a su alrededor. Por supuesto, no había ningún cielo ni, mucho menos, viento que lo justificara. Solo una negrura absoluta. Aquello, unido a la casi ingravidez, la ausencia de olores y de luz —con excepción del brillo tétrico que emanaba del meteórico suelo—, componía un escenario que, sin duda, ofrecía poca (o más bien ninguna) posibilidad de dicha.
 
@@ -22,7 +22,7 @@ Y, sin embargo, sobre la superficie del peñón púrpura que vagaba rumbo a la n
 
 Era la alegría de la bestia, que al fin había hallado la luz al final del túnel... literalmente.
 
-En el suelo rocoso se había abierto una enorme grieta, de cuya profundidad brotaba un resplandor tenue y familiar, que que hacía brillar los ojos y dientes de la criatura.
+En el suelo rocoso se había abierto una enorme grieta, de ba un resplandor tenue y familiar, que que hacía brillar los ojos y dientes de la criatura.
 
 ¿Cuánto tiempo le tomó horadar la roca sólida hasta forjar aquella insignificante fisura? La bestia no lo sabía, ni lo supo; la pregunta se desvaneció en cuanto las lágrimas de júbilo afloraron a sus enormes ojos.
 
@@ -164,29 +164,29 @@ Definitivamente, dejar a Rarity a cargo de la cocina era como vestir a un cerdo 
 
 [["¿Applejack? ¿Pasa algo?"]]
 
-"¡Hayyyyyyyyy!" exclamó la poni granjera, dando un salto del susto mientras giraba hacia la fuente de la voz.
+"¡Hayyyyyyyyy!" exclamó la poni granjera, dando un salto del susto mientras giraba hacia la fuente de la anormal voz.
 
-Allí estaba la figura de un poni enfundado en un traje de látex amarillo intenso. Su rostro era imposible de distinguir, oculto completamente bajo un casco hermético que zumbaba con el siseo constante de un respirador.
+Allí estaba la figura de un poni enfundado en un traje completo de látex amarillo intenso. Su rostro, imposible de distinguir detras de una ventanilla polarizada, era un cuadro negro en la superficie frontal del casco hermético que ocultaba su cabeza. El resto de su cuerpo, que parecia una sola pieza de plastico, sostenia en su espalda tanques de oxigeno que no paraban de zumbar con el siseo constante de un respirador entubado.
 
-[["Lo siento... no era mi intención asustarte, Applejack..."]]
+[["Lo siento... no era mi intención asustarte, Applejack..."]] continuo la voz.
 
 "Ahh ahh, no pasa nada, no pasa nada..." respondió Applejack, espabilándose. Se sintió algo tonta al recordar de quién se trataba. "Todo está bien... Fluttershy."
 
-Sí, era Fluttershy. Aunque su voz era muy distinta a la que todas estaban acostumbradas. El traje de protección distorsionaba su tono, volviéndolo grave. No de una forma natural, como lo haría una hiedra-bromista, sino más bien de una forma sintética y casi amenazante.
+Sí, era Fluttershy. Aunque su voz era muy distinta a la que todas estaban acostumbradas. El traje de protección distorsionaba su tono, volviéndolo grave. No de una forma natural, como lo haría una hiedra-bromista, sino más bien de una forma sintética y amenazante.
 
-Lo suficientemente amenazante como para erizarle el lomo a Applejack.
+Lo suficientemente amenazante como para erizarle el lomo a un poni como Applejack.
 
-"Ahh... por cierto, Fluttershy, ¿podrías quitarte ya ese casco? No creo que te esté ayudando mucho..." sugirió la poni granjera, echando un vistazo furtivo a los alrededores, como si temiera ver a una indignada Rarity aparecer de la nada.
+"Ahh... por cierto, Fluttershy, ¿podrías quitarte ya ese casco? No creo que te esté ayudando mucho..." sugirió la poni granjera, menos sorprendida pero mas alerta, echando un vistazo furtivo a los alrededores, como si temiera ver a una indignada Rarity aparecer de la nada.
 
 [["En realidad, creo que sí me está ayudando, Applejack..."]]
 
-"¿De verdad?"
+"¡¿De verdad?!"
 
-[["Sí. Al principio se sentía muy sofocante, pero ahora ya me estoy acostumbrando a él. Además, mi congestión nasal ha mejorado bastante. Creo que usar este traje y salir a tomar aire fresco era justo lo que necesitaba."]]
+[["Sí. Al principio se sentía muy sofocante, pero ahora ya me estoy acostumbrando a él. Además, mi congestión nasal ha mejorado bastante. Creo que usar este traje para salir a tomar aire fresco era justo lo que necesitaba."]]
 
-"Si tú lo dices..." murmuró Applejack, poco convencida. No solo porque Fluttershy seguía completamente aislada dentro de su traje (lo cual significaba que no estaba respirando ningún "aire fresco"), sino porque, siendo honestas... no había aire fresco. En absoluto.
+"Si tú lo dices..." murmuró Applejack, poco convencida. No solo porque Fluttershy al estar dentro del traje se hallaba completamente aislada (lo cual significaba que no estaba respirando ningún "aire fresco" de los alrrededores), sino porque, siendo honesta, en ese lugar no había ningun aire fresco. 
 
-Ni siquiera una brisa.
+En absoluto. Ni siquiera una brisa.
 
 Fue entonces cuando Applejack volvió su atención al mundo que la rodeaba. Por un instante, dejó de pensar en la cocina y observó con nuevos ojos el paisaje que se extendía a su alrededor.
 
