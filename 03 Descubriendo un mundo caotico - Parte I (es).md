@@ -144,39 +144,39 @@ Fuera de la vista y oido de todas, Pinkie Pie olfateaba con intensidad el vientr
 
 [---]
 
-"Salir a tomar un poco de aire fresco... brillante idea, ¿no es así, Applejack?" se cuestionó a sí misma la poni granjera, soltando un resoplido mientras trotaba por el supuesto 'ventilado exterior'.
+"Salir a tomar un poco de aire fresco... brillante idea, ¿no es así, Applejack?" se cuestionó a sí misma la poni granjera, soltando un resoplido.
 
-Acompañar a Fluttershy en su paseo había sido una excelente excusa para alejarse. No sabía si Rarity lo había entendido de esa forma o no, pero en cualquier caso, no se sentía cómoda con ella en la cocina. La atmósfera entre ambas solía volverse demasiado tensa cuando trabajaban juntas y eso sumado a la situacion en la que se encontraban (sin contar el alcohol flotando en el aire de la cocina), no quería estar ahí.
+Acompañar a Fluttershy en su paseo por el "ventilado exterior" no había sido más que una excusa para alejarse. No estaba segura de si Rarity lo había entendido de esa forma o no, pero, en cualquier caso, no se sentía cómoda con ella. La atmósfera entre ambas solía volverse demasiado espinosa cuando trabajaban juntas, y esa era una astilla que no quería en ese momento.
 
-Sin embargo, ahora que lo pensaba con más calma, empezaba a dudar si había sido buena idea dejarle el mando a ese par de ponis.
+No obstante, ahora que lo pensaba con más calma, empezaba a dudar si había sido buena idea dejarla a cargo de la cocina.
 
 "Pinkie Pie puede manejarlo... pero Rarity..." murmuró para sí misma.
 
-Podía confiar en que Pinkie prepararía un almuerzo decente, como lo había hecho los últimos días. Pero solo Celestia sabía qué tipo de propuesta culinaria podía idear su amiga unicornio, tan amante de lo "fabuloso". Y esa idea empezaba a inquietarla profundamente.
+Applejack podía confiar en que Pinkie prepararía un almuerzo decente, como lo había hecho los últimos días. Pero solo Celestia sabía qué tipo de propuesta culinaria podía idear su amiga unicornio, tan amante de lo "fabuloso".
 
-"Mientras no sea un buffet de cinco herraduras..." La imagen mental de una pasarela llena de platillos de todos los colores y tamaños ya desfilaba por su cabeza, justo cuando sus pasos comenzaron a detenerse.
+"Mientras no sea un buffet de cinco herraduras..." La imagen mental de una pasarela llena de platillos de todos los colores y tamaños ya desfilaba por su cabeza, al mismo tiempo que sus pasos comenzaban a detenerse.
 
-Sus temores no eran infundados. Había poca comida en la despensa. No tan poca como para acabarse mañana mismo, pero sin un racionamiento adecuado, en una semana —o menos— no quedaría nada.
+Los temores de la siempre responsable Applejack no eran infundados. Había poca comida en la despensa para ella y sus amigas. No tan poca como para acabarse mañana mismo, pero sin un racionamiento adecuado, en una semana —o menos— no tendrían nada.
 
-Definitivamente, dejar a Rarity a cargo de la cocina era como vestir a un cerdo con un elegante vestido y esperar que no lo ensuciara.
+Y en ese contexto, dejar a Rarity a cargo de la cocina era un grave error. Tanto como vestir a un cerdo con un elegante vestido de seda y esperar que no lo ensuciara.
 
-"Debo volver..." se dijo a sí misma, dándose media vuelta. Pero justo antes de dar un solo paso, una voz desconocida la interrumpió.
+"Debo volver..." se dijo a sí misma resuelta, dándose media vuelta. Justo antes de que una voz desconocida la interrumpiera.
 
 [["¿Applejack? ¿Pasa algo?"]]
 
-"¡Hayyyyyyyyy!" exclamó la poni granjera, dando un salto del susto mientras giraba hacia la fuente de la anormal voz.
+"¡Hayyyyyyyyy!" exclamó la poni granjera, dando un salto en el aire justo al mismo tiempo que giraba hacia la fuente de la anormal voz.
 
-Allí estaba la figura de un poni enfundado en un traje completo de látex amarillo intenso. Su rostro, imposible de distinguir detras de una ventanilla polarizada, era un cuadro negro en la superficie frontal del casco hermético que ocultaba su cabeza. El resto de su cuerpo, que parecia una sola pieza de plastico, sostenia en su espalda tanques de oxigeno que no paraban de zumbar con el siseo constante de un respirador entubado.
+Allí estaba la figura de un poni enfundado en un traje completo de látex amarillo intenso. Su rostro, imposible de distinguir detrás de una ventanilla polarizada, era un cuadro negro en la superficie frontal del casco hermético que ocultaba su cabeza. El resto de su cuerpo, que parecía una sola pieza de plástico, sostenía en la espalda unos tanques de oxígeno que no dejaban de zumbar, acompañados del siseo constante de un respirador entubado.
 
-[["Lo siento... no era mi intención asustarte, Applejack..."]] continuo la voz.
+[["Lo siento... no era mi intención asustarte, Applejack..."]] continuó la voz.
 
-"Ahh ahh, no pasa nada, no pasa nada..." respondió Applejack, espabilándose. Se sintió algo tonta al recordar de quién se trataba. "Todo está bien... Fluttershy."
+"Ahh, ahh, no pasa nada, no pasa nada..." respondió Applejack, espabilándose. Se sintió algo tonta al recordar de quién se trataba. "Todo está bien... Fluttershy."
 
-Sí, era Fluttershy. Aunque su voz era muy distinta a la que todas estaban acostumbradas. El traje de protección distorsionaba su tono, volviéndolo grave. No de una forma natural, como lo haría una hiedra-bromista, sino más bien de una forma sintética y amenazante.
+Sí, era Fluttershy. Aunque su voz era muy distinta a la que todas estaban acostumbradas. El traje de protección distorsionaba su tono, volviéndolo grave. No de una forma natural, como lo haría una hiedra-bromista, sino más bien de una forma sintética y ligeramente amenazante.
 
-Lo suficientemente amenazante como para erizarle el lomo a un poni como Applejack.
+Lo suficientemente amenazante como para erizarle el lomo a una poni tan curtida como Applejack.
 
-"Ahh... por cierto, Fluttershy, ¿podrías quitarte ya ese casco? No creo que te esté ayudando mucho..." sugirió la poni granjera, menos sorprendida pero mas alerta, echando un vistazo furtivo a los alrededores, como si temiera ver a una indignada Rarity aparecer de la nada.
+"Ahh... por cierto, Fluttershy, ¿podrías quitarte ya ese casco? No creo que te esté ayudando mucho..." sugirió la poni granjera, menos sorprendida pero más alerta, echando un vistazo furtivo a los alrededores, como si temiera que una indignada Rarity apareciera de la nada.
 
 [["En realidad, creo que sí me está ayudando, Applejack..."]]
 
@@ -184,7 +184,7 @@ Lo suficientemente amenazante como para erizarle el lomo a un poni como Applejac
 
 [["Sí. Al principio se sentía muy sofocante, pero ahora ya me estoy acostumbrando a él. Además, mi congestión nasal ha mejorado bastante. Creo que usar este traje para salir a tomar aire fresco era justo lo que necesitaba."]]
 
-"Si tú lo dices..." murmuró Applejack, poco convencida. No solo porque Fluttershy al estar dentro del traje se hallaba completamente aislada (lo cual significaba que no estaba respirando ningún "aire fresco" de los alrrededores), sino porque, siendo honesta, en ese lugar no había ningun aire fresco. 
+"Si tú lo dices..." respondio, poco convencida. No solo porque Fluttershy, al estar dentro del traje, se hallaba completamente aislada (lo cual significaba que no estaba respirando ningún "aire fresco" de los alrededores), sino porque, siendo honesta, en ese lugar no había ningun aire fresco de algun tipo.
 
 En absoluto. Ni siquiera una brisa.
 
@@ -192,13 +192,26 @@ Fue entonces cuando Applejack volvió su atención al mundo que la rodeaba. Por 
 
 No importaba cuántas veces lo mirara... seguía sin gustarle.
 
-A mitad de un camino pintado en un suelo totalmente plano, Applejack recorrió con la mirada sus costados. Fachadas de casas, coloridas pero falsas, la saludaban con sus tonalidades plásticas. Tal vez, si estuviera lo suficientemente lejos de ellas, podría engañarse y pensar que estaba en el pueblo donde ella y sus amigas vivian. Pero desde esa distancia... era imposible ignorar la verdad de lo que estaba viendo.
+Bajo una tenue luz que simulaba al sol, el par de amigas se hallaba a mitad de un camino pintado sobre un suelo completamente plano. A ambos lados, fachadas de casas —coloridas, pero falsas— las saludaban con sus tonalidades plásticas. Tal vez, si Applejack estuviera lo suficientemente lejos de ellas, podría engañarse y pensar que estaba en el pueblo donde ella y sus amigas vivían. Pero, desde esa distancia... era imposible ignorar la verdad de lo que estaba viendo.
 
-Una réplica a escala de Ponyville —un No-Ponyville— construido por completo de plástico. Incluso contaba con reproducciones artificiales de la granja de su familia y los campos de manzanas que ella cultivaba.
+Se encontraban dentro de una réplica a escala de Ponyville —un No-Ponyville— construido por completo de plástico, que incluso incluía reproducciones artificiales de la granja de su familia y los campos de manzanas que ella cultivaba.
 
-"Raro..." pensó, haciendo una mueca.
+"Raro..." masculló Applejack, haciendo una mueca.
 
-Y como si eso no fuera lo suficientemente extraño, más allá de los límites del pueblo...
+Y como si todo esto no fuera lo suficientemente extraño, más allá de los límites del pueblo...
+
+
+
+
+
+-> Applejack distrida
+
+
+
+
+
+[cambio de estructura narrativa, ya se mostro bastante al lector]
+
 
 Applejack tragó saliva.
 
@@ -239,14 +252,6 @@ Applejack lo había pensado en ese momento, y lo repetiría ahora. Sin embargo, 
 Un mareo creciente, alimentado por sus temores, comenzó a envolverla. Pero Applejack frenó en seco sus pensamientos al notar algo: una mirada que se posaba sobre ella.
 
 A solo unos pasos, justo frente a ella, Fluttershy —ahora con el rostro descubierto— la observaba con profunda preocupación.
-
-
-
--> Applejack distrida
-
-
-
-
 
 
 
