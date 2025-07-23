@@ -174,13 +174,13 @@ Allí estaba la figura de un poni enfundado en un traje completo de látex amari
 
 Sí, era Fluttershy. Aunque su voz era muy distinta a la que todas estaban acostumbradas. El traje de protección distorsionaba su tono, volviéndolo grave. No de una forma natural, como lo haría una hiedra-bromista, sino más bien de una forma sintética y ligeramente amenazante.
 
-Lo suficientemente amenazante como para erizarle el lomo a una poni tan curtida como Applejack.
+Lo suficientemente amenazante como para erizarle el pelo del lomo a una poni tan curtida como Applejack.
 
 "Ahh... por cierto, Fluttershy, ¿podrías quitarte ya ese casco? No creo que te esté ayudando mucho..." sugirió la poni granjera, menos sorprendida pero más alerta, echando un vistazo furtivo a los alrededores, como si temiera que una indignada Rarity apareciera de la nada.
 
 [["En realidad, creo que sí me está ayudando, Applejack..."]]
 
-"¡¿De verdad?!"
+"¡¿De verdad?!" respondio sorprendida
 
 [["Sí. Al principio se sentía muy sofocante, pero ahora ya me estoy acostumbrando a él. Además, mi congestión nasal ha mejorado bastante. Creo que usar este traje para salir a tomar aire fresco era justo lo que necesitaba."]]
 
@@ -192,13 +192,49 @@ Fue entonces cuando Applejack volvió su atención al mundo que la rodeaba. Por 
 
 No importaba cuántas veces lo mirara... seguía sin gustarle.
 
-Bajo una tenue luz que simulaba al sol, el par de amigas se hallaba a mitad de un camino pintado sobre un suelo completamente plano. A ambos lados, fachadas de casas —coloridas, pero falsas— las saludaban con sus tonalidades plásticas. Tal vez, si Applejack estuviera lo suficientemente lejos de ellas, podría engañarse y pensar que estaba en el pueblo donde ella y sus amigas vivían. Pero, desde esa distancia... era imposible ignorar la verdad de lo que estaba viendo.
+Bajo una tenue luz artificial que simulaba al sol, el par de amigas se hallaba a mitad de un camino pintado sobre un suelo completamente plano. A ambos lados, fachadas de casas —coloridas, pero falsas— las saludaban con sus tonalidades plásticas. Tal vez, si Applejack estuviera lo suficientemente lejos, podría engañarse y pensar que estaba en el mismo pueblo donde ella y sus amigas compartian numerosos recuerdos. Pero, desde esa distancia... era imposible ignorar la verdad de lo que estaba viendo.
 
-Se encontraban dentro de una réplica a escala de Ponyville —un No-Ponyville— construido por completo de plástico, que incluso incluía reproducciones artificiales de la granja de su familia y los campos de manzanas que ella cultivaba.
+Se encontraban dentro de una réplica a escala de un Ponyville construido por completo de plástico, un -No Ponyville- carente de alma que se extendia ampliamente no solo abarcando los edificios residenciales de la villa, si no tambien el perimetro agricola en sus alrrededores.
 
-"Raro..." masculló Applejack, haciendo una mueca.
+"Raro..." masculló Applejack, haciendo una mueca al notar a la distancia las reproducciones artificiales de la granja de su familia y los campos de manzanas que ella cultivaba.
 
-Y como si todo esto no fuera lo suficientemente extraño, más allá de los límites del pueblo...
+Ver toda esta imagen no hacia mas que alimentar la confusion en la mente de la poni granjera, que se preguntaba como algo asi podria existir, y como si aquella desconcertante maqueta de su hogar no fuera suficiente, mas alla de los limites conocidos del pueblo habian ... 
+
+Applejack trago saliva, retrocediendo un poco hacia atras, empujada por esa emocion que tantas veces la habia hecho tropezar.
+
+"¿Da miedo verdad?" pregunto Fluttershy de pronto. Pero esta vez Applejack no salto de la sorpresa, en cambio se volvio hacia su amiga con una expresion seria y sombria.
+
+Fluttershy, se encontraba sin su casco, con la melena descubierta pero con una expresion similar a la de Applejack.
+
+"Si...No entiendo nada de esto...¿Que es este lugar?"
+
+"No estoy segura... Pinkie Pie dijo en el desayuno que podria tratarse del mundo de los juguetes del que Discord hablaba tan amenudo, aunque... se siente menos divertido de como lo describia." respondio la pegaso recordando las vagas descripciones de su amigo draconiqus.
+
+"¿Mundo de juquetes? uhhh" Applejack reflexiono un momento la idea, parecia tener bastante sentido si Discord estaba metido en eso. Pero aceptar eso llevaba a otras preguntas: "Entonces ... si se trata de Discord... ¿Porque nos traeria a este lugar despues de lo que paso en el tren? ¿Donde esta el para empezar?"
+
+"No lo se Applejack, es solo una teoria de Pinkie, realmente no creo que Discord sea el culpable de todo esto." respondio Fluttershy, en un tono seguro.
+
+"Realmente... no estoy tratando de culparlo Fluttershy, es solo que todo en este lugar se siente muy propio de el... casi pensaria que se apodero de Equestria en nuestra ausencia." respondio Applejack, con una expresion algo de broma intentado relajar el ambiente. Pero la mirada de Fluttershy se endurecio.
+
+"El no es el culpable, Applejack. El cambio. Es nuestro amigo ahora." afirmo la pegaso sin apartar la "mirada" de su amiga.
+
+"Esta bien, esta bien!, el cambio, lo siento Fluttershy." respondio de inmediato, Applejack sintiendo el peso de la mirada de su amiga. Y como este desaparecia casi instantaneamente al terminar de disculparse.  "Ufff bueno. Discord no es el culpable, pero de todas formas si me gustaria que fuera el ... al menos asi tendriamos aqui a alguien conocido con quien tratar ..." respondio Applejack, en un tono mas deprimido mirando a la distancia.
+
+"Bueno ... a mi tambien me gustaria que el estuviera aqui." suspiro la pegaso mirando en otra direccion.
+
+Un momento de silencio se extendio entre las dos amigas, no habia viento y ni ruido en aquel mundo inanimado en el que estaban, aunque era tan colorido como podrian ser unos juquetes nuevos y daba la impresion que se pondria en movimiento en cualquier momento, se mantenia inmovil y no hacia mas que desprender una atmosfera de soledad para quienes lo contemplaban.
+
+Sintiendo lo denso se que se volvia el momento, Applejack descidio reiniciar la conversacion.
+
+"Y que piensas tu Fluttershy, ¿tienes alguna teoria propia?" pregunto sin voltearse.
+
+[["Mundo Liminal"]]  respondio la voz mecanica de Fluttershy. La pegaso nuevamente se habia vuelto a poner su casco.
+
+De su lado, los pelos en el lomo de Applejack volvieron a levantarse, aunque ya lo tenia controlado, la sensacion que le causaba esa voz no dejaba de inquietarle.
+
+
+
+
 
 
 
