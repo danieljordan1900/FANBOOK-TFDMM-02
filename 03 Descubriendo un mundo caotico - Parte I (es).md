@@ -192,7 +192,7 @@ En absoluto. Ni siquiera una brisa.
 
 Fue entonces cuando Applejack volvió su atención al mundo que la rodeaba. Por un instante, dejó de pensar en la cocina y observó con nuevos ojos el paisaje que se extendía a su alrededor.
 
-"No importaba cuántas veces lo mirara... seguía sin gustarle."
+No importaba cuántas veces lo mirara... seguía sin gustarle.
 
 Bajo una tenue luz artificial que simulaba al sol, el par de amigas se encontraba a mitad de un camino pintado sobre un suelo perfectamente plano. A ambos lados, fachadas de casas —coloridas, pero falsas— las saludaban con sus tonos plásticos y brillantes. Tal vez, si Applejack estuviera lo suficientemente lejos, podría engañarse pensando que estaba de vuelta en el pueblo donde ella y sus amigas habían compartido tantos recuerdos.
 
@@ -246,7 +246,7 @@ Un silencio asfixiante se extendió entre las dos. No había viento. Ni ecos de 
 
 Bajo la sombra de aquellos árboles, la soledad se manifestaba en siluetas planas de oscuridad degradada, exhalando un desánimo que lo envolvía todo.
 
-Sintiendo lo denso que se volvía el momento, Applejack decidió reiniciar la conversación.
+Sintiendo lo denso que se volvía el viaje, Applejack decidió reiniciar la conversación.
 
 "¿Y tú qué piensas, Fluttershy? ¿Tienes alguna teoría sobre este sitio?" preguntó sin voltear.
 
