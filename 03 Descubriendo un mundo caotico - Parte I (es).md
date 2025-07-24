@@ -256,13 +256,13 @@ La pegaso se había vuelto a poner el casco de su traje.
 
 Al frente, los pelos del lomo de Applejack se erizaron una vez más. Aunque ya estaba más acostumbrada, esa voz distorsionada seguía provocándole una incomodidad difícil de ocultar.
 
-"¿Liminal? ¿Es un tipo de plástico?" preguntó Applejack, agitando un poco la cola para intentar relajarse.
+"¿Liminal? ¿Es un tipo de plástico?" preguntó Applejack, agitando la cola para intentar relajarse.
 
 [[“Es más bien un adjetivo abstracto asociado al límite entre dos espacios... Es algo largo de explicar. Rarity casi se tomó toda la noche intentando hacérselo entender a Pinkie Pie.”]]
 
-"Ya veo... eso pasó." murmuró Applejack, alzando un poco la mirada. Recordaba poco de la conversacion con sus amigas la noche anterior, salvo unas imagenes borrosas antes de quedar dormida al inicio la acalorada explicación de su amiga.
+"¿eso pasó?" Applejack levanto una ceja. Recordaba poco de la conversacion con sus amigas la noche anterior, salvo unas imagenes borrosas antes de quedar dormida al inicio la acalorada explicación de su amiga.
 
-"Bueno, todavía tenemos un largo camino hasta llegar con Rainbow Dash, así que puedes explicármelo mientras tanto." afirmo la poni granjera, ajustandose un sombrero imaginario en la cabeza y avanzando mas resuelta por el camino.
+"Bueno, todavía tenemos un largo camino hasta llegar con Rainbow Dash, así que puedes explicármelo mientras tanto." afirmo la poni granjera, ajustandose un sombrero imaginario en su cabeza y avanzando mas resuelta por el camino.
 
 Asi, mbas amigas continuaron su caminata en medio del silencioso bosque de cartón.
 
