@@ -1,6 +1,6 @@
 [
     -> Edita el siguiente fragmento de mi fanfic de my little pony para corregir (la claridad) (la fluidez)
-    -> Respeta el uso de comillas dobles "" no las reemplaces.
+    -> Respeta el uso de comillas dobles "" y [[]] no las reemplaces.
     -> reestructura los parrafos si es necesario.
 ]
 
