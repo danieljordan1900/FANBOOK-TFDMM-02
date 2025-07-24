@@ -266,6 +266,8 @@ Al frente, los pelos del lomo de Applejack se erizaron una vez más. Aunque ya e
 
 Ambas amigas continuaron su caminata en medio del silencioso bosque de cartón.
 
+[---]
+
 
 
 
