@@ -1,3 +1,5 @@
+# Descubriendo un mundo caotico - Parte I (es)
+
 En un lugar indeterminado...
 
 Dentro de un vacío envuelto en oscuridad, un punto brillante se desplazaba en medio de la negrura más absoluta.
@@ -260,20 +262,14 @@ Al frente, los pelos del lomo de Applejack se erizaron una vez más. Aunque ya e
 
 [[“Es más bien un adjetivo abstracto, asociado al límite entre dos espacios... Es algo difícil de explicar. Rarity casi se tomó toda la noche intentando hacérselo entender a Pinkie Pie.”]]
 
-"¿¿Eso pasó??" Applejack levantó una ceja. Recordaba poco de la conversación con sus amigas la noche anterior, salvo unas imágenes borrosas antes de quedarse dormida al inicio de la acalorada explicación de su amiga.
+"¿¿Eso pasó??" Applejack levantó una ceja. Recordaba poco de la conversación con sus amigas la noche anterior, se encontraba muy cansada en ese momento, salvo unas imágenes borrosas de Rarity al inicio de su acalorada explicación... no tenia mucho que decir del tema.
 
-"Bueno, todavía tenemos un largo camino hasta llegar con Rainbow Dash, así que puedes explicármelo mientras tanto", afirmó la poni granjera, ajustándose un sombrero imaginario en su cabeza y avanzando más resuelta por el camino.
+"Bueno, todavía tenemos un largo camino que recorrer antes de llegar con Rainbow Dash, así que puedes explicarme todo sobre ese asunto mientras tanto", afirmó la poni granjera, ajustándose un sombrero imaginario en su cabeza y avanzando más animada delante de Fluttershy.
 
 Ambas amigas continuaron su caminata en medio del silencioso bosque de cartón.
 
 [---]
 
+Realmente estaba algo lejos de su hogar.
 
-
-
-
-
-
-
-
-
+[---]
