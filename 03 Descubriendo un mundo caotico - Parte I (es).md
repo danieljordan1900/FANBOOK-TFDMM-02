@@ -240,7 +240,7 @@ Pero la mirada de Fluttershy se endureció aún más.
 
 "Bueno... a mí también me gustaría que él estuviera aquí." suspiró Fluttershy, mirando en otra dirección.
 
-Sin decir nada más, ambas amigas reanudaron su trote por las calles vacías del falso Ponyville.
+Abstraidas por la realidad en la que se encontraban. Sin decir nada más, ambas amigas reanudaron su trote por las calles vacías del falso Ponyville.
 
 Un silencio asfixiante se extendió entre las dos. No había viento. Ni ecos de sus pasos. Solo ese mundo inanimado que parecía absorber todo ruido en su luminosa y colorida falsedad. Applejack, liderando el paso, continuó hasta alcanzar la salida del pueblo, donde el camino dejaba atrás las dispersas fachadas de casas para dar paso a un bosque frondoso, armado con cartones superpuestos unos sobre otros.
 
@@ -248,7 +248,7 @@ Bajo la sombra de aquellos árboles, la soledad se manifestaba en siluetas plana
 
 Sintiendo lo denso que se volvía el viaje, Applejack decidió reiniciar la conversación.
 
-"¿Y tú qué piensas, Fluttershy? ¿Tienes alguna teoría sobre este sitio?" preguntó sin voltear.
+"¿Y piensas en algo, Fluttershy? ¿Tienes alguna teoría sobre este sitio?" preguntó sin voltear.
 
 [[“Es un mundo liminal.”]] respondió Fluttershy con voz mecánica, desde atrás.
 
@@ -260,11 +260,11 @@ Al frente, los pelos del lomo de Applejack se erizaron una vez más. Aunque ya e
 
 [[“Es más bien un adjetivo abstracto asociado al límite entre dos espacios... Es algo largo de explicar. Rarity casi se tomó toda la noche intentando hacérselo entender a Pinkie Pie.”]]
 
-"Ya veo... eso pasó." murmuró Applejack, alzando un poco la mirada. Recordaba cómo se había quedado dormida al inicio de aquella acalorada explicación de su amiga.
+"Ya veo... eso pasó." murmuró Applejack, alzando un poco la mirada. Recordaba poco de la conversacion con sus amigas la noche anterior, salvo unas imagenes borrosas antes de quedar dormida al inicio la acalorada explicación de su amiga.
 
-"Bueno, todavía tenemos un largo camino hasta llegar con Rainbow Dash, así que puedes explicármelo mientras tanto."
+"Bueno, todavía tenemos un largo camino hasta llegar con Rainbow Dash, así que puedes explicármelo mientras tanto." afirmo la poni granjera, ajustandose un sombrero imaginario en la cabeza y avanzando mas resuelta por el camino.
 
-Ambas amigas continuaron su caminata en medio del silencioso bosque de cartón.
+Asi, mbas amigas continuaron su caminata en medio del silencioso bosque de cartón.
 
 
 
