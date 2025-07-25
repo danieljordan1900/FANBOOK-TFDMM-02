@@ -262,7 +262,7 @@ Al frente, los pelos del lomo de Applejack se erizaron una vez más. Aunque ya e
 
 [[“Es más bien un adjetivo abstracto, asociado al límite entre dos espacios... Es algo difícil de explicar. Rarity casi se tomó toda la noche intentando hacérselo entender a Pinkie Pie.”]]
 
-"¿¿Eso pasó??" Applejack levantó una ceja. Recordaba poco de la conversación con sus amigas la noche anterior, se encontraba muy cansada en ese momento, salvo unas imágenes borrosas de Rarity al inicio de su acalorada explicación... no tenia mucho que decir del tema.
+"¿¿Eso pasó??" Applejack levantó una ceja. Recordaba poco de la conversación con sus amigas la noche anterior. Se encontraba muy cansada en ese momento; apenas conservaba unas imágenes borrosas de Rarity al inicio de su acalorada explicación... No tenía mucho que decir del tema.
 
 "Bueno, todavía tenemos un largo camino que recorrer antes de llegar con Rainbow Dash, así que puedes explicarme todo sobre ese asunto mientras tanto", afirmó la poni granjera, ajustándose un sombrero imaginario en su cabeza y avanzando más animada delante de Fluttershy.
 
@@ -270,6 +270,12 @@ Ambas amigas continuaron su caminata en medio del silencioso bosque de cartón.
 
 [---]
 
-Realmente estaba algo lejos de su hogar.
+"Es una caja de juguetes..." asi era como habia descrito Rainbow Dash, en su primer vuelo, ese lugar.
+
+Desde lo alto de un acantilado amarillo, Applejack podia dar fe de ello. Estando a esa altura, el paisaje bajo ella se delinieaba en un cuadrado perfecto en su perimetro. Como si un pedaso del mundo hubiera sido cortado con un escudra y metida en una caja de proporciones titanicas, donde los lados internos de esta caja se extendian como inmensos muros de piedra en sus limites. Y no solo sus lados, sino el techo mismo de este, era un cielo petreo plano y perfecto, unicamente decorado por una inmensa luz electrica que iluminaba todo debajo de este.
+
+Sin fisuras, sin grietas o algun signo anomalo que permitiera pensar en un salida. Un mundo de juquetes hecho a medida ... en la cual estaban atrapadas sin salida...
+
+"No... si se pudo entrar tambien se puede salir" se dijo a si misma la poni granjera, mientras perdia su mirada en el bosque de carton, siguiendo el camino que acababa de recorrer hacia poco.
 
 [---]
