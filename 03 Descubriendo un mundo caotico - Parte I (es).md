@@ -270,12 +270,62 @@ Ambas amigas continuaron su caminata en medio del silencioso bosque de cartón.
 
 [---]
 
-"Es una caja de juguetes..." asi era como habia descrito Rainbow Dash, en su primer vuelo, ese lugar.
+"Es una... ¿caja de juguetes?" Así había descrito Rainbow Dash aquel lugar tras su primer vuelo.
 
-Desde lo alto de un acantilado amarillo, Applejack podia dar fe de ello. Estando a esa altura, el paisaje bajo ella se delinieaba en un cuadrado perfecto en su perimetro. Como si un pedaso del mundo hubiera sido cortado con un escudra y metida en una caja de proporciones titanicas, donde los lados internos de esta caja se extendian como inmensos muros de piedra en sus limites. Y no solo sus lados, sino el techo mismo de este, era un cielo petreo plano y perfecto, unicamente decorado por una inmensa luz electrica que iluminaba todo debajo de este.
+Desde lo alto de un mirador al borde de un acantilado, Applejack podía dar fe de ello. A esa altura, el paisaje bajo ella se delineaba en un impresionante cuadrado perfecto. Como si un pedazo del mundo hubiera sido cortado con una escuadra y metido en una caja de proporciones titánicas. Aquel escenario se extendía rodeado por cuatro inmensos muros de piedra que delimitaban los lados internos de aquella caja gigante. Y más allá, elevándose hasta muy arriba, los muros acababan abruptamente en un cielo pétreo, plano y perfecto, que servía como el homogéneo techo de esa estructura colosal.
 
-Sin fisuras, sin grietas o algun signo anomalo que permitiera pensar en un salida. Un mundo de juquetes hecho a medida ... en la cual estaban atrapadas sin salida...
+Sin fisuras, sin grietas, ni signos anómalos que permitieran pensar en una salida. Bajo un cielo artificial únicamente decorado por una inmensa luz eléctrica que iluminaba todo lo que se encontraba debajo. Se trataba a simple vista de una descomunal habitación de gigantes con un lindo mundo de juguetes hecho a medida en su suelo... un lindo mundo en el cual estaban atrapadas sin escape.
 
-"No... si se pudo entrar tambien se puede salir" se dijo a si misma la poni granjera, mientras perdia su mirada en el bosque de carton, siguiendo el camino que acababa de recorrer hacia poco.
+"No... si se pudo entrar, también se puede salir", se dijo a sí misma Applejack, mientras deslizaba su mirada sobre el bosque de cartón, siguiendo el camino que acababan de recorrer hacía poco.
+
+"Ehhmmm, Applejack... necesito algo de ayuda", imploró la voz de Fluttershy detrás de ella.
+
+"¿Uhmm?" Applejack se giró, y tardó menos de un segundo en moverse. Fluttershy, que se había rezagado en el paseo, acababa de tropezar con el último escalón de la escalera que conducía a la cima del mirador. Ahora, de alguna forma, se aferraba a la barandilla, peligrosamente al borde del acantilado.
+
+"¡Arriba!" En un rápido forcejeo, Applejack sacó a la pegaso de su predicamento, poniéndola a salvo sobre el firme suelo del mirador.
+
+"¡Gracias, Applejack! No sé qué habría hecho sin tu ayuda." agradecio la pegaso aliviada quitandose el sudor de su frente. Ya no llevaba puesto el casco de su traje.
+
+"¡De nada, dulzura!" respondió Applejack, acomodándose su sombrero imaginario sobre la cabeza. "Pero creo que tus alas también podrían ayudarte más que ese traje."
+
+"Ah... cierto..." Fluttershy miró apenada el traje de protección que llevaba puesto. A Applejack no le agradaba ese traje; sin embargo, daba la impresión de que Fluttershy se sentía muy cómoda con él.
+
+Sin deseos de iniciar una discusión con su amiga, Applejack se volvió hacia el objetivo final del paseo.
+
+Pegada a uno de los gigantescos muros de piedra que conformaban los límites de aquel mundo de juguetes, se alzaba una rústica caseta de madera, algo incongruente con el entorno artificial y colorido que la rodeaba. Quizá era una de las pocas construcciones que no estaban hechas de plástico o cartón. Tenía un aspecto desgastado, como si hubiera sido abandonada hacía mucho tiempo por sus propietarios. A los costados, varios carteles de guía indicaban su función, junto a un mapa completo del sitio. No había más detalles que la hicieran parecer un lugar más extraño que el resto.
+
+De hecho, se veía tan normal y familiar que al verla Applejack empezó a considerar quedarse allí el resto del día. Claro que para eso necesitaría el permiso de Rainbow Dash, quien ya había reclamado ese sitio como suyo...
+
+"Muy bien... espero que su humor haya mejorado desde la mañana..." murmuró Applejack para sí misma, acercándose a la caseta. Apenas había visto a su amiga ese día, y la última vez —durante el desayuno— aún se encontraba muy frustrada por no hallar una salida a aquel lugar.
+
+Frustración que había dejado clara al no saludar a sus amigas y marcharse abruptamente de la mesa, no sin antes dirigirse directamente a la despensa para llevarse las últimas raciones de avena que quedaban.
+
+"¡Rainbow Dash!" exclamó Applejack, tocando la puerta de la caseta. "Hemos venido a visitarte, ¿estás ahí?"
+
+Tanto Applejack como Fluttershy esperaban frente a la puerta la respuesta de su amiga. Pero, tras unos minutos de silencio, empezó a quedar claro que quizá la pegaso no estaba en casa.
+
+"¿Crees que no nos haya escuchado tocar la puerta?"
+
+"No lo creo, Fluttershy..." respondió Applejack, poco sorprendida. Aquella caseta no parecía estar tan bien construida como para ser insonora. Además, eran evidentes los huecos en su puerta, por donde se podía espiar el interior.
+
+No obstante... conociendo los hábitos de su amiga pegaso, no sería sorprendente que se hubiera quedado completamente dormida después de su segundo desayuno.
+
+"¡Rainbow Dash! Vamos a entrar. No te molestes con nosotras si no estás." Con esas palabras, y tras simplemente empujar la puerta, ambas amigas entraron al pequeño edificio.
+
+En su interior, el cuarto —tan austero como la puerta sin seguro— estaba sorprendentemente ordenado. Una mesa, una silla, una cama de madera y un armario pintado en la pared. Eso era todo lo que podía encontrarse. El espacio, aunque reducido, (ignorando la ventana que daba directamente a la pared de piedra detrás del edificio y el armario pintado en la pared) era casi completamente normal.
+
+Eso mas la completa ausencia de Rainbow Dash.
+
+Applejack fruncio el ceño, algo no estaba bien.
+
+"Se ve muy limpio..." observó Fluttershy, revisando el cuarto.
+
+"Sí, demasiado limpio..." respondió la poni granjera, sentándose pensativa en la silla frente a la mesa. Normalmente, esperaría encontrar algo de desorden en el cuarto de su amiga pegaso, tal como siempre ocurría cuando la visitaban en su casa en las nubes en Ponyville. Sin embargo, ahí no había nada de eso...
+
+Tras pensarlo un poco más, Applejack finalmente lo entendió.
+
+"Creo que... Rainbow nunca ha usado esta silla. De hecho, creo que nunca estuvo aquí dentro..." declaró, poniéndose de pie con expresión preocupada, al notar las astillas recientes en la silla y en la puerta, que ahora manchaban el suelo de la habitación.
+
+"Creo que tienes razón, Applejack. Tampoco están las cosas que le dimos anoche para que pudiera dormir cómoda", añadió la pegaso, señalando la cama de madera desnuda. "Pero si ella no ha estado aquí... ¿dónde está?"
 
 [---]
