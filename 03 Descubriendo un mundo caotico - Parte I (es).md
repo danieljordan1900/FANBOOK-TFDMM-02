@@ -270,7 +270,7 @@ Ambas amigas continuaron su caminata en medio del silencioso bosque de cartón.
 
 [---]
 
-"Es una... ¿caja de juguetes?" Así se había expresado Rainbow Dash sobre aquel lugar durante su primer vuelo.
+"Es una... ¿caja de juguetes?" Así se había expresado Rainbow Dash despues de su entonces primer vuelo sobre aquel lugar.
 
 Desde lo alto de un mirador, al borde de un acantilado, Applejack podía dar fe de ello. A esa altura, el paisaje bajo ella se delineaba en un impresionante cuadrado perfecto. Como si un pedazo del mundo hubiera sido cortado con una escuadra y metido en una caja de proporciones elefánticas. El escenario se extendía rodeado por cuatro inmensos muros de piedra que delimitaban los bordes interiores de aquella caja colosal. Más allá, elevándose muy por encima de su cabeza, los muros terminaban abruptamente en un cielo pétreo, plano y perfecto, que servía como techo homogéneo de la estructura.
 
