@@ -306,9 +306,9 @@ De hecho, se veía tan familiar que Applejack apenas verla empezó a considerar 
 
 "Espero que sí..." susurró Fluttershy detrás de ella.
 
-Era sabido por el grupo de amigas que Rainbow Dash no estaba pasando por un buen momento. La derrota ante los Caballeros del Orden pesaba sobre todas ellas, pero en especial sobre la leal pegaso. Aunque Applejack había intentado animarla, desde el día en que despertaron en ese extraño mundo, Rainbow Dash se había mostrado cada vez más distante con todas ellas.
+Era sabido por el grupo de amigas que Rainbow Dash no estaba pasando por un buen momento. La derrota ante los Caballeros del Orden pesaba sobre todas ellas, pero en especial sobre la leal pegaso. Aunque Applejack había intentado animarla, desde el día en que despertaron en ese extraño mundo, Rainbow Dash se había mostrado cada vez más distante con todas.
 
-Tanto así que, desde el día anterior, había empezado a dormir lejos de sus amigas, quienes aún permanecían en la falsa casa del árbol de Twilight.
+Tanto así que, para desazón de su amiga granjera, desde el día anterior, había empezado a dormir lejos de sus amigas, quienes aún permanecían en la falsa casa del árbol de Twilight.
 
 "¡Rainbow Dash!" exclamó Applejack, tocando la puerta de la caseta. "Hemos venido a visitarte, ¿estás ahí?"
 
@@ -330,27 +330,27 @@ Applejack frunció el ceño. Algo no cuadraba.
 
 "Se siente muy fresco y limpio..." comentó Fluttershy, olfateando el aire. El aroma nítido de la madera contrastaba con el olor a plástico al que se habían tenido que acostumbrar en los últimos días.
 
-Por otro lado, con una mirada sombría, Applejack observaba... alrededor.
+Por otro lado, con una mirada sombría, Applejack observaba alrededor.
 
 "Sí, demasiado limpio..." respondió con cierta inquietud, apoyando una pezuña sobre la silla. Tal vez era pronto para alarmarse, pero había esperado encontrar algo del característico desorden de Rainbow Dash, como el que solía haber en su casa de nubes en Ponyville.
 
-Entonces, al mirar el suelo con atención, un pensamiento inquietante cruzó la mente de Applejack
+Entonces, al mirar el suelo con atención, un pensamiento inquietante cruzó la mente de Applejack.
 
-"Fluttershy... ¿soy solo yo, o... ¡¿o somos las primeras en entrar a este lugar?!" exclamó alarmada, erguiendose de la silla rápidamente.
+"Fluttershy... ¿soy solo yo o... ¡¿o somos las primeras en entrar a este lugar?!" exclamó alarmada, erigiéndose de la silla rápidamente.
 
-"¿A qué te refieres?"
+"¿A qué te refieres?" preguntó Fluttershy, confundida.
 
-"¿No ves lo limpio que está? Ni siquiera hay huellas en el suelo..." señalo Applejack, apuntando al lustroso suelo bajo ellas.
+"¿No ves lo limpio que está? ¡Ni siquiera hay huellas en el suelo!" Applejack señaló con fuerza el piso brillante.
 
-"Tal vez... Rainbow Dash barrio antes de... ¿salir?" intento explicar Fluttershy.
+"Tal vez... Rainbow Dash barrió antes de salir", sugirió Fluttershy con una sonrisa débil.
 
-"¡Ella nunca hace eso!" exclamo Applejack, ahora más preocupada que antes. Tomando con fuerza a su amiga por los hombros.
+"¡Ella nunca hace eso!" exclamó Applejack, ahora más preocupada que antes, tomando con fuerza a su amiga por los hombros.
 
-"Uhhh... ehhhhmm... Applejack... tranquilízate." intento calmar Fluttershy a su amiga sin éxito. "Applejack, recuerda, Rainbow Dash nos dijo ayer que ya había revisado este sitio y que le pareció perfecto para ella... tú estabas ahí..."
+"Applejack... tranquilízate", intentó calmarla Fluttershy sin éxito. "Ayer Rainbow dijo que había revisado este lugar y que le pareció perfecto para ella... tú estabas ahí..."
 
-"Sí... y también dijo que solo podíamos entrar con su permiso. Pero, ¿tú la viste entrar?" cuestiono Applejack con rapidez.
+"Sí... y también dijo que solo podíamos entrar con su permiso. Pero, ¿tú la viste entrar?" cuestionó Applejack con rapidez.
 
-"Emmm... no..."
+"Emmm... creo que no..."
 
 "Después de la jornada de exploración... ¿alguna de las chicas la acompañó hasta aquí?"
 
@@ -358,6 +358,6 @@ Entonces, al mirar el suelo con atención, un pensamiento inquietante cruzó la 
 
 "¿Ves alguna de las cosas que se llevó anoche, antes de irnos a dormir?"
 
-"Emmm... no... ¡Ay!" exclamó Fluttershy, ahora tan preocupada como Applejack.
+"No... ¡Ay!" exclamó Fluttershy, ahora tan preocupada como Applejack.
 
 [---]
