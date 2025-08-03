@@ -316,7 +316,7 @@ No hubo respuesta. Tras unos minutos de silencio, empezaba a quedar claro que, m
 
 "¿Crees que no nos haya escuchado tocar la puerta?"
 
-"No lo creo, Fluttershy... esta madera no es tan gruesa", señaló Applejack, tocando la puerta con un casco. El edificio hecho de placas de madera unidas, no parecía insonorizado. De hecho, donde debía estar la perilla había un gran agujero, por donde era posible espiar el interior.
+"No lo creo, Fluttershy... esta madera no es tan gruesa", señaló Applejack, tocando la puerta con un casco. El edificio, hecho de placas de madera unidas, no parecía insonorizado. De hecho, donde debía estar la perilla había un gran agujero, por donde era posible espiar el interior.
 
 Ante la falta de respuesta, poco sorprendida, Applejack rodó los ojos. Conocía bien los hábitos de su amiga, y no necesitaba pensar mucho para suponer que, incluso a esa hora de la mañana, podría haberse vuelto a meter a la cama.
 
