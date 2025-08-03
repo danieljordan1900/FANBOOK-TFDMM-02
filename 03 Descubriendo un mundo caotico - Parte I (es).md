@@ -294,11 +294,11 @@ Perdida en sus preocupaciones, su mirada se deslizaba sobre el bosque de cartón
 
 Sin ánimo de discutir sobre eso, Applejack se giró hacia el objetivo del paseo.
 
-Pegada a uno de los enormes muros de piedra que marcaban los límites de aquel mundo artificial, se alzaba una rústica caseta de madera. Era una estructura incongruente con el entorno colorido de cartón y plástico a su alrededor. Siendo una de las pocas construcciones que no estaban hechas de estos materiales, la caseta de madera se destingía también por su aspecto envejecido, como si hubiera sido abandonada hacía mucho tiempo una vez terminado el lugar. 
+Pegada a uno de los enormes muros de piedra que marcaban los límites de aquel mundo artificial, se alzaba una rústica caseta de madera. Era una estructura incongruente con el entorno colorido de cartón y plástico a su alrededor. Siendo una de las pocas construcciones que no estaban hechas de estos materiales, la caseta de madera se destingía también por su aspecto envejecido y una superficie sin barnizar, como si hubiera sido abandonada hacía mucho tiempo una vez terminada su obra.
 
-A los costados, varios carteles indicaban su función, junto a un mapa de ese sector. 
+A los costados, varios carteles indicaban su función, junto a un mapa de ese sector.
 
-Sin nada mas que añadir, la imagen de refugio de normalidad que reflejaba la caseta permanecía imperturbable.
+Sin nada mas notable en sus cercanías, la imagen de refugio de normalidad que reflejaba la caseta permanecía imperturbable.
 
 De hecho, se veía tan familiar que Applejack apenas verla empezó a considerar quedarse allí el resto del día. Claro, si Rainbow Dash se lo permitía… ya que el día anterior había reclamado el lugar como suyo.
 
@@ -312,11 +312,11 @@ Tanto así que, para desazón de su amiga granjera, desde el día anterior, hab�
 
 "¡Rainbow Dash!" exclamó Applejack, tocando la puerta de la caseta. "Hemos venido a visitarte, ¿estás ahí?"
 
-No hubo respuesta. Tras unos minutos de silencio, empezaba a quedar claro que la pegaso muy probablemente no estaba en casa.
+No hubo respuesta. Tras unos minutos de silencio, empezaba a quedar claro que, muy probablemente, la pegaso no estaba en casa.
 
 "¿Crees que no nos haya escuchado tocar la puerta?"
 
-"No lo creo, Fluttershy... esta madera no es tan gruesa", señaló Applejack, tocando la puerta con un casco. El edificio no parecía insonorizado. De hecho, donde debía estar la perilla había un gran agujero, por donde era posible espiar el interior.
+"No lo creo, Fluttershy... esta madera no es tan gruesa", señaló Applejack, tocando la puerta con un casco. El edificio hecho de placas de madera unidas, no parecía insonorizado. De hecho, donde debía estar la perilla había un gran agujero, por donde era posible espiar el interior.
 
 Ante la falta de respuesta, poco sorprendida, Applejack rodó los ojos. Conocía bien los hábitos de su amiga, y no necesitaba pensar mucho para suponer que, incluso a esa hora de la mañana, podría haberse vuelto a meter a la cama.
 
