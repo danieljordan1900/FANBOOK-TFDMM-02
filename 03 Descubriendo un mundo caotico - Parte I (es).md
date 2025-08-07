@@ -342,9 +342,9 @@ Entonces, al mirar el suelo con atención, un pensamiento inquietante cruzó la 
 
 "¿No ves lo limpio que está? ¡Ni siquiera hay huellas en el suelo!" Applejack señaló con fuerza el piso brillante.
 
-"Tal vez... Rainbow Dash barrió antes de salir", sugirió Fluttershy con una sonrisa débil.
+"Tal vez... Rainbow Dash barrió antes de salir", sugirió Fluttershy con una timida seguridad.
 
-"¡Ella nunca hace eso!" exclamó Applejack, ahora más preocupada que antes, tomando con fuerza a su amiga por los hombros.
+"¡Ella nunca hace eso!" exclamó Applejack, ahora más preocupada que antes, tomando a su amiga por los hombros.
 
 "Applejack... tranquilízate", intentó calmarla Fluttershy sin éxito. "Ayer Rainbow dijo que había revisado este lugar y que le pareció perfecto para ella... tú estabas ahí..."
 
