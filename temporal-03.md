@@ -90,3 +90,36 @@ Mas precisamente, ningun residente 'vivo' en el lugar.
 
 
 
+Applejack frunció el ceño. Algo no cuadraba.
+
+"Se siente muy fresco y limpio..." comentó Fluttershy, olfateando el aire. El aroma nítido de la madera contrastaba con el olor a plástico al que se habían tenido que acostumbrar en los últimos días.
+
+Por otro lado, con una mirada sombría, Applejack observaba alrededor.
+
+"Sí, demasiado limpio..." respondió con cierta inquietud, apoyando una pezuña sobre la silla. Tal vez era pronto para alarmarse, pero había esperado encontrar algo del característico desorden de Rainbow Dash, como el que solía haber en su casa de nubes en Ponyville.
+
+Entonces, al mirar el suelo con atención, un pensamiento inquietante cruzó la mente de Applejack.
+
+"Fluttershy... ¿soy solo yo o... ¡¿o somos las primeras en entrar a este lugar?!" exclamó alarmada, erigiéndose de la silla rápidamente.
+
+"¿A qué te refieres?" preguntó Fluttershy, confundida.
+
+"¿No ves lo limpio que está? ¡Ni siquiera hay huellas en el suelo!" Applejack señaló con fuerza el piso brillante.
+
+"Tal vez... Rainbow Dash barrió antes de salir", sugirió Fluttershy con una timida seguridad.
+
+"¡Ella nunca hace eso!" exclamó Applejack, ahora más preocupada que antes, tomando a su amiga por los hombros.
+
+"Applejack... tranquilízate", intentó calmarla Fluttershy sin éxito. "Ayer Rainbow dijo que había revisado este lugar y que le pareció perfecto para ella... tú estabas ahí..."
+
+"Sí... y también dijo que solo podíamos entrar con su permiso. Pero, ¿tú la viste entrar?" cuestionó Applejack con rapidez.
+
+"Emmm... creo que no..."
+
+"Después de la jornada de exploración... ¿alguna de las chicas la acompañó hasta aquí?"
+
+"Emmm... no..."
+
+"¿Ves alguna de las cosas que se llevó anoche, antes de irnos a dormir?"
+
+"No... ¡Ay!" exclamó Fluttershy, ahora tan preocupada como Applejack.
