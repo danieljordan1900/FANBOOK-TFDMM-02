@@ -318,52 +318,77 @@ No hubo respuesta. Tras unos minutos de silencio, empezaba a quedar claro que, m
 
 "No lo creo, Fluttershy... esta madera no es tan gruesa", señaló Applejack, tocando la puerta con un casco. El edificio, hecho de placas de madera unidas, no parecía insonorizado. De hecho, donde debía estar la perilla había un gran agujero, por donde era posible espiar el interior.
 
-Ante la falta de respuesta, poco sorprendida, Applejack rodó los ojos. Conocía bien los hábitos de su amiga, y no necesitaba pensar mucho para suponer que, incluso a esa hora de la mañana, podría haberse vuelto a meter a la cama.
+Ante la falta de respuesta, nada sorprendida, Applejack rodó los ojos. Conocía bien los hábitos de su amiga y no necesitaba pensar demasiado para suponer que, incluso a esa hora de la mañana, podría haberse vuelto a meter en la cama.
 
-"¡Rainbow Dash! Vamos a entrar. No te enojes con nosotras si no estás", advirtió. Entonces, con solo empujar la puerta, ambas ingresaron a la caseta.
+"¡Rainbow Dash! Vamos a entrar. No te enojes con nosotras si no estás", advirtió. Con un simple empujón, ambas ingresaron a la caseta.
 
-Por dentro, el cuarto de Rainbow Dash —el único cuarto— estaba sorprendentemente ordenado. Dentro de este, había una mesa, una silla, una cama de madera y un armario pintado en la pared y...nada más. El espacio era reducido y funcional. Sin mostrar señales de algo fuera de lugar...
+Por dentro, el cuarto de Rainbow Dash —el único dentro de la caseta— estaba sorprendentemente ordenado. Una mesa, una silla, una cama y un armario pintado en la pared… nada más. El espacio era reducido y funcional, sin mostrar señales de alguna anormalidad.
 
-Excepto por la total ausencia de la propia Rainbow Dash.
+Excepto por la ausencia total de Rainbow Dash.
 
-Tras dar solo unos pasos, Applejack se detuvo levantando una ceja. Algo no cuadraba.
+Tras dar apenas unos pasos, Applejack se detuvo y alzó una ceja. Algo no cuadraba.
 
-"Aqui se siente muy fresco y limpio..." comentó Fluttershy, olfateando el aire. El aroma nítido de la madera contrastaba con el olor a plástico al que se habían tenido que acostumbrar en los últimos días.
+"Aquí se siente muy fresco y limpio..." comentó Fluttershy, olfateando el aire. El aroma nítido de la madera contrastaba con el olor a plástico al que se habían acostumbrado en los últimos días.
 
-Por su lado, Applejack continuo observando a su alrededor con atención.
+Applejack continuó observando con atención.
 
-"Sí, demasiado limpio..." respondió con cierta inquietud, apartando con su pezuña el plumero limpio que yacía sobre la mesa cercana. Tal vez era pronto para alarmarse, pero había esperado encontrar algo del característico desorden de Rainbow Dash, como el que solía haber en su casa de nubes en Ponyville.
+"Sí… demasiado limpio", respondió con cierta inquietud, apartando con la pezuña un plumero impecable que descansaba sobre la mesa. Había esperado encontrar algo del característico caos de Rainbow Dash, como en su casa de nubes en Ponyville.
 
-Entonces, mientras Fluttershy acomodaba unas flores de plastico que habia traído consigo en el florero vacio a lado de la supuesta cama de Rainbow Dash, Applejack se dio cuenta de lo obvio frente a ella.
+Mientras Fluttershy acomodaba unas flores de plástico que había traído en un florero vacío junto a la cama, Applejack se dio cuenta de lo obvio.
 
-"Espera un momento ...Fluttershy, ¿soy solo yo o... somos las primeras en estar en este lugar?" exclamó Applejack, frunciendo el ceño.
+"Espera un momento… Fluttershy, ¿soy solo yo o… somos las primeras en entrar aquí?" dijo frunciendo el ceño.
 
-Ante la revelacion, tanto Fluttershy como Applejack se miraron entre si con con una mescla de sorpresa y preocupacion. Dominadas por el mismo pensamiento, sin perder un instante, Applejack comenzo a revisar los cajones de la mesa a lado suyo. Mientras Fluttershy, por su parte, hacia lo mismo con la cama de madera.
+Ante la revelación, ambas se miraron con una mezcla de sorpresa y preocupación. Sin perder tiempo, Applejack revisó los cajones de la mesa cercana, mientras Fluttershy inspeccionaba la cama de madera.
 
-El resultado de la revisión fue inmediato, confirmando lo que ambas ponis ya temian.
+El resultado fue inmediato, confirmando lo que temían.
 
-"Estas almohadas y sábanas no son las que le dimos a Rainbow Dash anoche, son solo ... yeso", exclamó Fluttershy, preocupada.
+"Estas almohadas y sábanas no son las que le dimos anoche. Son solo… yeso", exclamó Fluttershy, preocupada.
 
-"Aca tampoco no ahi nada del desayuno que Rainbow Dash se llevo en la mañana, solo ¡Plumeros!", añadió Applejack, frustrada. Muy temprano ese dia, su malhumorada amiga se marchaba de la mesa del comedor de la cocina con termo de agua caliente y una bolsa completa de avena tostada.
+"Aquí tampoco hay nada del desayuno que Rainbow Dash se llevó en la mañana, ¡solo plumeros!", añadió Applejack, frustrada. Recordaba bien cómo, temprano ese día, su amiga se marchaba de la cocina con un termo de agua caliente y una bolsa entera de avena tostada.
 
-"Y el armario...", señaló Fluttershy, hacia el dibujo del mueble en la pared.
+"¿Y el armario?" señaló Fluttershy hacia el dibujo del mueble en la pared.
 
-"Ughhhhhhhh!" exclamó Applejack en respuesta, dejando salir asi un poco del enojo que empezaba a crecer en su interior.
+"Ughhhhhhhh!" fue lo único que Applejack pudo responder, dejando escapar parte del enojo que crecía en su interior.
 
-Era tan evidente...
+"Upss... lo siento", murmuró Fluttershy dandose cuenta de su tonta observación. "Pero...no lo entiendo. Rainbow Dash nos dijo ayer que había revisado este lugar y que le había parecido perfecto para ella", recordó la timida pegaso, aludiendo a la exploración del día anterior.
 
-"No... lo entiendo, Rainbow Dash ayer nos dijo que había revisado este lugar y que le habia parecido perfecto para ella" se cuestiono Fluttershy en voz alta, recordando la exploracion habia hecho con sus amigas el dia anterior.
+Sin embargo, para Applejack, que también estuvo allí, la conclusión era clara.
 
-Pero para Applejack, estaba claro lo que realmente estaba pasando.
+"Mintió", declaró severa. "¡Rainbow Dash no revisó este lugar! Ni siquiera entró."
 
-"Mintio" exclamo severa Applejack, "¡Rainbow Dash no reviso este lugar! Ni siquiera entro en el."
+"Pero… ¿por qué nos mentiría?" preguntó Fluttershy.
 
-"Pero ... porque nos mentiria?", preguntó Fluttershy.
+"Porque quiere estar sola", respondió Applejack. "Quiere resolver las cosas a su manera. A la manera 'Rainbow'." Pisoteó con fuerza el suelo de madera.
 
-"Porque quiere estar sola", respondió Applejack, "Quiere resolver las cosas por su cuenta. A la manera 'Rainbow'" termino de decir la poni pisoteando con fuerza el suelo de madera.
+Applejack estaba molesta. La noche anterior, tras una jornada infructuosa, había intentado animar a su amiga una vez más… solo para recibir la noticia de que ya no dormiría con ellas.
 
-Applejack estaba molesta. La noche anterior, despues de la infructifera jornada de exploracion, habia intentado animar a su amiga una vez mas, solo para darse con la noticia que ella ya no estaria mas con ellas.
+Tras un intercambio nada amistoso de palabras y la tozudez de la pegaso, Applejack le dio su aprobación solo para guardar las apariencias. Ahora se arrepentía de su decisión.
 
+"Le advertí que no era momento para juegos entre nosotras, no con la situación como está…" murmuró, casi para sí misma, mientras trotaba con intensidad por la habitación.
 
+"Ehmm… Applejack…"
+
+"Se supone que deberíamos estar juntas hasta asegurarnos de que estemos en un lugar seguro y encontrar a Twilight, ¿no?" dijo, mirando a Fluttershy.
+
+"Applejack…"
+
+"'Estás siendo muy maternal, Applejack', 'Sé cuidarme sola, Applejack', '¡No eres divertida sin tu sombrero, Applejack!'. ¡Uhhh!" relinchó, golpeando el suelo con fuerza. Ante una sorprendida y cada vez más ignorada Fluttershy, dejaba escapar la frustración que Rainbow Dash le había provocado en los últimos días.
+
+"Pero no más. Esta poni sabe cuándo arrear a sus ovejas. ¡Rainbow va a escucharme!"
+
+"¡Applejack!" gritó Fluttershy, deteniéndola justo antes de que saliera de la habitación.
+
+"¡¿Qué?!" respondió aún molesta.
+
+"¡Escucha!" dijo la pegaso, alzando la mirada hacia el techo.
+
+Al principio, Applejack no escuchaba nada. Pero poco a poco, tras agitar un poco sus orejas, comenzó a percibir un ruido extraño. Un sonido ligero como el que haria el aleteo de una abeja cerca a una ventana.
+
+Eso y tambien un olor dulce, que definitivamente no provenia de la madera en las paredes...
+
+Segundos despues ambas ponis habian salido de la caseta, dejando atras unas flores de plástico y un suave aroma a desayuno filtrandose por la puerta entreabierta.
 
 [---]
+
+A lado de la caseta que Rainbow Dash había ocupado, habia una escal 
+
