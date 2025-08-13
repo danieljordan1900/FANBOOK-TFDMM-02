@@ -274,17 +274,17 @@ Desde lo alto de un mirador, al borde de un acantilado, Applejack contemplaba el
 
 "Es una... ¿caja de juguetes?" había dicho Rainbow Dash poco después de su primer vuelo sobre aquel lugar.
 
-A esa altura, Applejack podía dar fe de ello. El paisaje bajo sus patas se extendía en un cuadrado perfecto, como si un trozo de mundo hubiera sido recortado con una escuadra y colocado dentro de una caja de proporciones elefanticas. El terreno se prolongaba sin obstáculos hasta chocar con los cuatro inmensos muros de piedra que formaban los bordes interiores de aquella inmensa estructura.
+A esa altura, Applejack podía dar fe de ello. El paisaje bajo sus patas se extendía en un cuadrado perfecto, como si un trozo de mundo hubiera sido recortado con una escuadra y colocado dentro de una caja de proporciones elefánticas. El terreno se prolongaba sin obstáculos hasta chocar con los cuatro inmensos muros de piedra que formaban los bordes interiores de aquella inmensa estructura.
 
 Y arriba, muy arriba, esos muros terminaban de forma abrupta contra un cielo pétreo, plano y perfecto: un techo artificial. Un techo que tanto como los muros, no mostraba grietas, ni fallas, ni la más mínima señal de una posible salida. Solo, en su centro, una enorme luz eléctrica bañaba todo con un brillo enigmático de tono limón.
 
-Sí... una caja de juguetes. ¿En qué otra cosa mas podria pensar la sencilla Applejack? La poni granjera siguió reflexionando.
+Sí... era una caja de juguetes. Una muy grande caja de juguetes. ¿En qué otra cosa mas podria pensar la sencilla Applejack? La poni granjera siguió reflexionando.
 
-También podía pensar que aquello se asemejaba a la habitación de un gigante, con un mundo de juguetes cuidadosamente dispuesto en el suelo… un mundo lindo, sí, pero del que no podían escapar.
+También podía tratarse de la habitación de un gigante, con un mundo de juguetes cuidadosamente dispuesto en el suelo… un mundo lindo, sí, pero del que no podían escapar.
 
-"No... si se pudo entrar, también se puede salir", se repitió Applejack, intentando convencerse. Ya antes se había dicho lo mismo, pero la frase comenzaba a perder fuerza. Tras varios días de exploración infructuosa, otros pensamientos, más inquietantes, empezaban a colarse en su mente.
+"No... si se pudo entrar, también se puede salir", se repitió Applejack, intentando convencerse. Ya antes se había dicho lo mismo, pero la frase comenzaba a perder fuerza. Tras varios días de exploración infructuosa, otros pensamientos, más negativos, empezaban a colarse en su mente.
 
-"Tienes las riendas en tus cascos Applejack ... mientras que no haya gigantes", murmuró para sí misma.
+"Twilight no esta... tu tienes las riendas en tus cascos Applejack... puedes manejarlo, mientras que no haya gigantes", murmuró para sí misma.
 
 Perdida en sus preocupaciones, dejó que su mirada se deslizara sobre el bosque de cartón, siguiendo el camino que ella y Fluttershy habían recorrido rumbo a...
 
@@ -308,7 +308,7 @@ Applejack giró de inmediato. Fluttershy, que venía algo rezagada, acababa de t
 
 Sin ánimo de discutir sobre eso, Applejack se giró hacia el objetivo del paseo.
 
-Pegada a uno de los enormes muros de piedra que marcaban los límites de aquel mundo artificial, se alzaba una rústica caseta de madera. Era una estructura incongruente con el entorno colorido de cartón y plástico a su alrededor. Siendo una de las pocas construcciones que no estaban hechas de estos materiales, la caseta de madera se destingía también por su aspecto envejecido y una superficie sin barnizar, como si hubiera sido abandonada hacía mucho tiempo una vez terminada su obra.
+Pegada a uno de los enormes muros de piedra que marcaban los límites de aquel mundo artificial, se alzaba una rústica caseta de madera. Era una estructura incongruente con el entorno colorido de materiales de cartón y plástico a su alrededor. Siendo una de las pocas construcciones que no estaban hechas de estos materiales, la caseta de madera se destingía también por su aspecto envejecido y una superficie sin barnizar, como si hubiera sido abandonada hacía mucho tiempo una vez terminada su obra.
 
 A los costados, varios carteles indicaban su función, junto a un mapa de ese sector.
 
@@ -368,7 +368,7 @@ El resultado confirmó lo que temían.
 
 "Ughhhhhhhh!" fue lo único que Applejack pudo responder, dejando escapar parte del enojo que crecía en su interior.
 
-"Upss... lo siento", murmuró Fluttershy dandose cuenta de su tonta observación. "Pero...no lo entiendo. Rainbow Dash nos dijo ayer que había revisado este lugar y que le había parecido perfecto para ella", recordó la timida pegaso, aludiendo a la exploración del día anterior.
+"Upss... lo siento", murmuró Fluttershy dándose cuenta de su tonta observación. "Pero...no lo entiendo. Rainbow Dash nos dijo ayer que había revisado este lugar y que le había parecido perfecto para ella", recordó la timida pegaso, aludiendo a la exploración del día anterior.
 
 Sin embargo, para Applejack, que también estuvo allí, la conclusión era clara.
 
@@ -404,7 +404,7 @@ Al principio, Applejack no percibía nada. Pero poco a poco, al contraer su prop
 
 Era un olor dulce, familiar… y definitivamente no provenía de las paredes de madera.
 
-Un aroma a desayuno.
+Un aroma al desayuno favorito de Rainbow Dash.
 
 Segundos después, ambas ponis habían abandonado la caseta, dejando atrás unas flores de plástico y un suave aroma a wafles de avena filtrándose por la puerta entreabierta.
 
