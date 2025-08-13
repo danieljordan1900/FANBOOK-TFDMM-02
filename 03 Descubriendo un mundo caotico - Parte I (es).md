@@ -278,7 +278,7 @@ A esa altura, la poni granjera podía dar fe de ello. El paisaje bajo sus patas 
 
 Y arriba, muy arriba, esos muros terminaban de forma abrupta contra un cielo pétreo, plano y perfecto: un techo artificial. Un techo que tanto como los muros, no mostraba grietas, ni fallas, ni la más mínima señal de una posible salida. Solo, en su centro, una enorme luz eléctrica bañaba todo con un brillo enigmático de tono limón.
 
-Sí... era una caja de juguetes. Una muy grande caja de juguetes. ¿En qué otra cosa mas podria pensar la sencilla Applejack? La poni siguió reflexionando.
+Sí... era una caja de juguetes. Una caja de juguetes muy grande... ¿En qué otra cosa mas podria pensar la sencilla Applejack? La poni siguió reflexionando.
 
 También podía tratarse de la habitación de un gigante, con un mundo de juguetes cuidadosamente dispuesto en el suelo… un mundo lindo, sí, pero del que no podían escapar.
 
