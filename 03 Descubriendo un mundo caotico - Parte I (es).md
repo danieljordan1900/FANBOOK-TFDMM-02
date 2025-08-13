@@ -1,4 +1,4 @@
-# Descubriendo un mundo caotico - Parte I (es)
+# Descubriendo un mundo caótico - Parte I (es)
 
 En un lugar indeterminado...
 
@@ -24,7 +24,7 @@ Y, sin embargo, sobre la superficie del peñón púrpura que vagaba rumbo a la n
 
 Era la alegría de la bestia, que al fin había hallado la luz al final del túnel... literalmente.
 
-En el suelo rocoso se había abierto una enorme grieta, de ba un resplandor tenue y familiar, que que hacía brillar los ojos y dientes de la criatura.
+En el suelo rocoso se había abierto una enorme grieta, de la cual emanaba un resplandor tenue y familiar, que hacía brillar los ojos y dientes de la criatura.
 
 ¿Cuánto tiempo le tomó horadar la roca sólida hasta forjar aquella insignificante fisura? La bestia no lo sabía, ni lo supo; la pregunta se desvaneció en cuanto las lágrimas de júbilo afloraron a sus enormes ojos.
 
@@ -138,17 +138,19 @@ Algo extrañadas por esto, pero no tanto, las otras dos ponis comenzaron a dirig
 
 "Oh... uh... pero..." comenzó a decir Fluttershy, pero al notar la mirada decidida de Rarity, se calló. "Está bien... supongo."
 
-La conversacion en la cocina continuo. Pero al mismo tiempo ...
+La conversación en la cocina continuo. Pero al mismo tiempo ...
 
-Fuera de la vista y oido de todas, Pinkie Pie olfateaba con intensidad el vientre oculto de la mesa, rozando con la punta de su nariz la superficie plástica y dura de esta. Tal como haria un sabueso buscando a su presa. Sumida en este trance extraño, murmuraba con una voz susurrante apenas audible:
+Fuera de la vista y oído de todas, Pinkie Pie olfateaba con intensidad el vientre oculto de la mesa, rozando con la punta de su nariz la superficie plástica y dura de esta. Tal como haría un sabueso buscando a su presa. Sumida en este trance extraño, murmuraba con una voz susurrante apenas audible:
 
 "Sé que estás ahí, pequeño... no puedes esconderte del olfato de Pinkie Pie... mi precioso..." terminó, casi relamiéndose los labios.
 
 [---]
 
-"Salir a tomar un poco de aire fresco... brillante idea, ¿no es así, Applejack?" se cuestionó a sí misma la poni granjera, soltando un resoplido.
+Los ecos de la cocina, así como el intenso aroma a alcohol, se habían quedado atrás hacía varios minutos.
 
-Acompañar a Fluttershy en su paseo por el "ventilado exterior" no había sido más que una excusa para alejarse. No estaba segura de si Rarity lo había entendido de esa forma o no, pero, en cualquier caso, no se sentía cómoda con ella. La atmósfera entre ambas solía volverse demasiado espinosa cuando trabajaban juntas, y esa era una astilla que no quería clavarse en ese momento.
+"Salir a tomar un poco de aire fresco... brillante idea", se dijo Applejack con un resoplido en medio de la caminata.
+
+Acompañar a Fluttershy en su paseo por el "ventilado exterior" no había sido más que una excusa para alejarse. No estaba segura de sí Rarity lo había entendido de esa forma o no, pero, en cualquier caso, no se sentía cómoda con ella. La atmósfera entre ambas solía volverse demasiado espinosa cuando trabajaban juntas, y esa era una astilla que no quería clavarse en ese momento.
 
 No obstante, ahora que lo pensaba con más calma, empezaba a dudar si había sido buena idea dejarla a cargo de la cocina.
 
@@ -160,7 +162,7 @@ Applejack podía confiar en que Pinkie prepararía un almuerzo decente, como lo 
 
 Los temores de la siempre responsable Applejack no eran infundados. Había poca comida en la despensa para ella y sus amigas. No tan poca como para acabarse mañana mismo, pero sin un racionamiento adecuado, en una semana —o menos— no tendrían nada.
 
-Y, en ese contexto (sin ninguna fuente de aprovisionamiento), dejar a Rarity a cargo de la cocina era sin duda un grave error. Tanto como vestir a un cerdo con un elegante vestido de seda y esperar que no lo ensuciara.
+Y, en esa situación (sin ninguna fuente de aprovisionamiento), dejar a Rarity a cargo de la cocina podría convertirse, sin duda, en un grave error. Tanto como vestir a un cerdo con un elegante vestido de seda y esperar que no lo ensuciara.
 
 "Debo volver..." se dijo a sí misma, ya resuelta, dándose media vuelta.
 
@@ -208,7 +210,7 @@ Todo aquel escenario no hacía más que aumentar su confusión. ¿Cómo podía e
 
 Applejack tragó saliva, retrocediendo un paso, empujada por esa emoción que tantas veces la había hecho tropezar.
 
-"¿Da miedo, verdad?" preguntó Fluttershy de pronto.
+"Da miedo, ¿verdad?" preguntó Fluttershy de pronto.
 
 Pero esta vez, Applejack no se sobresaltó. En cambio, se volvió hacia su amiga con una expresión seria y sombría.
 
@@ -218,7 +220,7 @@ Fluttershy ya no llevaba el casco. Su melena caía libre, pero su rostro mostrab
 
 "No estoy segura... Pinkie Pie dijo en el desayuno que podría tratarse del mundo de los juguetes del que Discord hablaba tan a menudo, aunque... se siente menos divertido de lo que él describía", respondió la pegaso, recordando vagamente las coloridas —y caóticas— historias de su amigo draconequus.
 
-"¿Mundo de juguetes? Uhh..." Applejack reflexionó un momento. No se le había ocurrido antes, pero la idea tenía cierto sentido. Si Discord —el autoproclamado Señor del Caos— estaba involucrado, todo era posible. Pero aceptar eso abría nuevas preguntas.
+"¿Mundo de juguetes? Uhh..." Applejack reflexionó un momento. No se le había ocurrido antes, pero la idea tenía cierto sentido. Si Discord —el autoproclamado Señor del Caos— estaba involucrado, todo era posible. Pero aceptar eso habría nuevas preguntas.
 
 "Entonces... si es así... ¿por qué Discord nos traería a este lugar después de lo que pasó en el tren? ¿Dónde está él, para empezar?"
 
@@ -262,9 +264,9 @@ Al frente, los pelos del lomo de Applejack se erizaron una vez más. Aunque ya e
 
 [[“Es más bien un adjetivo abstracto, asociado al límite entre dos espacios... Es algo difícil de explicar. Rarity casi se tomó toda la noche intentando hacérselo entender a Pinkie Pie.”]]
 
-"¿¿Eso pasó??" Applejack levantó una ceja. Recordaba poco de esa conversación en la noche anterior. Se encontraba muy cansada en ese momento despues la larga jornada de exploración con sus amigas; apenas conservaba unas imágenes borrosas de Rarity tomando la palabra dramaticamente delante de todas... No tenía mucho que decir del tema.
+"¿¿Eso pasó??" Applejack levantó una ceja. Recordaba poco de esa conversación en la noche anterior. Se encontraba muy cansada en ese momento después la larga jornada de exploración con sus amigas; apenas conservaba unas imágenes borrosas de Rarity tomando la palabra dramaticamente delante de todas... No tenía mucho que decir del tema.
 
-"Bueno, todavía tenemos un largo camino que recorrer antes de llegar con Rainbow Dash, así que puedes explicarme todo sobre ese asunto mientras tanto", afirmó la poni granjera, ajustándose un sombrero imaginario en su cabeza y esforzandose en mantener una actitud más animada delante de Fluttershy.
+"Bueno, todavía tenemos un largo camino que recorrer antes de llegar con Rainbow Dash, así que puedes explicarme todo sobre ese asunto mientras tanto", afirmó la poni granjera, ajustándose un sombrero imaginario en su cabeza y esforzándose en mantener una actitud más animada delante de Fluttershy.
 
 Ambas amigas continuaron su caminata en medio del silencioso bosque de cartón.
 
@@ -278,17 +280,17 @@ A esa altura, la poni granjera podía dar fe de ello. El paisaje bajo sus patas 
 
 Y arriba, muy arriba, esos muros terminaban de forma abrupta contra un cielo pétreo, plano y perfecto: un techo artificial. Un techo que tanto como los muros, no mostraba grietas, ni fallas, ni la más mínima señal de una posible salida. Solo, en su centro, una enorme luz eléctrica bañaba todo con un brillo enigmático de tono limón.
 
-Sí... era una caja de juguetes. Una caja de juguetes muy grande... ¿En qué otra cosa mas podria pensar la sencilla Applejack? La poni siguió reflexionando.
+Sí... era una caja de juguetes. Una caja de juguetes muy grande... ¿En qué otra cosa más podría pensar la sencilla Applejack? La poni siguió reflexionando.
 
 También podía tratarse de la habitación de un gigante, con un mundo de juguetes cuidadosamente dispuesto en el suelo… un mundo lindo, sí, pero del que no podían escapar.
 
-"No... si se pudo entrar, también se puede salir", se repitió, intentando convencerse. Ya antes se había dicho lo mismo, pero la frase comenzaba a perder fuerza. Tras varios días de exploración infructuosa, otros pensamientos, más negativos, empezaban a colarse en su mente.
+"No... sí se pudo entrar, también se puede salir", se repitió, intentando convencerse. Ya antes se había dicho lo mismo, pero la frase comenzaba a perder fuerza. Tras varios días de exploración infructuosa, otros pensamientos, más negativos, empezaban a colarse en su mente.
 
-"Twilight no esta... tu tienes las riendas en tus cascos Applejack... puedes manejarlo, mientras que no haya gigantes", murmuró para sí misma.
+"Twilight no está... tú tienes las riendas en tus cascos Applejack... puedes manejarlo, mientras que no haya gigantes", murmuró para sí misma.
 
 Perdida en sus preocupaciones, dejó que su mirada se deslizara sobre el bosque de cartón, siguiendo el camino que ella y Fluttershy habían recorrido rumbo a...
 
-"¿Ha?" solto repentinamente, frunciendo el ceño. Algo había captado su atención, difuso tras la cortina de su melena descuidada.
+"¿Ha?" soltó repentinamente, frunciendo el ceño. Algo había captado su atención, difuso tras la cortina de su melena descuidada.
 
 Se restregó los ojos, apartó el cabello de su vista… pero lo único que encontró fueron los mismos árboles de cartón y el sendero.
 
@@ -302,7 +304,7 @@ La poni granjera giró de inmediato. Fluttershy, que venía algo rezagada, acaba
 
 "¡Gracias, Applejack! No sé qué habría hecho sin tu ayuda", agradeció aliviada, limpiándose el sudor de la frente. Ya no llevaba el casco del traje.
 
-"¡De nada, dulzura!" respondió Applejack, ajustándose el sombrero imaginario en la cabeza. "Pero creo que tus alas también habrían podido ayudarte... si no estuvieran dentro de ese traje."
+"¡De nada, dulzura!" respondió Applejack, ajustándose la melena. "Pero creo que tus alas también habrían podido ayudarte... si no estuvieran dentro de ese traje."
 
 "Ah... cierto..." Fluttershy miró con cierta pena el traje de protección que llevaba puesto. A Applejack no le gustaba ese atuendo, pero Fluttershy parecía sentirse muy cómoda dentro de él.
 
@@ -312,7 +314,7 @@ Pegada a uno de los enormes muros de piedra que marcaban los límites de aquel m
 
 A los costados, varios carteles indicaban su función, junto a un mapa de ese sector.
 
-Sin nada mas notable en sus cercanías, la imagen de refugio de normalidad que reflejaba la caseta permanecía imperturbable.
+Sin nada más notable en sus cercanías, la imagen de refugio de normalidad que reflejaba la caseta permanecía imperturbable.
 
 De hecho, se veía tan familiar que Applejack apenas verla empezó a considerar quedarse allí el resto del día. Claro, si Rainbow Dash se lo permitía… ya que el día anterior había reclamado el lugar como suyo.
 
@@ -358,7 +360,7 @@ El resultado confirmó lo que temían.
 
 "Estas almohadas y sábanas no son las que le dimos anoche a Rainbow Dash. Son solo… yeso", exclamó Fluttershy, preocupada, junto a la cama.
 
-"Aquí tampoco hay nada del desayuno que se llevó en la mañana, ¡solo plumeros!", añadió la poni, frustrada, cerrando con fuerza el cajón de la mesa. Recordaba perfectamente cómo, temprano ese día, su amiga se había marchado de la cocina con un termo de agua caliente y una bolsa entera de wafles de avena.
+"Aquí tampoco hay nada de lo que se llevó en la mañana, ¡solo plumeros!", añadió la poni, frustrada, cerrando con fuerza el cajón de la mesa. Recordaba perfectamente cómo, temprano ese día, su amiga se había marchado de la cocina con un termo de agua caliente y una bolsa entera de wafles de avena.
 
 "¿Y el armario?" señaló Fluttershy hacia el dibujo pintado en la pared.
 
@@ -382,7 +384,7 @@ Tras un intercambio nada amistoso de palabras y la tozudez de la pegaso, termin�
 
 "Ehmm… Applejack…"
 
-"Se supone que deberíamos estar juntas hasta asegurarnos de que estemos en un lugar seguro y encontrar a Twilight, ¿no?" dijo, mirando a Fluttershy.
+"Se supone que deberíamos estar juntas para poder salir de aquí y encontrar a Twilight, ¿no?" dijo, mirando a Fluttershy.
 
 "Applejack…"
 
@@ -400,10 +402,10 @@ Al principio, Applejack no percibía nada. Pero poco a poco, al contraer su prop
 
 Era un olor dulce, familiar… que definitivamente no provenía de las paredes de madera.
 
-El aroma al desayuno secuestrado por Rainbow Dash.
+Un aroma muy similar al desayuno que Rainbow Dash se había llevado en la mañana...
 
 Pocos segundos después, ambas ponis habían abandonado la caseta, dejando atrás unas flores de plástico y un suave aroma a wafles de avena filtrándose por la puerta entreabierta.
 
 [---]
 
-Texto
+Texto.
