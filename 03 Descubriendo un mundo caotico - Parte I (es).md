@@ -264,11 +264,13 @@ Al frente, los pelos del lomo de Applejack se erizaron una vez más. Aunque ya e
 
 [[“Es más bien un adjetivo abstracto, asociado al límite entre dos espacios... Es algo difícil de explicar. Rarity casi se tomó toda la noche intentando hacérselo entender a Pinkie Pie.”]]
 
-"¿¿Eso pasó??" Applejack levantó una ceja. Recordaba poco de esa conversación en la noche anterior. Se encontraba muy cansada en ese momento después la larga jornada de exploración con sus amigas; apenas conservaba unas imágenes borrosas de Rarity tomando la palabra dramaticamente delante de todas... No tenía mucho que decir del tema.
+"¿¿Eso pasó??" Applejack levantó una ceja. Recordaba poco de la conversacion con sus amigas antes de acostarse. En ese momento se encontraba muy cansada después la larga jornada de exploración que habian tenido en la tarde. Por eso (y otros motivos que no queria acordarse), apenas conservaba unas imágenes borrosas del momento en que Rarity tomaba la palabra dramaticamente delante de todas.
 
-"Bueno, todavía tenemos un largo camino que recorrer antes de llegar con Rainbow Dash, así que puedes explicarme todo sobre ese asunto mientras tanto", afirmó la poni granjera, ajustándose un sombrero imaginario en su cabeza y esforzándose en mantener una actitud más animada delante de Fluttershy.
+Y... nada mas. No tenía mucho que decir del tema.
 
-Ambas amigas continuaron su caminata en medio del silencioso bosque de cartón.
+"Bueno, todavía tenemos un largo camino antes de llegar con Rainbow Dash, así que puedes explicarme todo sobre ese 'liminal' mientras tanto", afirmó la poni granjera, ajustándose un sombrero imaginario en su cabeza y esforzándose en mantener una actitud más animada.
+
+Ambas amigas continuaron su caminata en el silencioso bosque de cartón.
 
 [---]
 
@@ -404,8 +406,18 @@ Era un olor dulce, familiar… que definitivamente no provenía de las paredes d
 
 Un aroma muy similar al desayuno que Rainbow Dash se había llevado en la mañana...
 
-Pocos segundos después, ambas ponis habían abandonado la caseta, dejando atrás unas flores de plástico y un suave aroma a wafles de avena filtrándose por la puerta entreabierta.
+Segundos después, ambas ponis habían abandonado la caseta, dejando atrás unas flores de plástico y un suave aroma a wafles de avena filtrándose por la puerta entreabierta.
 
 [---]
 
-Texto.
+"Yeep! Rainbow Dash definitivamente estuvo aqui" confirmo Applejack pateando una bolsa vacia de waffles en el suelo.
+
+Atrás suyo, Fluttershy, que ordenaba un revuelto grupo de mantas depositadas sobre una pila de cajas de carton, asintio.
+
+Ambas amigas no podian esperar menos del improvisado refugio que su amiga pegaso se habia preparado el dia anterior.
+
+Ubicado sobre techo de la caseta, el refugio de Rainbow Dash se encontraba a cielo descubierto en un angulo dificil de notar desde el suelo. Desde esa posicion no resultaba sorprendente que nadie hubiera sospechado de este antes. Aun con las escaleras, totalmente visibles a lado suyo.
+
+"Me siento un poco mal de no haber entendido bien a Rainbow Dash ayer" se expreso Fluttershy, mientras terminaba de ordenar la cama de su amiga.
+
+"Yo tampoco me lo esperaba", respondio Applejack, mientras le hechaba una hojeada a las escaleras tipo tijera con las que habia subido a aquel sitio.
