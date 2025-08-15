@@ -410,11 +410,11 @@ Segundos después, ambas ponis habían abandonado la caseta, dejando atrás unas
 
 [---]
 
-"Yeep! Rainbow Dash definitivamente estuvo aquí" confirmó Applejack, dando una patada a una bolsa vacía de waffles en el suelo.
+"Yeep! Rainbow Dash definitivamente estuvo aquí" confirmó Applejack, dando una patada seca a una bolsa vacía de waffles en el suelo.
 
-Detrás de ella, Fluttershy, que ordenaba un revuelto grupo de mantas apiladas sobre unas cajas de cartón, asintió en silencio.
+Detrás de ella, Fluttershy, que acomodaba un grupo desordenado de mantas sobre unas cajas de cartón, asintió sin decir palabra.
 
-Ambas amigas no podían esperar menos del improvisado refugio que su amiga pegaso se había preparado en el techo de la caseta.
+El improvisado refugio de Rainbow Dash en el techo de la caseta no ofrecía sorpresas. Práctico, elevado y apartado. El sitio reflejaba bastante bien el estilo de su amiga pegaso.
 
 "Me siento un poco mal por no haber entendido a Rainbow Dash ayer, cuando dijo que nadie, aparte de ella, tenía permiso para subir tan alto..." comentó Fluttershy, recordando la imagen de Rainbow Dash erguida, proclamando su advertencia desde lo alto de la caseta el día anterior.
 
@@ -424,12 +424,57 @@ Ambas amigas no podían esperar menos del improvisado refugio que su amiga pegas
 
 "Supongo que sí..." dijo Applejack, rascándose la parte posterior de la cabeza, como si algo le incomodara. "Emm... Fluttershy."
 
-"¿Sí?" respondió su amiga, dándose la vuelta tras terminar de tender la cama de Rainbow Dash.
+"¿Sí?" respondió su amiga, dándose la vuelta tras terminar de acomodar la cama de Rainbow Dash.
 
-"Siento lo que dije de antes abajo... no debi perder los estribos de esa forma"
+"Siento lo que dije antes, abajo... no debí perder los estribos de esa forma."
 
-"Ho esta bien Applejack"
+"Entiendo, está bien..."
 
-"No, no esta bien Fluttershy, se supone que debo mantenerme firme, Twilight no esta y alguien " 
+"No, no está bien, Fluttershy. Se supone que debo mantenerme firme. Twilight no está, y alguien debe estar al frente de todas y... no sé si lo estoy haciendo bien hasta ahora."
+
+"Yo creo que lo estás haciendo bien."
+
+"¿De verdad? Vamos como cuatro días dando vueltas en círculos en este lugar y no hemos encontrado nada más aparte de las cosas que Twilight y Badwhiz dejaron. Es frustrante... y sé que las demás chicas también se están empezando a cansar. Ya viste cómo están Rainbow y Rarity. Y también está el asunto de la comida. Es cuestión de tiempo antes que..."
+
+"Applejack, está bien... aún tenemos tiempo" la interrumpió Fluttershy. Al notar cómo la sombra del pesimismo se apoderaba de su amiga, la pegaso se acurrucó a su lado para darle apoyo.
+
+El gesto tuvo un efecto inmediato: Applejack dejó de hablar y se sentó en el suelo, casi derrumbándose. Parecía como si hubiera soltado un peso inmenso de su lomo.
+
+"No debería estar diciéndote estas cosas, amiga, pero... realmente no sé qué será de nosotras mañana. Si logro dormir todas las noches es solo por el cansancio de explorar este lugar con ustedes. Nada malo ha pasado hasta ahora, pero..."
+
+"Aún tenemos tiempo, Applejack" repitió Fluttershy con firmeza.
+
+Applejack intentó responder, pero se detuvo. Cerró la boca y, tras mirarse intensamente con su amiga, simplemente suspiró.
+
+"Tienes razón... supongo que sí."
+
+Un silencio breve se extendió entre ambas.
+
+"Creo que mañana deberíamos intentar algo diferente" comenzó a decir Applejack. "Aunque no se me ocurre qué."
+
+"Estamos juntas en esto, Applejack. Podemos preguntarle a las chicas y probar algo mañana... quizá... cavar."
+
+"¿Cavar?"
+
+"Sí, Pinkie estuvo insistiendo bastante con eso en el desayuno, ¿no lo recuerdas?"
+
+"No... creo que he estado muy distraída últimamente."
+
+"No eres la única."
+
+"¿Tú también?"
+
+"Sí... todas. Anoche, cuando Rarity discutía con Pinkie, ella empezó a llorar... y luego Pinkie y yo también. Fue un momento bastante intenso."
+
+"No lo sabía... espera, tampoco me lo dijiste hace un rato."
+
+"No eres la única que se preocupa por cómo se sentirán los demás si comparte lo que siente. Por ejemplo, yo pienso mucho en mis amigos del bosque... ha pasado demasiado tiempo desde la última vez que los vi" respondió la pegaso, mostrando por primera vez una expresión de verdadera angustia. Eran pocas palabras, pero el peso de su mirada lo decía todo.
+
+Applejack entendía a qué se refería su amiga. Agachó la cabeza; también pensaba en su familia...
+
+"Sí..." alcanzó a decir, casi sin fuerza.
+
+En un intercambio de apoyo silencioso, ambas amigas se abrazaron, quizá buscando un poco de la seguridad que tanto les faltaba en aquel mundo sin calidez que las rodeaba.
+
 
 
