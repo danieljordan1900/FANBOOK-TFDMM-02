@@ -5,6 +5,8 @@
 ]
 
 [
+    -> Edita el siguiente fragmento de mi fanfic de my little pony para corregir (la claridad) (la fluidez)
+    -> Respeta el uso de comillas dobles "" y [[]] no las reemplaces.
     -> Corrige cualquier error gramatical o de puntuación que encuentres. Considera buen uso de los gerundios y adverbios de modo.
     -> Evita rimas involuntarias y redondancias si es posible.
     -> Respeta el uso de comillas dobles "" no las reemplaces.

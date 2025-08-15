@@ -308,7 +308,7 @@ La poni granjera giró de inmediato. Fluttershy, que venía algo rezagada, acaba
 
 "¡De nada, dulzura!" respondió Applejack, ajustándose la melena. "Pero creo que tus alas también habrían podido ayudarte... si no estuvieran dentro de ese traje."
 
-"Ah... cierto..." Fluttershy miró con cierta pena el traje de protección que llevaba puesto. A Applejack no le gustaba ese atuendo, pero Fluttershy parecía sentirse muy cómoda dentro de él.
+"Ah... cierto..." Fluttershy miró con cierta pena el traje de protección que llevaba puesto. A Applejack no le gustaba ese atuendo, pero a su amiga pegaso parecía sentirse muy cómoda dentro de él.
 
 Sin ánimo de discutir sobre eso, se giró hacia el objetivo del paseo.
 
@@ -368,13 +368,13 @@ El resultado confirmó lo que temían.
 
 "Ughhhhhhhh!" fue lo único que Applejack pudo responder, dejando escapar parte del enojo que crecía en su interior.
 
-"Upss... lo siento", murmuró Fluttershy dándose cuenta de su tonta observación. "Pero...no lo entiendo. Rainbow Dash nos dijo ayer que había revisado este lugar y que le había parecido perfecto para ella", recordó la timida pegaso, aludiendo a la exploración del día anterior.
+"Upss... lo siento", murmuró la timida pegaso dándose cuenta de su tonta observación. "Pero...no lo entiendo. Rainbow Dash nos dijo ayer que había revisado este lugar y que le había parecido perfecto para ella", recordó, aludiendo a la exploración del día anterior.
 
 Sin embargo, para Applejack, que también estuvo allí, la conclusión era clara.
 
 "Mintió", declaró severa. "¡Rainbow Dash no revisó este lugar! Ni siquiera entró."
 
-"Pero… ¿por qué nos mentiría?" preguntó Fluttershy.
+"Pero… ¿por qué nos mentiría?"
 
 "Quiere resolver las cosas a su manera", respondió la poni granjera. "A la manera 'Rainbow'." Pisoteó con fuerza el suelo de madera.
 
@@ -386,7 +386,7 @@ Tras un intercambio nada amistoso de palabras y la tozudez de la pegaso, termin�
 
 "Ehmm… Applejack…"
 
-"Se supone que deberíamos estar juntas para poder salir de aquí y encontrar a Twilight, ¿no?" dijo, mirando a Fluttershy.
+"Se supone que deberíamos estar juntas para poder salir de aquí y encontrar a Twilight, ¿no?"
 
 "Applejack…"
 
@@ -410,14 +410,26 @@ Segundos después, ambas ponis habían abandonado la caseta, dejando atrás unas
 
 [---]
 
-"Yeep! Rainbow Dash definitivamente estuvo aqui" confirmo Applejack pateando una bolsa vacia de waffles en el suelo.
+"Yeep! Rainbow Dash definitivamente estuvo aquí" confirmó Applejack, dando una patada a una bolsa vacía de waffles en el suelo.
 
-Atrás suyo, Fluttershy, que ordenaba un revuelto grupo de mantas depositadas sobre una pila de cajas de carton, asintio.
+Detrás de ella, Fluttershy, que ordenaba un revuelto grupo de mantas apiladas sobre unas cajas de cartón, asintió en silencio.
 
-Ambas amigas no podian esperar menos del improvisado refugio que su amiga pegaso se habia preparado el dia anterior.
+Ambas amigas no podían esperar menos del improvisado refugio que su amiga pegaso se había preparado en el techo de la caseta.
 
-Ubicado sobre techo de la caseta, el refugio de Rainbow Dash se encontraba a cielo descubierto en un angulo dificil de notar desde el suelo. Desde esa posicion no resultaba sorprendente que nadie hubiera sospechado de este antes. Aun con las escaleras, totalmente visibles a lado suyo.
+"Me siento un poco mal por no haber entendido a Rainbow Dash ayer, cuando dijo que nadie, aparte de ella, tenía permiso para subir tan alto..." comentó Fluttershy, recordando la imagen de Rainbow Dash erguida, proclamando su advertencia desde lo alto de la caseta el día anterior.
 
-"Me siento un poco mal de no haber entendido bien a Rainbow Dash ayer" se expreso Fluttershy, mientras terminaba de ordenar la cama de su amiga.
+"Yo tampoco la entendí. Pensé en ese momento que se refería al mirador en general..." respondió Applejack, mientras revisaba los alrededores de la caseta. Ahora se daba cuenta de que, muy probablemente, ese era el punto más alto de todo el mundo de juguetes. Lo cual explicaba por qué Rainbow Dash había escogido ese lugar.
 
-"Yo tampoco me lo esperaba", respondio Applejack, mientras le hechaba una hojeada a las escaleras tipo tijera con las que habia subido a aquel sitio.
+"Tendremos que disculparnos con ella cuando regrese."
+
+"Supongo que sí..." dijo Applejack, rascándose la parte posterior de la cabeza, como si algo le incomodara. "Emm... Fluttershy."
+
+"¿Sí?" respondió su amiga, dándose la vuelta tras terminar de tender la cama de Rainbow Dash.
+
+"Siento lo que dije de antes abajo... no debi perder los estribos de esa forma"
+
+"Ho esta bien Applejack"
+
+"No, no esta bien Fluttershy, se supone que debo mantenerme firme, Twilight no esta y alguien " 
+
+
