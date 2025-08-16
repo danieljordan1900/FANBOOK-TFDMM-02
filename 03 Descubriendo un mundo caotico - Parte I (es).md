@@ -412,9 +412,9 @@ Segundos después, ambas ponis habían abandonado la caseta, dejando atrás unas
 
 "Yeep! Rainbow Dash definitivamente estuvo aquí" confirmó Applejack, dando una patada seca a una bolsa vacía de waffles en el suelo.
 
-Detrás de ella, Fluttershy, que acomodaba un grupo desordenado de mantas sobre unas cajas de cartón, asintió sin decir palabra.
+Detrás de ella, Fluttershy, que acomodaba un grupo revuelto de mantas sobre unas cajas de cartón, asintió en silencio.
 
-El improvisado refugio de Rainbow Dash en el techo de la caseta no ofrecía sorpresas. Práctico, elevado y apartado: el sitio reflejaba bastante bien el actual estado de animo de su amiga pegaso.
+El improvisado refugio de Rainbow Dash en el techo de la caseta no ofrecía sorpresas. Práctico, elevado y algo desordenado: el sitio reflejaba bastante bien el estilo de su amiga pegaso.
 
 "Me siento un poco mal por no haber entendido a Rainbow Dash ayer, cuando dijo que nadie, aparte de ella, tenía permiso para subir tan alto..." comentó Fluttershy, recordando la imagen de Rainbow Dash erguida, proclamando su advertencia desde lo alto de la caseta el día anterior.
 
@@ -422,7 +422,21 @@ El improvisado refugio de Rainbow Dash en el techo de la caseta no ofrecía sorp
 
 "Tendremos que disculparnos con ella cuando regrese."
 
-"Supongo que sí..." dijo Applejack, rascándose la parte posterior de la cabeza, como si algo le incomodara. "Emm... Fluttershy."
+"Supongo que sí..." dijo Applejack, rascándose la parte posterior de la cabeza, distraída.
+
+Avanzó con pasos cautelosos, procurando no pisar los objetos esparcidos por el suelo. Fue entonces cuando reparó en un artefacto inusual incrustado en uno de los extremos del techo.
+
+Al acercarse, confirmó lo que había imaginado al principio: un telescopio.
+
+Curiosa, Applejack intentó moverlo, descubriendo que estaba atado firmemente a la esquina del techo. Así que, sin más, inclinó la cabeza y examinó la mirilla para ver hacia dónde apuntaba.
+
+La imagen que apareció ante sus ojos no era otra que la de la casa del árbol de Twilight, donde estaban sus amigas...
+
+Rainbow Dash no había dejado de cuidar de ellas ni un solo momento.
+
+Con ese pensamiento en mente, Applejack sintió cómo un nudo comenzaba a formarse en su garganta.
+
+"Emm... Fluttershy."
 
 "¿Sí?" respondió su amiga, dándose la vuelta tras terminar de acomodar la cama de Rainbow Dash.
 
@@ -434,7 +448,7 @@ El improvisado refugio de Rainbow Dash en el techo de la caseta no ofrecía sorp
 
 "Yo creo que lo estás haciendo bien."
 
-"¿De verdad?" Applejack dejó escapar un suspiro áspero. "Llevamos cuatro días dando vueltas en círculos en este lugar, y no hemos encontrado nada más aparte de las cosas que Twilight y Badwhiz dejaron. Es frustrante... y sé que las demás también lo sienten. Rainbow está cansada, Rarity también... y la comida se acaba. Es cuestión de tiempo antes que—"
+"¿De verdad?" Applejack dejó escapar un suspiro áspero. "Llevamos cuatro días dando vueltas en círculos. Y no hemos encontrado nada más aparte de lo que Twilight y Badwhiz dejaron. Es frustrante... sé que las demás también lo sienten. Rainbow está cansada, Rarity también... y la comida se acaba. Es cuestión de tiempo antes que—"
 
 "Applejack." La voz de Fluttershy la interrumpió con suavidad, pero con una firmeza inusual. "Aún tenemos tiempo."
 
@@ -448,7 +462,7 @@ Applejack abrió la boca para replicar, pero se detuvo. Intercambiaron miradas y
 
 "Tienes razón... supongo que sí."
 
-Rodeadas por el aire inmóvil, el silencio aplastante del mundo de juguetes se cerró aún más sobre ellas. En aquel instante, casi, se sentían como si fueran lo único que quedaba de toda la existencia.
+Rodeadas por el aire inmóvil, el silencio aplastante del mundo de juguetes se cerró aún más sobre ellas. En aquel instante, casi podían creer que eran lo único que quedaba de la existencia.
 
 Así permanecieron, una al lado de la otra, hasta que por fin...
 
