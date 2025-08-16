@@ -414,7 +414,7 @@ Segundos después, ambas ponis habían abandonado la caseta, dejando atrás unas
 
 Detrás de ella, Fluttershy, que acomodaba un grupo desordenado de mantas sobre unas cajas de cartón, asintió sin decir palabra.
 
-El improvisado refugio de Rainbow Dash en el techo de la caseta no ofrecía sorpresas. Práctico, elevado y apartado. El sitio reflejaba bastante bien el estilo de su amiga pegaso.
+El improvisado refugio de Rainbow Dash en el techo de la caseta no ofrecía sorpresas. Práctico, elevado y apartado: el sitio reflejaba bastante bien el actual estado de animo de su amiga pegaso.
 
 "Me siento un poco mal por no haber entendido a Rainbow Dash ayer, cuando dijo que nadie, aparte de ella, tenía permiso para subir tan alto..." comentó Fluttershy, recordando la imagen de Rainbow Dash erguida, proclamando su advertencia desde lo alto de la caseta el día anterior.
 
@@ -444,13 +444,13 @@ La pegaso se acercó y, sin pedir permiso, se acurrucó a su lado. El gesto desa
 
 "Aún tenemos tiempo, Applejack" repitió Fluttershy, con la mirada fija y una serenidad que no siempre era fácil encontrar en ella.
 
-Applejack abrió la boca para replicar, pero se detuvo. Intercambiaron miradas, y tras un silencio cargado, la granjera suspiró.
+Applejack abrió la boca para replicar, pero se detuvo. Intercambiaron miradas y, tras un silencio cargado, la granjera suspiró.
 
 "Tienes razón... supongo que sí."
 
-Rodeadas por el aire inmóvil, el silencio aplastante que dominaba el mundo de juguetes las envolvió con mas fuerza. En aquel momento, casi, incluso para ellas misma, se sentían como si fueran todo lo que quedaba de la misma existencia.
+Rodeadas por el aire inmóvil, el silencio aplastante del mundo de juguetes se cerró aún más sobre ellas. En aquel instante, casi, se sentían como si fueran lo único que quedaba de toda la existencia.
 
-Asi continuaron, una a lado de la otra, hasta que por fin ...
+Así permanecieron, una al lado de la otra, hasta que por fin...
 
 "Creo que mañana deberíamos intentar algo diferente" rompió el silencio Applejack. "Aunque no sé qué."
 
@@ -476,8 +476,8 @@ Applejack comprendió al instante y bajó la cabeza.
 
 "Sí..." alcanzó a decir, casi sin fuerza.
 
-Ella en las mañanas cuando depertaba, no podia evitar pensar que habia vuelto a su casa, con su familia, de vuelta a su vida normal que tanto le gustaba. Respirar el aire puro del campo. Y comer una buena manzana.
+Por las mañanas, al despertar, no podía evitar pensar que estaba de vuelta en su casa, con su familia, en la vida normal que tanto añoraba: respirar el aire puro del campo, probar una buena manzana.
 
-Pero no estaba ahi, no estaba en su mundo, no estaba en su casa.
+Pero no estaba ahí. No estaba en su mundo. No estaba en casa.
 
 Sin decirse una palabra, ambas amigas se abrazaron, quizás buscando un poco de la seguridad que tanto les faltaba en aquel mundo sin calidez que las rodeaba.
