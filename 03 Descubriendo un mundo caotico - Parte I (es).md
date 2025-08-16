@@ -430,51 +430,54 @@ El improvisado refugio de Rainbow Dash en el techo de la caseta no ofrecía sorp
 
 "Entiendo, está bien..."
 
-"No, no está bien, Fluttershy. Se supone que debo mantenerme firme. Twilight no está, y alguien debe estar al frente de todas y... no sé si lo estoy haciendo bien hasta ahora."
+"No, no está bien, Fluttershy." Applejack bajó la voz, como si reconociera la fragilidad de sus palabras. "Se supone que debo mantenerme firme. Twilight no está, y alguien debe estar al frente de todas. Pero... no sé si lo estoy haciendo bien."
 
 "Yo creo que lo estás haciendo bien."
 
-"¿De verdad? Vamos como cuatro días dando vueltas en círculos en este lugar y no hemos encontrado nada más aparte de las cosas que Twilight y Badwhiz dejaron. Es frustrante... y sé que las demás chicas también se están empezando a cansar. Ya viste cómo están Rainbow y Rarity. Y también está el asunto de la comida. Es cuestión de tiempo antes que..."
+"¿De verdad?" Applejack dejó escapar un suspiro áspero. "Llevamos cuatro días dando vueltas en círculos en este lugar, y no hemos encontrado nada más aparte de las cosas que Twilight y Badwhiz dejaron. Es frustrante... y sé que las demás también lo sienten. Rainbow está cansada, Rarity también... y la comida se acaba. Es cuestión de tiempo antes que—"
 
-"Applejack, está bien... aún tenemos tiempo" la interrumpió Fluttershy. Al notar cómo la sombra del pesimismo se apoderaba de su amiga, la pegaso se acurrucó a su lado para darle apoyo.
+"Applejack." La voz de Fluttershy la interrumpió con suavidad, pero con una firmeza inusual. "Aún tenemos tiempo."
 
-El gesto tuvo un efecto inmediato: Applejack dejó de hablar y se sentó en el suelo, casi derrumbándose. Parecía como si hubiera soltado un peso inmenso de su lomo.
+La pegaso se acercó y, sin pedir permiso, se acurrucó a su lado. El gesto desarmó por completo a la granjera, que se dejó caer en el suelo como si, al fin, hubiera soltado un fardo invisible que llevaba cargando desde el primer día.
 
-"No debería estar diciéndote estas cosas, amiga, pero... realmente no sé qué será de nosotras mañana. Si logro dormir todas las noches es solo por el cansancio de explorar este lugar con ustedes. Nada malo ha pasado hasta ahora, pero..."
+"No debería estar diciéndote estas cosas, amiga... pero realmente no sé qué será de nosotras mañana." Applejack bajó la mirada; sus palabras eran apenas un murmullo. "Si logro dormir por las noches, es solo por el cansancio de caminar todo el día. Nada malo ha pasado hasta ahora, pero..."
 
-"Aún tenemos tiempo, Applejack" repitió Fluttershy con firmeza.
+"Aún tenemos tiempo, Applejack" repitió Fluttershy, con la mirada fija y una serenidad que no siempre era fácil encontrar en ella.
 
-Applejack intentó responder, pero se detuvo. Cerró la boca y, tras mirarse intensamente con su amiga, simplemente suspiró.
+Applejack abrió la boca para replicar, pero se detuvo. Intercambiaron miradas, y tras un silencio cargado, la granjera suspiró.
 
 "Tienes razón... supongo que sí."
 
-Un silencio breve se extendió entre ambas.
+Rodeadas por el aire inmóvil, el silencio aplastante que dominaba el mundo de juguetes las envolvió con mas fuerza. En aquel momento, casi, incluso para ellas misma, se sentían como si fueran todo lo que quedaba de la misma existencia.
 
-"Creo que mañana deberíamos intentar algo diferente" comenzó a decir Applejack. "Aunque no se me ocurre qué."
+Asi continuaron, una a lado de la otra, hasta que por fin ...
 
-"Estamos juntas en esto, Applejack. Podemos preguntarle a las chicas y probar algo mañana... quizá... cavar."
+"Creo que mañana deberíamos intentar algo diferente" rompió el silencio Applejack. "Aunque no sé qué."
+
+"Estamos juntas en esto, Applejack. Podemos preguntarles a las chicas y probar algo mañana... quizá... cavar."
 
 "¿Cavar?"
 
-"Sí, Pinkie estuvo insistiendo bastante con eso en el desayuno, ¿no lo recuerdas?"
+"Sí. Pinkie lo mencionó en el desayuno. Insistió bastante... ¿no lo recuerdas?"
 
-"No... creo que he estado muy distraída últimamente."
+Applejack negó con la cabeza. "No... creo que he estado demasiado distraída últimamente."
 
 "No eres la única."
 
 "¿Tú también?"
 
-"Sí... todas. Anoche, cuando Rarity discutía con Pinkie, ella empezó a llorar... y luego Pinkie y yo también. Fue un momento bastante intenso."
+"Sí... todas." Fluttershy tragó saliva. "Anoche, cuando Rarity discutía con Pinkie... ella empezó a llorar. Y después Pinkie... y yo también. Fue... un momento bastante intenso."
 
-"No lo sabía... espera, tampoco me lo dijiste hace un rato."
+Applejack la miró, sorprendida. "No lo sabía... espera, no me dijiste eso hace un rato."
 
-"No eres la única que se preocupa por cómo se sentirán los demás si comparte lo que siente. Por ejemplo, yo pienso mucho en mis amigos del bosque... ha pasado demasiado tiempo desde la última vez que los vi" respondió la pegaso, mostrando por primera vez una expresión de verdadera angustia. Eran pocas palabras, pero el peso de su mirada lo decía todo.
+"No eres la única que teme cómo reaccionarán los demás si comparte lo que siente. Por ejemplo, yo pienso mucho en mis amigos del bosque... ha pasado tanto tiempo desde la última vez que los vi..." Su voz se quebró apenas un instante, pero fue suficiente: el peso de su mirada lo decía todo.
 
-Applejack entendía a qué se refería su amiga. Agachó la cabeza; también pensaba en su familia...
+Applejack comprendió al instante y bajó la cabeza.
 
 "Sí..." alcanzó a decir, casi sin fuerza.
 
-En un intercambio de apoyo silencioso, ambas amigas se abrazaron, quizá buscando un poco de la seguridad que tanto les faltaba en aquel mundo sin calidez que las rodeaba.
+Ella en las mañanas cuando depertaba, no podia evitar pensar que habia vuelto a su casa, con su familia, de vuelta a su vida normal que tanto le gustaba. Respirar el aire puro del campo. Y comer una buena manzana.
 
+Pero no estaba ahi, no estaba en su mundo, no estaba en su casa.
 
-
+Sin decirse una palabra, ambas amigas se abrazaron, quizás buscando un poco de la seguridad que tanto les faltaba en aquel mundo sin calidez que las rodeaba.
