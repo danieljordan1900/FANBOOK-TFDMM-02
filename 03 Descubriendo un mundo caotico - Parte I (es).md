@@ -490,8 +490,12 @@ Applejack comprendió al instante y bajó la cabeza.
 
 "Sí..." alcanzó a decir, casi sin fuerza.
 
+Ella tambien extrañaba su hogar.
+
 Por las mañanas, al despertar, no podía evitar pensar que estaba de vuelta en su casa, con su familia, en la vida normal que tanto añoraba: respirar el aire puro del campo, probar una buena manzana.
 
 Pero no estaba ahí. No estaba en su mundo. No estaba en casa.
 
 Sin decirse una palabra, ambas amigas se abrazaron, quizás buscando un poco de la seguridad que tanto les faltaba en aquel mundo sin calidez que las rodeaba.
+
+
