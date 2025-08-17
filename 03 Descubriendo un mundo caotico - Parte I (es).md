@@ -434,7 +434,7 @@ La imagen que apareció ante sus ojos no era otra que la de la casa del árbol d
 
 Rainbow Dash no había dejado de cuidar de ellas ni un solo momento.
 
-Con ese pensamiento en mente, Applejack sintió cómo un nudo comenzaba a formarse en su garganta.
+Con ese pensamiento, Applejack sintió cómo un nudo comenzaba a formarse en su garganta.
 
 "Emm... Fluttershy."
 
@@ -456,7 +456,7 @@ La pegaso se acercó y, sin pedir permiso, se acurrucó a su lado. El gesto desa
 
 "No debería estar diciéndote estas cosas, amiga... pero realmente no sé qué será de nosotras mañana." Applejack bajó la mirada; sus palabras eran apenas un murmullo. "Si logro dormir por las noches, es solo por el cansancio de caminar todo el día. Nada malo ha pasado hasta ahora, pero..."
 
-"Aún tenemos tiempo, Applejack" repitió Fluttershy, con la mirada fija y una serenidad que no siempre era fácil encontrar en ella.
+"Aún tenemos tiempo, Applejack" repitió Fluttershy, con la mirada fija y una serenidad que solo se podia encontrar en ella.
 
 Applejack abrió la boca para replicar, pero se detuvo. Intercambiaron miradas y, tras un silencio cargado, la granjera suspiró.
 
@@ -490,12 +490,10 @@ Applejack comprendió al instante y bajó la cabeza.
 
 "Sí..." alcanzó a decir, casi sin fuerza.
 
-Ella tambien extrañaba su hogar.
+Ella también echaba de menos su hogar.
 
-Por las mañanas, al despertar, no podía evitar pensar que estaba de vuelta en su casa, con su familia, en la vida normal que tanto añoraba: respirar el aire puro del campo, probar una buena manzana.
+Por las mañanas, al despertar, solía imaginar que había vuelto a su casa, con su familia, a la vida normal que tanto deseaba: respirar el aire puro del campo, probar una buena manzana.
 
 Pero no estaba ahí. No estaba en su mundo. No estaba en casa.
 
-Sin decirse una palabra, ambas amigas se abrazaron, quizás buscando un poco de la seguridad que tanto les faltaba en aquel mundo sin calidez que las rodeaba.
-
-
+Sin decirse una palabra, ambas amigas se abrazaron, como si intentaran aferrarse a un poco de la seguridad que tanto les faltaba en aquel mundo sin calidez que las envolvía.
