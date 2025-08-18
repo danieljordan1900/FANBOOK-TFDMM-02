@@ -412,7 +412,7 @@ Segundos después, ambas ponis habían abandonado la caseta, dejando atrás unas
 
 "Yeep! Rainbow Dash definitivamente estuvo aquí" confirmó Applejack, dando una patada seca a una bolsa vacía de waffles en el suelo.
 
-Detrás de ella, Fluttershy, que acomodaba un grupo revuelto de mantas sobre unas cajas de cartón, asintió en silencio.
+Detrás de ella, Fluttershy que aun llevaba puesto su traje de látex, asintió en silencio mientras ordenaba un grupo revuelto de mantas sobre unas cajas de cartón.
 
 El improvisado refugio de Rainbow Dash en el techo de la caseta no ofrecía sorpresas. Práctico, elevado y algo desordenado: el sitio reflejaba bastante bien el estilo de su amiga pegaso.
 
@@ -424,11 +424,13 @@ El improvisado refugio de Rainbow Dash en el techo de la caseta no ofrecía sorp
 
 "Supongo que sí..." murmuró distraída la poni granjera, rascándose la parte posterior de la cabeza.
 
-Applejack avanzó con pasos cautelosos sobre el pequeño techo de la caseta, procurando no pisar los varios objetos esparcidos por el piso. Fue entonces cuando reparó en un artefacto inusual incrustado en una de las esquinas.
+Applejack avanzó con pasos cautelosos sobre el pequeño techo de la caseta, procurando no alterar más el desordenado desorden que su amiga pegaso había dejado atrás. Fue entonces cuando, al pisar por accidente una lámina de plástico de burbujas, reparó en un artefacto inusual incrustado en una de las esquinas.
 
-Al acercarse, confirmó lo que había imaginado al principio: un telescopio.
+Al acercarse, confirmó que el objeto era lo que aparentaba: un telescopio.
 
-Curiosa, intentó moverlo, pero pronto descubrió que estaba firmemente atado a su soporte. Así que, sin más, inclinó la cabeza y examinó la mirilla para ver hacia dónde apuntaba.
+¿De donde lo habia sacado Rainbow?
+
+Curiosa, Applejack intentó moverlo, pero pronto descubrió que estaba firmemente atado a su soporte. Así que, sin más, inclinó la cabeza y examinó la mirilla para ver hacia dónde apuntaba.
 
 La imagen que apareció ante sus ojos no era otra que la de la casa del árbol de Twilight, donde estaban sus amigas...
 
@@ -497,3 +499,169 @@ Por las mañanas, al despertar, solía imaginar que había vuelto a su casa, con
 Pero no estaba ahí. No estaba en su mundo. No estaba en casa.
 
 Sin decirse una palabra, ambas amigas se abrazaron, como si intentaran aferrarse a un poco de la seguridad que tanto les faltaba en aquel mundo sin calidez que las envolvía.
+
+"Bzzzzzzzzz..."
+
+"¿Uhhh?" Casi en un sobresalto, ambas amigas se separaron y miraron a su alrededor.
+
+Silencio y quietud.
+
+"Ummm... ¿oíste algo hace un momento?" preguntó Applejack, ligeramente recelosa.
+
+"Sííí... sonaba a un... ¿moscardón?" respondió Fluttershy, agitando las orejas.
+
+Ambas afinaron los sentidos, pero el desconcertante zumbido que las había interrumpido no parecía tener intención de regresar.
+
+Justo cuando empezaban a creer que podía haberse tratado de otra cosa, el sonido volvió.
+
+"Bzzzzzzzzz... Bzzzzzzzzz... Bzzzzzzzzz..." sonó en intervalos.
+
+"Bien, eso sí lo escucho... ¿de dónde viene?" dijo Applejack, moviendo la cabeza en varias direcciones.
+
+"De... ¡ahí!" señaló Fluttershy la pila de cajas sobre la cual había dormido Rainbow Dash.
+
+Con rapidez, desmontaron la pila hasta dar con la caja correcta. El zumbido cesó de inmediato.
+
+Confundidas, levantaron la tapa.
+
+Dentro, varios comunicadores negros y voluminosos estaban apilados unos sobre otros como grandes trozos de carbón.
+
+Applejack ladeó la cabeza, pero enseguida tomó uno bajo la tímida mirada de su amiga pegaso.
+
+"Es más ligero de lo que parece."
+
+"¿Está prendido?" preguntó Fluttershy, señalando la parte posterior del aparato.
+
+"Sí lo está... qué raro." Applejack frunció el ceño al notar que el compartimiento de baterías estaba vacío. Aun así, el comunicador funcionaba.
+
+Ese era el tipo de cosas que no había querido encontrarse desde que llegaron a ese mundo.
+
+"Bzzzzzzzzz... Hola... ¿hola?... ¿hay alguien ahí?... Bzzz..." sonó una voz difuminada entre la estática.
+
+Applejack no necesitó darse la vuelta para notar cómo Fluttershy retrocedía tras ella. Pero toda su atención estaba en la misteriosa voz que intentaba comunicarse.
+
+No respondió de inmediato. Precavida, revisó otra vez el objeto hasta que encontró el interruptor de apagado.
+
+Debía apagarlo.
+
+Con el casco ya presionando el botón, dudó.
+
+Apagarlo era lo más seguro: evitaba cualquier amenaza desconocida al otro lado de la línea.
+
+Pero... ¿y si esa voz era la de Twilight?
+
+Tras una breve vacilación, suspiró, decidida.
+
+"¿Hola?" respondió, mientras jugaba con las perillas de frecuencia y volumen.
+
+"Bzzz... ¿Hola? ¡Gracias al cielo, hay alguien ahí! ¿Fluttershy, eres tú? ¡Necesito ayuda!" La voz sonó más clara, hasta hacerse completamente nítida.
+
+Ambas ponis abrieron mucho los ojos.
+
+"¡Rainbow Dash!" gritaron al unísono.
+
+"¿Fluttershy? Espera... ¿Applejack?! ¡¿Qué rayos haces ahí?! Ugggh, este día no puede empeorar..." La voz se cortó un segundo y volvió, ahora más dulce. "Quiero decir, emmm... qué alegría verte, Applejack, ¿cómo estás?"
+
+Applejack, que por un instante había sentido alivio al escuchar a su amiga, sintió cómo el buen ánimo se le desplomaba como un carro de heno rancio sobre el lomo.
+
+Sí, no había duda: al otro lado estaba su querida 'amiga' Rainbow Dash.
+
+"Solo te oigo, Rainbow Dash. Y estoy bien. ¿Tú estás bien?"
+
+"¡Sí, muy bien!" respondió de inmediato la pegaso, en un tono aún más dulce y animado.
+
+"Qué bien, amiga."
+
+"Sí, muy bien, amiga."
+
+"Genial." Applejack sonrió con esfuerzo. "Ahora, amiga... ¿me puedes decir qué establos está pasando?" terminó casi gritándole al comunicador, que crujió entre sus cascos.
+
+En respuesta, solo hubo un silencio. Fluttershy aprovechó para encogerse aún más en su rincón.
+
+"Ugghh..." finalmente se escuchó del otro lado. "No está pasando nada malo, Applejack. Estoy bien... pero estaría mejor si ustedes estuvieran aquí también."
+
+"¿Ah, sí? ¿Y dónde es 'aquí'?"
+
+"Estoy al norte, cuarenta y cinco grados este del árbol de pelotas azules..."
+
+"Ajá... ¿y dónde hay un árbol de pelotas azules?"
+
+"Aaa, eso está en... cierto... Mira, hay un mapa en mi caja de Daring Do. Puedes guiarte de ahí."
+
+"¿Cuál caja de—?" Applejack no terminó. Fluttershy ya había sacado de una caja marcada "Daring Do" un voluminoso mapa que desplegó frente a ellas.
+
+Era enorme y sorprendentemente detallado. Applejack descubrió, asombrada, que estaba hecho a lápiz, con precisión suficiente para reflejar los sitios que habían explorado en los últimos días.
+
+¿Con qué tiempo Rainbow Dash había elaborado semejante pieza cartografica?
+
+"¿Applejack? ¿Sigues ahí?"
+
+"Ah, sí, disculpa Rainbow. Ya tengo el mapa. ¿Dónde decías que estás?"
+
+"Noreste, árbol de pelotas. Guíate por los toboganes rosas, cerca de la casa de cartón."
+
+Applejack, acostumbrada a leer mapas, intentó orientarse. Sin embargo, algo la confundía: los dibujos eran claros, pero las etiquetas no. Casi todos los lugares estaban escritos en un lenguaje que bordeaba lo indescifrable.
+
+"¡Aquí!" señaló Fluttershy, que no había estado pasiva en la búsqueda y entendia la desgarbada letra de su veloz amiga.
+
+Applejack se inclinó sobre el mapa y, guiándose por las figuras, halló el punto que Rainbow había descrito.
+
+"Arbol de pelotas...¡Lo tengo, Rainbow! Vamos para allá. ¿Necesitas que estén también las demás?"
+
+"Ehmmm... no, no es necesario. Lo tengo bajo control. En serio, estoy bien. Pero... si no es mucha molestia, trae también mi caja de herramientas. Está debajo de la de bromas pesadas."
+
+"Rainbow..." murmuró Applejack, molesta por el tono despreocupado de su amiga.
+
+"Ehh bzzz bzzz... creo que la comunicación está fallando... bzz... busquen un carrito azul cuando lleguen. Las espero, amigas. Bzzz bzz..."
+
+La falsa estática se tragó la voz, y el comunicador enmudeció.
+
+Una vez más, el silencio se apoderó del techo de la caseta.
+
+"¿Rainbow Dash está en problemas?" preguntó Fluttershy, rompiendo la quietud.
+
+"Sí" respondió Applejack sin titubeos. "Ha metido la pata en algo, solo espero que no sea grave..."
+
+Se llevó un casco a la cabeza, intentando una vez más acomodar el sombrero que no tenía. Las preocupaciones volvían a colarse en sus pensamientos. Pero entonces, algo la sacó de ese estado.
+
+Un casco se apoyó suavemente en su hombro.
+
+Al voltear, encontró a Fluttershy mirándola con una sonrisa serena, como si supiera exactamente lo que pasaba por su mente.
+
+Applejack esbozó una leve sonrisa y continuó hablando.
+
+"Aunque... lo más probable es que sea otra de esas tonterías que suele hacer. ¿Un... Rainbow Fart Sónico?" dijo con aparente seriedad, cerrando los labios después para contener la risa.
+
+Fluttershy, en cambio, no pudo resistirlo. Soltó una carcajada breve, tan intensa como podía permitirse una poni tímida como ella.
+
+[---]
+
+Rainbow Dash apagó el comunicador.
+
+No había alegría en su rostro.
+
+"¿Así que un Rainbow Fart Sónico, eh? ¿Desde cuando eres la chistosa del grupo, Applejack? ¿Acaso quieres tener la charla con Pinkie, no es así? Porque si la vas a tener... despues que me ayudes con esto..." rebuznó con tono vengativo pero angustiado, antes de arrojar el comunicador contra la ventana de vidrio frente a ella.
+
+El lugar permanecía en penumbra: un espacio reducido, semejante al interior de una cápsula espacial.
+
+A través del vidrio polarizado apenas se distinguía el exterior. Más cápsulas, idénticas a la suya, se erguían como frutos muertos en medio de un bosque retorcido de árboles de cartón.
+
+Sentada en un asiento mullido que no lograba aliviar su incomodidad, Rainbow Dash apretaba la mandíbula hasta casi rechinar los dientes.
+
+"Cruggg..." El sonido retumbó en ecos metálicos dentro de la cápsula. Ella se tensó de inmediato, con el rostro contraído y las alas agitándose en un intento inútil de liberar la presión.
+
+Tras unos minutos de movimientos erráticos, el silencio regresó. Rainbow se dejó caer otra vez en el asiento, apoyando la cabeza contra la cabecera.
+
+Comer tantos waffles de avena esa mañana —junto con la leche de dudosa procedencia— había sido una pésima idea.
+
+En ese instante, los pensamientos de Rainbow Dash eran una mescla de regaños a si misma (donde los wafles ocupaban una parte importante). Y otra, donde toda su fuerza de voluntad se resumía de mantener su aparato digestivo bajo control.
+
+Resistir ... hasta que sus amigas llegen ... ella debia resistir.
+
+"Eres increíble, Rainbow... tú puedes hacerlo... ¡aguanta, Rainbow!" se repetía en un murmullo sudoroso, mientras algo nada lindo intentaba abrirse paso desde su interior.
+
+Mientras Rainbow Dash luchaba por contener lo que quería salir de ella...
+
+No muy lejos... dentro del bosque de arboles de cartón, algo similar sucedía.
+
+Rasgando el falso césped del suelo, una grieta se habia abierto lentamente. De su interior emergía una forma desconocida, empeñada en alcanzar al exterior. A aquel mundo de juguetes, donde las amigas de Twilight apenas habían podido encontrado refugio.
