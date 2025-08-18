@@ -418,23 +418,23 @@ El improvisado refugio de Rainbow Dash en el techo de la caseta no ofrecía sorp
 
 "Me siento un poco mal por no haber entendido a Rainbow Dash ayer, cuando dijo que nadie, aparte de ella, tenía permiso para subir tan alto..." comentó Fluttershy, recordando la imagen de Rainbow Dash erguida, proclamando su advertencia desde lo alto de la caseta el día anterior.
 
-"Yo tampoco la entendí. Pensé en ese momento que se refería al mirador en general..." respondió Applejack, mientras revisaba los alrededores de la caseta. Ahora se daba cuenta de que, muy probablemente, ese era el punto más alto de todo el mundo de juguetes. Lo cual explicaba por qué Rainbow Dash había escogido ese lugar.
+"Yo tampoco la entendí. Pensé en ese momento que se refería al mirador en general..." respondió Applejack, mientras revisaba los alrededores del techo. Ahora se daba cuenta de que, muy probablemente, ese era el punto más alto de todo el mundo de juguetes. Lo cual explicaba por qué Rainbow Dash había escogido ese lugar.
 
 "Tendremos que disculparnos con ella cuando regrese."
 
-"Supongo que sí..." dijo Applejack, rascándose la parte posterior de la cabeza, distraída.
+"Supongo que sí..." murmuró distraída la poni granjera, rascándose la parte posterior de la cabeza.
 
-Avanzó con pasos cautelosos, procurando no pisar los objetos esparcidos por el suelo. Fue entonces cuando reparó en un artefacto inusual incrustado en uno de los extremos del techo.
+Applejack avanzó con pasos cautelosos sobre el pequeño techo de la caseta, procurando no pisar los varios objetos esparcidos por el piso. Fue entonces cuando reparó en un artefacto inusual incrustado en una de las esquinas.
 
 Al acercarse, confirmó lo que había imaginado al principio: un telescopio.
 
-Curiosa, Applejack intentó moverlo, descubriendo que estaba atado firmemente a la esquina del techo. Así que, sin más, inclinó la cabeza y examinó la mirilla para ver hacia dónde apuntaba.
+Curiosa, intentó moverlo, pero pronto descubrió que estaba firmemente atado a su soporte. Así que, sin más, inclinó la cabeza y examinó la mirilla para ver hacia dónde apuntaba.
 
 La imagen que apareció ante sus ojos no era otra que la de la casa del árbol de Twilight, donde estaban sus amigas...
 
 Rainbow Dash no había dejado de cuidar de ellas ni un solo momento.
 
-Con ese pensamiento, Applejack sintió cómo un nudo comenzaba a formarse en su garganta.
+Con este revelador pensamiento, Applejack sintió cómo un nudo comenzaba a formarse en su garganta.
 
 "Emm... Fluttershy."
 
@@ -452,13 +452,13 @@ Con ese pensamiento, Applejack sintió cómo un nudo comenzaba a formarse en su 
 
 "Applejack." La voz de Fluttershy la interrumpió con suavidad, pero con una firmeza inusual. "Aún tenemos tiempo."
 
-La pegaso se acercó y, sin pedir permiso, se acurrucó a su lado. El gesto desarmó por completo a la granjera, que se dejó caer en el suelo como si, al fin, hubiera soltado un fardo invisible que llevaba cargando desde el primer día.
+La pegaso se acercó y, sin pedir permiso, se acurrucó a su lado. El gesto desarmó por completo a la honesta poni, que se dejó caer en el suelo como si, al fin, hubiera soltado un fardo invisible que llevaba cargando desde el primer día.
 
 "No debería estar diciéndote estas cosas, amiga... pero realmente no sé qué será de nosotras mañana." Applejack bajó la mirada; sus palabras eran apenas un murmullo. "Si logro dormir por las noches, es solo por el cansancio de caminar todo el día. Nada malo ha pasado hasta ahora, pero..."
 
 "Aún tenemos tiempo, Applejack" repitió Fluttershy, con la mirada fija y una serenidad que solo se podia encontrar en ella.
 
-Applejack abrió la boca para replicar, pero se detuvo. Intercambiaron miradas y, tras un silencio cargado, la granjera suspiró.
+Applejack abrió la boca para replicar, pero se detuvo. Intercambiaron miradas y, tras un silencio cargado, suspiró.
 
 "Tienes razón... supongo que sí."
 
@@ -484,7 +484,7 @@ Applejack negó con la cabeza. "No... creo que he estado demasiado distraída ú
 
 Applejack la miró, sorprendida. "No lo sabía... espera, no me dijiste eso hace un rato."
 
-"No eres la única que teme cómo reaccionarán los demás si comparte lo que siente. Por ejemplo, yo pienso mucho en mis amigos del bosque... ha pasado tanto tiempo desde la última vez que los vi..." Su voz se quebró apenas un instante, pero fue suficiente: el peso de su mirada lo decía todo.
+"No eres la única que teme cómo reaccionarán los demás si comparte lo que siente. Por ejemplo, yo pienso mucho en mis amigos del bosque... ha pasado tanto tiempo desde la última vez que los vi..." Su voz se quebró brevemente, pero fue suficiente: el peso de su mirada lo decía todo.
 
 Applejack comprendió al instante y bajó la cabeza.
 
