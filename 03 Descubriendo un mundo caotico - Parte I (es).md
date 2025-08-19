@@ -664,4 +664,4 @@ Mientras Rainbow Dash luchaba por contener lo que quería salir de ella...
 
 No muy lejos... dentro del bosque de arboles de cartón, algo similar sucedía.
 
-Rasgando el falso césped del suelo, una grieta se habia abierto lentamente. De su interior emergía una forma desconocida, empeñada en alcanzar al exterior. A aquel mundo de juguetes, donde las amigas de Twilight apenas habían podido encontrado refugio.
+Rasgando el falso césped del suelo, una grieta se habia abierto lentamente. De su interior emergía una forma desconocida empeñada en alcanzar al exterior. A aquel mundo de juguetes, donde las amigas de Twilight apenas habían podido encontrado refugio.
