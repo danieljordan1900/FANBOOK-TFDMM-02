@@ -1,3 +1,11 @@
+pizza Hawaiana
+
+la fabrica del caos (discord v2) alias Sir Discord
+
+para salir del nivel 1 requieren de un : cinco cornetas (pikopiko pon)
+
+elementos retro para dar sabor a la historia 
+
 Envuelta en una densa noche, un grito constante surgía desde el interior de la casa-árbol de Twilight.
 
 "¡¡Aaaaaaaahhhhhh!!"
