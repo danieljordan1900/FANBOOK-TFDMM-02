@@ -638,9 +638,9 @@ Fluttershy, en cambio, no pudo resistirlo. Soltó una carcajada breve, tan inten
 
 Rainbow Dash apagó el comunicador.
 
-No había alegría en su rostro.
+No había rastro de alegría en su rostro.
 
-"¿Así que un Rainbow Fart Sónico, eh? ¿Desde cuando eres la chistosa del grupo, Applejack? ¿Acaso quieres tener la charla con Pinkie, no es así? Porque si la vas a tener... despues que me ayudes con esto..." rebuznó con tono vengativo pero angustiado, antes de arrojar el comunicador contra la ventana de vidrio frente a ella.
+"¿Así que un Rainbow Fart Sónico, eh? ¿Desde cuándo eres la graciosa del grupo, Applejack? ¿Quieres tener esa charla con Pinkie, verdad? Porque si la vas a tener… será después de que me ayudes con esto..." gruñó con un tono vengativo, aunque cargado de angustia, antes de lanzar el comunicador contra la ventana de vidrio frente a ella.
 
 El lugar permanecía en penumbra: un espacio reducido, semejante al interior de una cápsula espacial.
 

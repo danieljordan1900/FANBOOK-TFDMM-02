@@ -638,9 +638,9 @@ Fluttershy, on the other hoof, couldn’t resist. She let out a short burst of l
 
 Rainbow Dash shut off the communicator.
 
-There was no joy on her face.
+There wasn’t a trace of joy on her face.
 
-"So, a Sonic Rainbow Fart, huh? Since when are you the funny one of the group, Applejack? You just want to have the talk with Pinkie, don’t you? Because if you’re gonna have it... do it after you help me with this..." she snorted with a vengeful yet anguished tone, before hurling the communicator against the glass window in front of her.
+"So, a Sonic Rainbow Fart, huh? Since when are you the funny one in the group, Applejack? You wanna have that talk with Pinkie, don’t you? Well, if you’re going to have it… it’ll be after you help me with this..." she growled, her voice vengeful yet laced with anguish, before hurling the communicator against the glass window in front of her.
 
 The place remained in shadow: a confined space, much like the inside of a space capsule.
 
