@@ -1,3 +1,5 @@
+# Como juguetes fuera de caja - Parte I (es)
+
 "Era tibio... era suave... era familiar..."
 
 Poco a poco, el mundo sensible a su alrededor comenzó a manifestarse dentro de ella.
@@ -110,7 +112,7 @@ Vendas.
 
 Muchas vendas blancas y delgadas cubrían el rostro de Rainbow Dash, dejando al descubierto solo la mitad de su cara. Applejack tragó saliva con fuerza.
 
-¿Cuándo se había lastimado tanto su amiga?", pensó en medio de su temor. 
+¿Cuándo se había lastimado tanto su amiga?", pensó en medio de su temor.
 
 Pero no solo se trataba de eso.
 

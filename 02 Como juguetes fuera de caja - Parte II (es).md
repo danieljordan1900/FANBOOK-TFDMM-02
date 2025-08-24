@@ -1,3 +1,5 @@
+# Como juguetes fuera de caja - Parte II (es)
+
 En medio de un frondoso bosque celeste, la última y trágica batalla dentro de la gran barrera daba inicio...
 
 "¡Haaaaaaaaaaaaaaaa!" Rainbow Dash gritó, lanzándose contra su oponente. Llena de toda la furia que podía caber en ella. Con las pocas fuerzas que le quedaban, voló hacia Badwhiz a toda velocidad y, de una patada, hizo volar muy lejos el cristal sellador que tenía en su casco izquierdo. Luego, con otro ataque, dirigió una patada hacia su cabeza.

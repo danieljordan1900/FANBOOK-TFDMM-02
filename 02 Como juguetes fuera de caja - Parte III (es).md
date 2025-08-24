@@ -1,3 +1,5 @@
+# Como juguetes fuera de caja - Parte III (es)
+
 Había transcurrido un tiempo indeterminado desde que las amigas de Twilight y Badwhiz hicieran contacto visual. ¿Cuánto tiempo podría haber sido? ¿Segundos? ¿Minutos? ¡¿Horas?! No había forma de saberlo. Nadie allí lo estaba calculando. El único reloj de la habitación marcaba, con sus falsas manecillas, un momento congelado en el tiempo: una representación física del tenso y prolongado reencuentro entre aquel par de adversarios declarados.
 
 No obstante, aquel escenario inmóvil no podía persistir. Alguien, tarde o temprano, tendría que hacer el primer movimiento.

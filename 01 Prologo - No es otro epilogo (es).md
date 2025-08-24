@@ -1,3 +1,5 @@
+# Prologo - No es otro epilogo (es)
+
 "¡Este va a ser el mejor Día de los Corazones Cálidos de la historia!" exclamó Discord, dando un gran salto y deslizándose por el suelo mientras bombas de confeti estallaban a su paso.
 
 "Es el Día del Festival de las Dos Hermanas..." murmuró Spike sin mucho entusiasmo, avanzando detrás, junto a él estaba Big Mac.
@@ -56,17 +58,17 @@ Spike y Big Mac miraron a su alrededor, dándose cuenta al fin de que Discord no
 
 No lo había estado desde hacía varios minutos...
 
-"¿Dónde está Discord?" preguntó Spike, sorprendido por la ausencia del draconequus.
+"¿Dónde está Discord?", preguntó Spike, genuinamente sorprendido.
 
 Discord, que los había estado animando con sus picardías desde que llegaron a la feria, se había esfumado sin decir una palabra. Era algo inusual, ya que siempre hacía notar sus retiradas. Además, ese día se había comportado sorprendentemente bien pese a su naturaleza caótica e historial de conductas reprobables. Incluso les había dado regalos a cada uno, como las manzanas acarameladas que ya se habian comido y la carretilla que ahora empujaba Spike.
 
-Todo esto empezaba a tomar forma de señales inquietantes en la mente del joven dragón.
+Por todo eso, su repentina desaparición resultaba desconcertante y... preocupante.
 
-"Ujum", exclamó Big Mac con un tono grave en respuesta a la pregunta de Spike. Sin decir más, apuntó con su casco hacia el camino por donde habían pasado antes.
+"Ujum", exclamó Big Mac con un tono grave ante la pregunta de Spike. Sin decir más, señaló con un casco el camino por el que habían pasado antes.
 
-Spike entendió de inmediato la intención de su amigo.
+Spike comprendió enseguida.
 
-"Buena idea, Big Mac. Regresemos por donde vinimos, quizá Discord haya encontrado algo interesante que no hayamos visto", dijo Spike con un tono un poco más optimista, enterrando sus preocupaciones. Quizá solo lo estaba pensando demasiado...
+"Buena idea, Big Mac. Regresemos por donde vinimos. Quizá Discord haya encontrado algo interesante que no vimos", dijo con un tono más optimista, enterrando sus inquietudes. Quizá solo estaba pensando demasiado...
 
 "Si-p", respondió el gran poni. Así, sin más palabras, ambos amigos volvieron sobre sus pasos. Zigzaguearon por las calles de la feria, evadiendo a los transeúntes y volviendo a maravillarse con las exóticas rarezas que asomaban aquí y allá.
 
@@ -162,23 +164,23 @@ Ambos amigos comenzaron a alejarse con cautela, recelosos de aquella inquietante
 
 "Joven consejero Spike, ¡gracias a Celestia que al fin lo encuentro! ¡Tenemos una emergencia!" exclamó el soldado, entregándole una carta de inmediato.
 
-"¿Joe? Espera... ¿qué? Uhmm..." Spike no tuvo tiempo de saludar al recién llegado. Apenas escuchó la palabra "emergencia" y sintió el peso de la carta en sus garras, su sorpresa se convirtió en concentración... y luego en pánico.
+"¿Joe? Espera... ¿qué? Uhmm..." Spike no tuvo tiempo de saludar al recién llegado. Apenas escuchó la palabra "emergencia" y sintió el peso de la carta en sus garras, pronto su sorpresa se convirtió en concentración... y luego en pánico.
 
-No podía ser verdad. Lo que acababa de leer no tenia sentido. ¿En qué momento había pasado todo eso?
+No podía ser verdad. Lo que acababa de leer en la carta no tenía sentido. ¿En qué momento había pasado todo eso?
 
-Volvió a leer la carta, esta vez con más detenimiento, y sintiendo cómo su estómago se encogía.
+Volvió a leer la carta, esta vez con más detenimiento, y dejando salir la voz de las emociones que reverberaban desde el fondo de su estómago.
 
-"Ataque al tren de Ponyville a Canterlot... reunión de emergencia en el Palacio Real... Celestia y Luna a cargo... ¡y esto fue hace ya una HORA!" gritó Spike, elevándose en el aire y llamando la atención de los presentes. "¡¿Por qué no me llegó esto antes?!"
+"Ataque al tren de Ponyville a Canterlot... reunión de emergencia en el Palacio Real... Celestia y Luna a cargo... ¡y esto fue hace mas de una hora!" gritó Spike al cielo, elevándose en el aire y llamando la atención de los presentes. "¡¿Por qué no me llegó esto antes?!"
 
 El soldado se encogió bajo la mirada furiosa del dragón y la de Big Mac, que lo observaba con expresión severa.
 
-"Lo sentimos, joven consejero, pero no pudimos encontrarlo antes debido a ciertos inconvenientes en la feria", respondió el guardia con tono tenso.
+"Lo sentimos, joven consejero, pero no pudimos encontrarlo antes por la culpa de ciertos inconvenientes en la feria", respondió el guardia con tono tenso.
 
 "¿Inconvenientes? ¡Podrían haber usado los parlantes de emergencia para llamarme!" replicó Spike, su enojo subiendo de tono.
 
-"Esos son los inconvenientes", explicó el soldado. "Todo el sistema de emergencia de la capital está fuera de servicio. Las líneas de comunicación, tanto físicas como mágicas, están rotas. Ninguno de los mensajeros que enviamos al exterior ha regresado hasta el momento". Su voz se volvió más baja, como si intentara contener su propia angustia y evitar que los ponis a su alrededor se alarmaran.
+"Esos son los inconvenientes", explicó el soldado. "Todo el sistema de emergencia de la capital está fuera de servicio. Las líneas de comunicación, tanto físicas como mágicas, están rotas. Ninguno de los mensajeros que enviamos al exterior ha regresado hasta el momento..." A cada palabra, la voz del soldado se volvía más baja, como si intentara contener su propia angustia y evitar asi que los ponis a su alrededor se enteraran de tan pesima situación.
 
-Ante aquellas muy malas noticias. Spike se quedó flotando en el aire, en shock, inmóvil como una roca suspendida en el viento.
+En respuesta, un "clic" se hizo en la mente de Spike, quien se quedó flotando en el aire, en shock, inmóvil como una roca suspendida en el viento.
 
 A su alrededor, la música de la feria continuaba sonando, suave y relajante, repetitiva pero fresca... como si se burlara de él.
 
