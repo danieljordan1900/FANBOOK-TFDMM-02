@@ -54,9 +54,45 @@ Detrás de ella, en la despensa cerrada, un nuevo frasco de maicena había apare
 
 [---]
 
-"¡Precioso! ¡Mi precioso!"
+Esta escena es algo hilarante porque es una conversacion entre Pinkie Pie y sus amigos imaginarios.
 
-como podria
+Sr Nabo: tranquilo, bonachón y algo ingenuo. Más conciliador, pero fácilmente arrastrado por la paranoia de los demás.
+
+Sr Pelusa: parlanchín, un poco chismoso. Lo proyecta como alguien ligero y nervioso, que exagera todo lo que escucha.
+
+Rocky: serio y taciturno, tipo “hombre fuerte” silencioso. Pinkie lo hace sonar gruñón, como alguien que no confía en los demás.
+
+Madam Harina: elegante y refinada, con un aire “francés”. Podría ser crítica pero educada, como la voz de la razón un tanto altiva.
+
+[---]
+
+Una debil luz de una vela se encendió debajo de la mesa, revelando entre sombras una escena inquietante.
+
+"¡Precioso! ¡Si mis precioso! ¡Al fin son mios mis preciosos dulces!" murmuraba Pinkie Pie con un frenesí apenas contenido debajo de una sonrisa afilada, con la mirada puesta en el botín de caramelos que acababa de hallar.
+
+"¡Muy bien hecho!"
+
+"¡Si! ¡Hurra!"
+
+"Sabia que lo lograrias..."
+
+Atras de ella, apenas visibles en la penumbra danzante, tanto el Sr Pelusa, el Sr Nabo y Rocky la roca, aclamaban entre algarabías a su amiga Pinkie Pie por su reciente logro.
+
+No obstante la dicha del momento no era compartida por todos.
+
+"Oh... querida, no puedo creer lo bajo que estas actuando", dijo Madam Harina con una voz que apenas velaba el desagrado que sentía, mientras tomaba una taza de té.
+
+De inmediato, el resto de sus compañeros se dieron la vuelta, entre siluetas nada amigables dirigidas contra su compañera.
+
+
+
+
+
+
+
+"
+
+[---]
 
 Escena 2. Applejack y Fluttershy. En el bosque de carton, se encuentran con Rainbow Dash.
 
