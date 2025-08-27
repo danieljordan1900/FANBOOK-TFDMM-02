@@ -66,43 +66,141 @@ Madam Harina: elegante y refinada, con un aire “francés”. Podría ser crít
 
 [---]
 
-Una debil luz de una vela se encendió debajo de la mesa, revelando entre sombras una escena inesperada e ... inquietante.
+Una débil luz de vela se encendió debajo de la mesa, revelando entre sombras una escena inesperada e inquietante.
 
-"¡Precioso! ¡Si mis preciosos! ¡Al fin son mios!" proclamo Pinkie Pie empapada de sudor con un frenesí apenas contenido con una  retorcida mirada puesta en el botín de caramelos multicolores que acababa de hallar.
+"¡Precioso! ¡Sí, mis preciosos! ¡Al fin son míos!" proclamó una Pinkie Pie empapada de sudor, con la melena revuelta y una sonrisa afilada. Su mirada, retorcida por un frenesí apenas contenido, estaba fija en el botín de caramelos multicolores que acababa de encontrar.
 
 "¡Muy bien hecho!"
-
-"¡Si! ¡Hurra!"
-
+"¡Sí! ¡Hurra!"
 "¡Te felicito!"
 
-Delante de ella, visibles entre la penumbra danzante de la luz de la vela, sus amigos, el Sr Pelusa, el Sr Nabo y Rocky la roca, aclamaban entre algarabías a su amiga Pinkie Pie por su reciente logro.
+Delante de ella, visibles entre la penumbra que danzaba con la luz de la vela, se hallaban sus amigos: el Sr. Pelusa, el Sr. Nabo y Rocky la roca, aclamando con algarabía el reciente logro de su amiga.
 
-"Gracias, gracias. No lo habria logrado sin el apoyo de todos ustedes." respondio la poni rosada entre intensas respiraciones, sofocando lentamente su exaltado espíritu.
+"Gracias, gracias. No lo habría logrado sin el apoyo de todos ustedes." respondió la poni rosada entre intensas respiraciones, sofocando poco a poco su exaltado espíritu.
 
-"¿Para que estan los amigos entonces? Siempre cuenta con nosotros." le respondio el Sr Nabo a Pinkie Pie.
+"¿Para qué están los amigos entonces? Siempre cuenta con nosotros." dijo con confianza el Sr. Nabo.
 
-"Desde un primer momento sabia que lo lograrías." añadió el Sr Pelusa.
+"Tú siempre lo logras amiga!" añadió Rocky la roca.
 
-"Asi? pues eso no es lo que dijiste hace un rato atrás, amigo" increpo Rocky la roca al Sr Pelusa.
+"Desde un primer momento sabía que lo lograrías." añadió el Sr. Pelusa.
 
-"Lo que dije fue que encontrar caramelos dentro de la pata de una mesa era un suceso bastante particular." respondio el Sr Pelusa en un tono didactico. "Nunca dije que fuera algo que no podria pasar."
+El ambiente era bueno entre ellos, sin embargo, pronto comenzó a quebrarse.
 
-"Pues a mi me parecio que eso no era lo que querias decir" replico desafiante Rocky la roca al Sr Pelusa. 
+"¿Ah, sí? Pues eso no es lo que dijiste hace un rato, amigo." increpó Rocky la roca al Sr. Pelusa.
 
-"¡Pues claro que no! ¿En que estas pensando?" respondio el Sr Pelusa indignado. "Acaso piensas que soy una insensible corazon de piedra como tu" termino de decir empujando a su compañero.
+"Lo que dije fue que encontrar caramelos dentro de la pata de una mesa sería un suceso bastante particular." replicó el Sr. Pelusa en un tono didáctico echando una mirada a un trozo de madera tirado en el suelo. "Nunca afirmé que fuera imposible."
 
-"Ya valiste polvo pelusita" respondio ahora si molesto Rocky la roca.
+"Pues a mí me pareció otra cosa." respondió desafiante Rocky.
 
-"Esperen! Que!" frente a una sorprendida Pinkie Pie por el repentino giro de acontecimientos, ambos amigos se acercaron uno al otro, haciendo chocar los baldes en donde estaba y mirandose desafiantes entre si.
+"¡Claro que no! ¿Qué insinúas?" exclamó indignado el Sr. Pelusa. "¿Acaso piensas que soy un insensible corazón de piedra como tú?" terminó de decir empujando a su compañero.
 
-No obstante antes de que las cosas escalaran a mayores, Sr Nabo descidio intervenir.
+"Ya valiste polvo, pelusita." respondió Rocky, ahora visiblemente molesto.
 
-"Alto ustede dos, que creen que estan haciendo frente a nuestra amiga." reprendio Sr Nabo interrumpiendo el duelo con un tono de voz severo.
+"¡Esperen, deténganse!" gritó una sorprendida Pinkie Pie, ignorada por ambos. El par de amigos inanimados se acercaron uno al otro, chocando los baldes en los que estaban y mirándose con desafío.
 
-Pronto las miradas de los presentes se dirigieron hacia Pinkie Pie, quien se encontraba con una expresión entristecida en su rostro.
+El aire se tensó, como si la llama de la vela hubiera encogido en un suspiro.
 
+Antes de que las cosas escalaran, el Sr. Nabo decidió intervenir.
 
+"Alto ustedes dos. ¿Qué creen que están haciendo frente a nuestra amiga?" reprendió con tono severo.
+
+De inmediato, las miradas se dirigieron hacia Pinkie Pie, que permanecía sentada en el suelo, apenas iluminada por la vela. Su expresión se había tornado entristecida, y su melena, desinflada de golpe, caía lánguidamente a un lado.
+
+Ya no había rastro de la alegría que minutos antes la desbordaba.
+
+"¡Lo sentimos, lo sentimos mucho!" exclamaron casi al unísono Rocky y el Sr. Pelusa. Claramente se daban cuenta de su error.
+
+"Por favor, perdónanos, Pinkie." suplicaron ambos.
+
+Pero no hubo respuesta. La poni tenía la mirada fija en la llama, perdida en pensamientos que no compartía.
+
+"Esto no está funcionando..." murmuró.
+
+Confundidos, los tres amigos se miraron entre sí.
+
+"¿P-Pinkie?" preguntaron al mismo tiempo.
+
+Fue entonces cuando, como si despertara de un trance, la melena de Pinkie se agitó y comenzó a inflarse ligeramente. Con una sonrisa débil, levantó la mirada y les habló:
+
+"Sí, sí, disculpen. Los perdono, pero prométanme que no lo volverán a repetir."
+
+"¡Lo prometemos! ¡Sí! ¡Pinkie Promesa!" juraron todos a la vez. "Palabra de roca." añadió Rocky.
+
+El ambiente, que momentos antes parecía quebrarse, volvió a suavizarse con esas palabras.
+
+"Me alegra escuchar eso, aunque una Pinkie Promesa no era necesaria... Todos peleamos, incluso los amigos. Solo que no soportaría verlos pelear a ustedes también... no ahora..." dijo Pinkie con una sonrisa disimulada, bajando de nuevo la cabeza.
+
+Entonces, sintiendo algo similar a una palmada en la espalda, escuchó una voz a su lado.
+
+"No somos como sus otros amigos, Srta. Pinkie. Usted es muy especial para nosotros." dijo el Sr. Pelusa con una sonrisa que solo podía imaginarse en su tono.
+
+"Siempre estaremos contigo." añadió el Sr. Nabo.
+
+"Rocas unidas, piedra inquebrantable." concluyó Rocky con solemnidad.
+
+Los tres se juntaron al mismo tiempo y abrazaron con fuerza a su amiga.
+
+"Gracias... muchas gracias..." dijo Pinkie Pie conmovida, esbozando una sonrisa genuina, aunque su melena aún no recuperaba su volumen habitual.
+
+El momento emotivo parecía no tener fin, pero poco a poco el ambiente comenzó a tensarse de nuevo. La voz de la razón, en su mente, regresó para cortar de raíz aquel instante de calma.
+
+"Muy bien... creo que ya hemos tomado suficiente tiempo de nuestra estimada amiga." dijo el Sr. Pelusa, posando la mirada en el botín de caramelos que aún sostenía Pinkie Pie. "Es hora de continuar con el plan. ¿No lo cree, Srta. Pinkie Pie?"
+
+Todos asintieron. Pinkie, que había estado distraída, se puso seria de inmediato al recordar lo que estaba haciendo antes.
+
+Sin más palabras, solo con miradas cómplices, tomó uno de los caramelos y lo acercó a la llama de la vela, para después comerse todos los demás de golpe.
+
+En cuestión de segundos, el caramelo encendido comenzó a arder, crepitando y esparciendo un aroma cítrico por el aire.
+
+Casi al mismo tiempo, Pinkie Pie había entrado en un extraño estado de meditación.
+
+Erguida sobre su propia cola, con las extremidades en una posición similar a la de alguien que concentraba su chakra, se hallaba realizando un esfuerzo mental considerable.
+
+Proyectaba su voluntad más allá del pensamiento común, más allá de los límites de la prisión de juguetes en la que estaban atrapadas ella y sus amigas, más allá incluso del vacío que envolvía aquel mundo de sensibilidad...
+
+Entonces, dando brincos por aquel espacio astral entre dimensiones, en medio de un torbellino de integrales y derivadas, encontró a la persona que había estado buscando.
+
+De una mordida la atrapó y, jalándola con fuerza, la arrastró hacia donde estaba su cuerpo real.
+
+Como si hubiese recibido de pronto un peso repentino, Pinkie Pie cayó de espaldas, rompiendo su postura anterior y siendo socorrida de inmediato por sus otros amigos inanimados.
+
+Pero antes de responder a las preguntas sobre su estado, que empezaban a llover sobre ella, levantó un casco aún desde el suelo y exclamó con fuerza:
+
+"¡La encontré!"
+
+Cerca de la vela encendida, un paquete de harina que hasta entonces había permanecido inmóvil comenzó a moverse.
+
+"Auuuu... ay... por todo el almidón del mundo, ¿qué ha pasado?" exclamó Madame Harina poniéndose de pie como si despertara de un largo sueño.
+
+"¡Sííííí! ¡Bien! ¡Por fin estás de vuelta! ¡Hurra!" muchas voces se mezclaban alrededor de Madame Harina, quien, confundida, seguía sin entender qué ocurría. "En serio... ¿de qué me perdí?"
+
+Pinkie Pie, que había saltado de un brinco para ponerse en pie, fue la primera en responder:
+
+"Pues, resumiendo de manera sencilla, digamos que tuvimos un accidente en tren y quedamos varadas en un lugar muy, muy extraño..."
+
+"Ahh extraño?"
+
+"Sii! muy extraño, tal vez ... otro universo." dijo con inusitada seriedad la poni rosa.
+
+"¿¡Otro universo!? ¿De verdad?"
+
+"Sí, pero no te preocupes. Por fin te encontramos y, ahora que todos estamos juntos de nuevo, podremos resolverlo. Además, el Sr. Nabo ya tiene un plan." añadió Pinkie, cerrando la nariz para contener la respiración. Su melena volvió a esponjarse de inmediato.
+
+"Así es, Madame. Tras varias observaciones hemos llegado a la conclusión de que este sitio, muy probablemente, sea una dimensión de bolsillo creada artificialmente a partir de la información de nuestro universo original."
+
+"Vaya... eso es..." balbuceó Madame Harina sin saber qué responder.
+
+"Mucha información, ¿eh?" intervino Pinkie dándole unos codazos cómplices a su amiga inanimada. "No lo pienses tanto, amiga. Te daremos una explicación con diapositivas después. Pero antes... lo más importante."
+
+Sin previo aviso, la poni rosada sopló la vela que apenas iluminaba el espacio, sumiendo a todos en oscuridad. La negrura no duró: casi al instante una nueva luz multicolor estalló en medio del lugar, con chisporroteos y centellas que se esparcieron sobre los presentes.
+
+"¡Fiesta de Bienvenida-aaa!" gritó a todo pulmón, rebosante de júbilo, mientras hacía estallar una bomba de confeti. Levantaba en lo alto un enorme pastel de leche adornado con chispas centelleantes a modo de velas.
+
+Antes de que Madame Harina pudiera decir algo más, sus amigos la tomaron (con Pinkie a la cabeza) y comenzaron a levantarla en andas en medio de una algarabía de voces.
+
+"¡Hurraaa, hurraaa!" decían todos
+
+"¡Sííí, sííí! ¡Aaaaajajaja!" exclamaba feliz Madame Harina con cada levantada contagiada por la emoción, aunque en el fondo aún seguía sin tener la más mínima idea de qué rayos estaba pasando.
 
 [---]
 
