@@ -66,31 +66,43 @@ Madam Harina: elegante y refinada, con un aire “francés”. Podría ser crít
 
 [---]
 
-Una debil luz de una vela se encendió debajo de la mesa, revelando entre sombras una escena inquietante.
+Una debil luz de una vela se encendió debajo de la mesa, revelando entre sombras una escena inesperada e ... inquietante.
 
-"¡Precioso! ¡Si mis precioso! ¡Al fin son mios mis preciosos dulces!" murmuraba Pinkie Pie con un frenesí apenas contenido debajo de una sonrisa afilada, con la mirada puesta en el botín de caramelos que acababa de hallar.
+"¡Precioso! ¡Si mis preciosos! ¡Al fin son mios!" proclamo Pinkie Pie empapada de sudor con un frenesí apenas contenido con una  retorcida mirada puesta en el botín de caramelos multicolores que acababa de hallar.
 
 "¡Muy bien hecho!"
 
 "¡Si! ¡Hurra!"
 
-"Sabia que lo lograrias..."
+"¡Te felicito!"
 
-Atras de ella, apenas visibles en la penumbra danzante, tanto el Sr Pelusa, el Sr Nabo y Rocky la roca, aclamaban entre algarabías a su amiga Pinkie Pie por su reciente logro.
+Delante de ella, visibles entre la penumbra danzante de la luz de la vela, sus amigos, el Sr Pelusa, el Sr Nabo y Rocky la roca, aclamaban entre algarabías a su amiga Pinkie Pie por su reciente logro.
 
-No obstante la dicha del momento no era compartida por todos.
+"Gracias, gracias. No lo habria logrado sin el apoyo de todos ustedes." respondio la poni rosada entre intensas respiraciones, sofocando lentamente su exaltado espíritu.
 
-"Oh... querida, no puedo creer lo bajo que estas actuando", dijo Madam Harina con una voz que apenas velaba el desagrado que sentía, mientras tomaba una taza de té.
+"¿Para que estan los amigos entonces? Siempre cuenta con nosotros." le respondio el Sr Nabo a Pinkie Pie.
 
-De inmediato, el resto de sus compañeros se dieron la vuelta, entre siluetas nada amigables dirigidas contra su compañera.
+"Desde un primer momento sabia que lo lograrías." añadió el Sr Pelusa.
+
+"Asi? pues eso no es lo que dijiste hace un rato atrás, amigo" increpo Rocky la roca al Sr Pelusa.
+
+"Lo que dije fue que encontrar caramelos dentro de la pata de una mesa era un suceso bastante particular." respondio el Sr Pelusa en un tono didactico. "Nunca dije que fuera algo que no podria pasar."
+
+"Pues a mi me parecio que eso no era lo que querias decir" replico desafiante Rocky la roca al Sr Pelusa. 
+
+"¡Pues claro que no! ¿En que estas pensando?" respondio el Sr Pelusa indignado. "Acaso piensas que soy una insensible corazon de piedra como tu" termino de decir empujando a su compañero.
+
+"Ya valiste polvo pelusita" respondio ahora si molesto Rocky la roca.
+
+"Esperen! Que!" frente a una sorprendida Pinkie Pie por el repentino giro de acontecimientos, ambos amigos se acercaron uno al otro, haciendo chocar los baldes en donde estaba y mirandose desafiantes entre si.
+
+No obstante antes de que las cosas escalaran a mayores, Sr Nabo descidio intervenir.
+
+"Alto ustede dos, que creen que estan haciendo frente a nuestra amiga." reprendio Sr Nabo interrumpiendo el duelo con un tono de voz severo.
+
+Pronto las miradas de los presentes se dirigieron hacia Pinkie Pie, quien se encontraba con una expresión entristecida en su rostro.
 
 
-
-
-
-
-
-"
 
 [---]
 
