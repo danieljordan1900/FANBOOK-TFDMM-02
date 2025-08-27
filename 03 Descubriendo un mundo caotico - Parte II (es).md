@@ -74,7 +74,7 @@ Una débil luz de vela se encendió debajo de la mesa, revelando entre sombras u
 "¡Sí! ¡Hurra!"
 "¡Te felicito!"
 
-Delante de ella, visibles entre la penumbra que danzaba con la luz de la vela, se hallaban sus amigos: el Sr. Pelusa, el Sr. Nabo y Rocky la roca, aclamando con algarabía el reciente logro de su amiga.
+Delante de ella, visibles entre la penumbra que danzaba con la luz de la vela, se hallaba un inesperado grupo amigos: el Sr. Pelusa, el Sr. Nabo y Rocky la roca (en sus respectivos baldes), aclamando con algarabía el reciente logro de su amiga.
 
 "Gracias, gracias. No lo habría logrado sin el apoyo de todos ustedes." respondió la poni rosada entre intensas respiraciones, sofocando poco a poco su exaltado espíritu.
 
@@ -178,19 +178,19 @@ Pinkie Pie, que había saltado de un brinco para ponerse en pie, fue la primera 
 
 "Pues, resumiendo de manera sencilla, digamos que tuvimos un accidente en tren y quedamos varadas en un lugar muy, muy extraño..."
 
-"Ahh extraño?"
+"¿Ahh, extraño?"
 
-"Sii! muy extraño, tal vez ... otro universo." dijo con inusitada seriedad la poni rosa.
+"¡Sii! Muy extraño, tal vez... otro universo." dijo con inusitada seriedad la poni rosa, para después taparse la nariz y contener la respiración unos segundos. Entonces, como si se tratara de un globo, su melena volvió a esponjarse de inmediato.
 
-"¿¡Otro universo!? ¿De verdad?"
+"¿Otro universo... de verdad?" murmuró perpleja Madam Harina.
 
-"Sí, pero no te preocupes. Por fin te encontramos y, ahora que todos estamos juntos de nuevo, podremos resolverlo. Además, el Sr. Nabo ya tiene un plan." añadió Pinkie, cerrando la nariz para contener la respiración. Su melena volvió a esponjarse de inmediato.
+"Sí, pero no te preocupes. ¡Ya te encontramos! Y ahora que estamos todos juntos otra vez, podremos resolverlo. Además, el Sr. Nabo ya tiene un plan para salir de aquí… ¡Ehmm! ¿Exactamente dónde era aqui?" pregunto Pinkie, un poco confundida por su propia lógica.
 
-"Así es, Madame. Tras varias observaciones hemos llegado a la conclusión de que este sitio, muy probablemente, sea una dimensión de bolsillo creada artificialmente a partir de la información de nuestro universo original."
+"Sí, sobre eso, Madame. Tras varias observaciones hemos llegado a la conclusión de que este mundo de plástico, muy probablemente, sea una dimensión de bolsillo creada artificialmente a partir de la información de nuestro universo original."
 
-"Vaya... eso es..." balbuceó Madame Harina sin saber qué responder.
+"Vaya... eso es..." balbuceó Madame Harina, con sus pensamientos apilándose uno sobre otro.
 
-"Mucha información, ¿eh?" intervino Pinkie dándole unos codazos cómplices a su amiga inanimada. "No lo pienses tanto, amiga. Te daremos una explicación con diapositivas después. Pero antes... lo más importante."
+"¿Mucha información, eh?" intervino Pinkie, dándole unos codazos cómplices a su amiga inanimada. "No lo pienses tanto, amiga. Te daremos una explicación con diapositivas después. Pero antes... lo más importante."
 
 Sin previo aviso, la poni rosada sopló la vela que apenas iluminaba el espacio, sumiendo a todos en oscuridad. La negrura no duró: casi al instante una nueva luz multicolor estalló en medio del lugar, con chisporroteos y centellas que se esparcieron sobre los presentes.
 
