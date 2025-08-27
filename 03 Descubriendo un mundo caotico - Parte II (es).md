@@ -1,7 +1,5 @@
 # Descubriendo un mundo caótico - Parte II (es)
 
-Escena 1. Con Rarity y Pinkie Pie. En la cocina, preparando un pastel. Descubren a la mini Twilight.
-
 "¡Precioso! ¡Es perfecto!" exclamó Rarity llena de júbilo, tan dichosa como si hubiera descubierto un inmenso diamante rosado.
 
 Aislada dentro de un traje de látex, la unicornio no se hallaba en una cueva de gemas preciosas ni en una exposición de diamantes invaluables. Más bien, estaba en el almacén de alimentos del sótano de la falsa casa del árbol de Twilight, sosteniendo en lo alto lo que, a simple vista, parecía un ordinario frasco de condimentos.
@@ -191,6 +189,8 @@ Antes de que Madame Harina pudiera decir algo más, sus amigos la tomaron (con P
 "¡Sííí, sííí! ¡Aaaaajajaja!" exclamaba feliz Madame Harina con cada levantada contagiada por la emoción, aunque en el fondo aún seguía sin tener la más mínima idea de qué rayos estaba pasando.
 
 [---]
+
+Escena 1. Con Rarity y Pinkie Pie. En la cocina, preparando un pastel. Descubren a la mini Twilight.
 
 Escena 2. Applejack y Fluttershy. En el bosque de carton, se encuentran con Rainbow Dash.
 
