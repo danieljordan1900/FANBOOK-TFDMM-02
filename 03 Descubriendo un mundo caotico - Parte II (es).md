@@ -54,18 +54,6 @@ Detrás de ella, en la despensa cerrada, un nuevo frasco de maicena había apare
 
 [---]
 
-Esta escena es algo hilarante porque es una conversacion entre Pinkie Pie y sus amigos imaginarios.
-
-Sr Nabo: tranquilo, bonachón y algo ingenuo. Más conciliador, pero fácilmente arrastrado por la paranoia de los demás.
-
-Sr Pelusa: parlanchín, un poco chismoso. Lo proyecta como alguien ligero y nervioso, que exagera todo lo que escucha.
-
-Rocky: serio y taciturno, tipo “hombre fuerte” silencioso. Pinkie lo hace sonar gruñón, como alguien que no confía en los demás.
-
-Madam Harina: elegante y refinada, con un aire “francés”. Podría ser crítica pero educada, como la voz de la razón un tanto altiva.
-
-[---]
-
 Una débil luz de vela se encendió debajo de la mesa, revelando entre sombras una escena inesperada e inquietante.
 
 "¡Precioso! ¡Sí, mis preciosos! ¡Al fin son míos!" proclamó una Pinkie Pie empapada de sudor, con la melena revuelta y una sonrisa afilada. Su mirada, retorcida por un frenesí apenas contenido, estaba fija en el botín de caramelos multicolores que acababa de encontrar.
