@@ -52,31 +52,31 @@ Detrás de ella, en la despensa cerrada, un nuevo frasco de maicena había apare
 
 [---]
 
-Una débil luz de vela se encendió debajo de la mesa, revelando entre sombras una bizarra escena.
+Una débil luz de vela se encendió debajo de la mesa, revelando entre sombras una escena bizarra.
 
-"¡Precioso! ¡Sí, mis preciosos! ¡Al fin son míos!" decia entre jadeos una irreconocible Pinkie Pie empapada de sudor. Tenia la melena revuelta entre astillas y una sonrisa tan afilada que ya parecia dolorosa. Su mirada, tan retorcida como como el resto de su semblante, era un sello innegable del frenesí que la consumía.
+"¡Precioso! ¡Sí, mis preciosos! ¡Al fin son míos!", decía entre jadeos una irreconocible Pinkie Pie, empapada de sudor. Tenía la melena revuelta entre astillas y una sonrisa tan afilada que ya parecía dolorosa. Su mirada, tan retorcida como el resto de su semblante, era un sello innegable del frenesí que la consumía.
 
-Y la causa de tan inquietante estado en ella, no se hallaba muy lejos de su persona.
+Y la causa de tan inquietante estado no se hallaba muy lejos de su persona.
 
-Una pila de caramellos multicolores, eran visibles entre sus cascos, como gemas preciosas de las que no era capaz de quitar los ojos y casi parecia atesorar con carisias.
+Una pila de caramelos multicolores era visible entre sus cascos, como gemas preciosas de las que no era capaz de apartar los ojos y que parecía atesorar con caricias.
 
-Si sus amigas ponis estuvieran presentes, no habria dudado un dar mas de un paso atras, sin embargo estaban otros a quienes esta conducta no les resultaba desconocida en los mas minimo.
+Si sus amigas ponis hubieran estado presentes, no habrían dudado en dar más de un paso atrás. Sin embargo, allí se encontraban otros, para quienes esta conducta no resultaba desconocida en lo más mínimo.
 
 "¡Muy bien hecho!"
 "¡Sí! ¡Hurra!"
 "¡Te felicito!"
 
-Visibles entre la penumbra que danzaba con la luz de la vela, se hallaba un inesperado y elocuente grupo de personajes: el Sr. Pelusa, el Sr. Nabo y Rocky la roca (en sus respectivos baldes), amigos demasiado cercanos a Pinkie Pie, y que ahora aclamaban con algarabía el reciente logro de su amiga.
+Visibles entre la penumbra que danzaba con la luz de la vela, se hallaba un inesperado y elocuente grupo de personajes: el Sr. Pelusa, el Sr. Nabo y Rocky la roca (en sus respectivos baldes), amigos demasiado cercanos a Pinkie Pie y que ahora aclamaban con algarabía el reciente logro de su amiga.
 
-"Gracias, gracias. No lo habría logrado sin el apoyo de todos ustedes." respondió la poni rosada entre intensas respiraciones, sofocando poco a poco su exaltado espíritu.
+"Gracias, gracias. No lo habría logrado sin el apoyo de todos ustedes", respondió la poni rosada entre intensas respiraciones, sofocando poco a poco su exaltado espíritu.
 
-"¿Para qué están los amigos entonces? Siempre cuenta con nosotros." dijo con confianza el Sr. Nabo.
+"¿Para qué están los amigos entonces? Siempre cuenta con nosotros", dijo con confianza el Sr. Nabo.
 
-"Tú siempre lo logras amiga!" añadió Rocky la roca.
+"¡Tú siempre lo logras, amiga!" añadió Rocky la roca.
 
-"Desde un primer momento sabía que lo lograrías." añadió el Sr. Pelusa.
+"Desde un primer momento sabía que lo lograrías", agregó el Sr. Pelusa.
 
-El ambiente era bueno entre ellos, sin embargo, pronto comenzó a quebrarse.
+El ambiente, aunque extraño, parecía cordial. Sin dar seña de ser también impredecible.
 
 "¿Ah, sí? Pues eso no es lo que dijiste hace un rato, amigo." increpó Rocky la roca al Sr. Pelusa.
 
