@@ -52,15 +52,21 @@ Detrás de ella, en la despensa cerrada, un nuevo frasco de maicena había apare
 
 [---]
 
-Una débil luz de vela se encendió debajo de la mesa, revelando entre sombras una escena inesperada e inquietante.
+Una débil luz de vela se encendió debajo de la mesa, revelando entre sombras una bizarra escena.
 
-"¡Precioso! ¡Sí, mis preciosos! ¡Al fin son míos!" proclamó una Pinkie Pie empapada de sudor, con la melena revuelta y una sonrisa afilada. Su mirada, retorcida por un frenesí apenas contenido, estaba fija en el botín de caramelos multicolores que acababa de encontrar.
+"¡Precioso! ¡Sí, mis preciosos! ¡Al fin son míos!" decia entre jadeos una irreconocible Pinkie Pie empapada de sudor. Tenia la melena revuelta entre astillas y una sonrisa tan afilada que ya parecia dolorosa. Su mirada, tan retorcida como como el resto de su semblante, era un sello innegable del frenesí que la consumía.
+
+Y la causa de tan inquietante estado en ella, no se hallaba muy lejos de su persona.
+
+Una pila de caramellos multicolores, eran visibles entre sus cascos, como gemas preciosas de las que no era capaz de quitar los ojos y casi parecia atesorar con carisias.
+
+Si sus amigas ponis estuvieran presentes, no habria dudado un dar mas de un paso atras, sin embargo estaban otros a quienes esta conducta no les resultaba desconocida en los mas minimo.
 
 "¡Muy bien hecho!"
 "¡Sí! ¡Hurra!"
 "¡Te felicito!"
 
-Delante de ella, visibles entre la penumbra que danzaba con la luz de la vela, se hallaba un inesperado grupo amigos: el Sr. Pelusa, el Sr. Nabo y Rocky la roca (en sus respectivos baldes), aclamando con algarabía el reciente logro de su amiga.
+Visibles entre la penumbra que danzaba con la luz de la vela, se hallaba un inesperado y elocuente grupo de personajes: el Sr. Pelusa, el Sr. Nabo y Rocky la roca (en sus respectivos baldes), amigos demasiado cercanos a Pinkie Pie, y que ahora aclamaban con algarabía el reciente logro de su amiga.
 
 "Gracias, gracias. No lo habría logrado sin el apoyo de todos ustedes." respondió la poni rosada entre intensas respiraciones, sofocando poco a poco su exaltado espíritu.
 
