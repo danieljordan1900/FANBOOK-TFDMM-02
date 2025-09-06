@@ -200,25 +200,53 @@ Más explosiones de confeti estallaron. Por su parte, Madame Harina seguía sin 
 
 [---]
 
-La cocina en la casa de Twilight no tenia el aspecto que las amigas ponies habian esperado encontrar cuando exploraban por primera vez la falsa casa del árbol de su amiga. Para empezar el espacio ocupaba un area excesiva y daba la impresion que habia sido incrustado por la fuerza dentro de la estructura principal del arbol. Ademas que su muebleria era mas un coleccion generica de artefactos de cocina (todos inutiles porque era de plastico), combinado con un tapizado y distribucion elegante que la hacia recordar mas a la cocina de la casa de la distinguida Rarity que de la misma humilde Twilight.
+La cocina en la casa de Twilight no tenía el aspecto que las amigas ponies habían esperado encontrar al explorar por primera vez la falsa casa del árbol de su amiga. Para empezar, el espacio ocupaba un área desproporcionada y daba la impresión de haber sido incrustado a la fuerza dentro de la estructura principal del árbol. Además, la decoración parecía una colección genérica de artefactos de cocina —todos inútiles por ser de plástico—, combinada con un tapizado y una distribución elegante que recordaban más a la refinada casa de Rarity que a la humilde de Twilight.
 
-Quiza esta misma extraña coincidencia le habia dado a Rarity la comodidad necesaria para continuar con la preparacion del almuerzo de sus amigas sin distracciones...
+Quizá esa extraña coincidencia le había dado a Rarity la comodidad necesaria para continuar con la preparación del almuerzo sin distracciones…
 
-"Délicieux et bon goût." exclamo Rarity, satisfecha de su trabajo al terminar el decorado de una guarnicion de papas que acompañadaba aun esplendido banquete servido sobre la mesa de la cocina.
+"Délicieux et bon goût", exclamó satisfecha al terminar de decorar una guarnición de papas que acompañaría el espléndido banquete dispuesto sobre la mesa.
 
-Sintiendose como en su propio hogar, la unicornio habia terminado su labor en tiempo esperado y sin necesidad de ningun pezuña de ayuda.
+Sintiendo que estaba en su propio hogar, la unicornio había concluido su labor en el tiempo previsto y sin necesitar ayuda de ninguna pezuña extra.
 
-Sin embargo, ahora que su magnifica obra estaba terminada, no podia evitar pensar en la obvia ausencia de la amiga que deberia haber estado ahi ayudandola o al menos halagandola por su esfuerzo.
+Sin embargo, ahora que su magnífica obra estaba terminada, no podía evitar pensar en la obvia ausencia de la amiga que debería haber estado allí, ayudándola o, al menos, elogiando su esfuerzo.
 
-"Ahora solo falta eso..." dijo con una mirada severa hacia debajo de la mesa.
+"Ahora solo falta eso..." murmuró con una mirada severa hacia debajo de la mesa.
 
-Rarity no necesitaba ir muy lejos para encontrar a esa poni.
+Rarity no tuvo que buscar demasiado para encontrar a esa poni.
 
-"¡Pinkie Pie!" exclamo Rarity, levantando con su magia el matel que cubria la parte inferior de la mesa y jalando un bulto rosa y blanco de debajo de ahi.
+"¡Pinkie Pie!", exclamó al mismo tiempo que, con su magia, levantaba el mantel que cubría la parte inferior de la mesa y sacaba de un tirón un par de bultos rosa y blanco.
 
-"¡Hola Rarity!" exclamo una relajada Pinkie Pie, con una sonrisa y en un tono casual que casi parecia una provocacion."¿Terminaste el almuerzo?"
+"¡Hola, Rarity!", respondió una sonriente Pinkie Pie, abrazada a un saco de harina. Su tono era tan casual que casi parecía una provocación. "¿Terminaste el almuerzo?"
 
+"¡Síí!", contestó la unicornio con una sonrisa que enmascaraba su animosidad. "Y parece que tú también has terminado con lo que estabas haciendo ahí abajo, ¿verdad?"
 
+"¡Así es! ¡Yupi, yupi, yupi!"
+
+"Ya veo…¡Muy bien! Y dime, querida amiga, ¿se puede saber qué tarea es la que te ha tenido tan ocupada?", preguntó Rarity, con una mirada que parecía a punto de arder en brasas.
+
+"Ah, eso... Bueno..." Las palabras parecieron tropezar en la garganta de Pinkie Pie. "Estaba buscando... algo... ¡para ayudarte en la cocina! ¡Mira, este es el saco de harina que necesitabas!" dijo al entregar el saco que había estado abrazando todo el tiempo.
+
+"Ah, sí… muchas gracias", respondió Rarity, tomándolo con su magia y dejándolo a un lado sin apartar la vista de su amiga. "Y... además de esto, ¿hay algo más que quieras contarme sobre tu extraordinaria búsqueda debajo de la mesa?"
+
+"Ehhmm… nop", respondió Pinkie Pie, con una sonrisa aún más intensa e inocente.
+
+"¿No?"
+
+"Nop", repitió la poni rosa.
+
+La mirada de Rarity se afiló todavía más. Era obvio que su amiga ocultaba algo... La cuestión era, ¿Valía la pena llegar al fondo de esto? La mitad de ella relinchaba que si. Pero la otra mitad, mucho mas sensata, decía que no.
+
+Un enorme 'NO' en letras rosas.
+
+Rarity conocía a Pinkie lo suficiente para saber que insistir podría llevarla a una respuesta más confusa que la que ya tenía y, muy probablemente, a ningún lado.
+
+Por lo tanto, dejarlo pasar sería la mejor decisión. Al menos por el momento.
+
+"Muy bien, Pinkie Pie", dijo Rarity con una sonrisa que no parecía reflejar su verdadera intención. "Si es así, será. Pero... estoy segura de que las demás chicas querrán escuchar sobre esto cuando regresen. ¿También les dirás 'no'?"
+
+"Ehhhmmm..." Pinkie se rascó la nuca con aire culpable. "No... no en el almuerzo. Creo que sería algo más divertido de contar en la noche de hoy. ¿Estaría bien?"
+
+"Sería perfecto", sentenció Rarity, dando por cerrado el tema.
 
 [---]
 
