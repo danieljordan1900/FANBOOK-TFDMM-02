@@ -216,7 +216,7 @@ Frente a su magnífica obra terminada, no podía evitar pensar en la obvia ausen
 
 "Y ahora..." con el ceño fruncido, Rarity bajó la mirada hacia debajo de la mesa. No tenía que buscar demasiado para encontrar a esa 'poni'.
 
-"¡Pinkie Pie!", exclamó al mismo tiempo que, con su magia, levantaba el mantel que cubría la parte inferior de la mesa y sacaba de un tirón un par de bultos rosa y blanco.
+"¡Pinkie Pie!", exclamó al mismo tiempo que levantaba el mantel con su magia y sacaba de un tirón un par de bultos rosa y blanco.
 
 "¡Hola, Rarity!", respondió una sonriente Pinkie Pie, abrazada a un saco de harina. En una postura relajada que daba la impresión de estar recostada en una playa. "¿Terminaste el almuerzo?"
 
@@ -239,10 +239,6 @@ Frente a su magnífica obra terminada, no podía evitar pensar en la obvia ausen
 La mirada de Rarity se afiló todavía más. Era obvio que su amiga ocultaba algo…
 
 Pero… ¿valía la pena llegar al fondo de esto?
-
-La unicornio levantó la mirada, cuestionándose internamente. Una parte de ella relinchaba que sí, que debía saberlo. Pero la otra mitad, mucho más sensata, decía que no.
-
-Un enorme "NO" en letras rosas.
 
 Rarity conocía a Pinkie lo suficiente como para saber que insistir podría llevarla a una respuesta más confusa que la que ya tenía y, muy probablemente, a ningún lado.
 
@@ -270,8 +266,6 @@ Pero Applejack no estaba presente. En cambio, Pinkie Pie encarnaba en ese moment
 
 "¿Me permitirías una probadita... una bien chiquitita?", pidió Pinkie Pie, babeando como un galgo, mientras acercaba peligrosamente la nariz a uno de los platillos más cercanos.
 
-Para Rarity, aquello era simplemente inaceptable.
-
 "¡No!", exclamó la unicornio, que en un solo movimiento de cuerno apartó la comida y a la misma Pinkie de su inevitable encuentro. "Discúlpame, Pinkie, no habrá ninguna muestra hasta que todas estemos sentadas en la mesa", concluyó con firmeza.
 
 "Pero... pero... Ohuuuu...", respondió la poni rosada, encogiéndose en el suelo con una expresión similar a la de un cachorrito tras una reprimenda.
@@ -292,11 +286,11 @@ Y así, Rarity, por fin, se quedó sola.
 
 "...Sola..."
 
-Un largo suspiro ahogado se escuchó en la cocina.
+El largo suspiro ahogado de Rarity se escuchó con intensidad en la cocina.
 
-Sin ya nadie que la viera, Rarity lentamente se quitó el casco de su traje de látex, dejando caer su suave melena a los costados.
+Sin ya nadie que la viera, lentamente se quitó el casco de su traje de látex, dejando caer su suave melena a los costados.
 
-Se encontraba ligeramente despeinada y con notables ojeras en el rostro.
+La unicornio se encontraba ligeramente despeinada y con notables ojeras en el rostro.
 
 No podía engañarse a sí misma: estaba cansada.
 
@@ -330,7 +324,7 @@ Todas esas cosas que, en este mundo extraño, no estaban a su alcance.
 
 "Ughh..." gimió Rarity dentro de su traje, con los pensamientos cayendo en picada al mismo ritmo que su cabeza.
 
-En ese momento, una sensación extraña recorrió su espalda, sacandola de su ensimismamiento.
+En ese momento, una sensación extraña recorrió su espalda, sacándola de su ensimismamiento.
 
 Era como si alguien la estuviera observando.
 
@@ -345,6 +339,10 @@ Extrañada, Rarity ladeó la cabeza. Pero casi inmediatamente, volvió a perder 
 Rarity, sobresaltada, levantó la cabeza mirando a todos lados nerviosa.
 
 En la habitación contigua, Pinkie Pie, entre silbidos y risas, lavaba ollas y sartenes con una sonrisa en el rostro.
+
+[---]
+
+123
 
 [---]
 
