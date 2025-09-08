@@ -200,9 +200,9 @@ Más explosiones de confeti estallaron. Por su parte, Madame Harina seguía sin 
 
 [---]
 
-La cocina en la casa de Twilight no tenía el aspecto que las amigas ponies habían esperado encontrar al explorar por primera vez la falsa casa del árbol de su amiga. Para empezar, el espacio ocupaba un área desproporcionada y daba la impresión de haber sido incrustado a la fuerza dentro de la estructura principal del árbol. Además, la decoración parecía una colección genérica de artefactos de cocina —todos inútiles por ser de plástico—, combinada con un tapizado y una distribución elegante que recordaban más a la refinada casa de Rarity que a la humilde de Twilight.
+La cocina de la falsa casa del árbol de Twilight no tenía el aspecto que las ponies esperaban encontrar en su primera exploración. Para empezar, el espacio ocupaba un área desproporcionada y daba la impresión de haber sido incrustado a la fuerza dentro de la estructura principal del árbol. Además, la decoración parecía una colección genérica de artefactos de cocina —todos inútiles por ser de plástico—, combinada con un tapizado y una distribución elegante que recordaban más a la refinada casa de Rarity que a la humilde de Twilight.
 
-Quizá esa extraña coincidencia le había dado a Rarity la comodidad necesaria para continuar con la preparación del almuerzo sin distracciones…
+Quizá esa extraña coincidencia le había dado a Rarity la comodidad necesaria para continuar con la preparación del almuerzo …sin distracciones.
 
 "Délicieux et bon goût", exclamó la unicornio al terminar de decorar una guarnición de papas que acompañaría el espléndido banquete dispuesto sobre la mesa.
 
@@ -214,9 +214,7 @@ Había sido un trabajo perfecto, como a ella le gustaba. Sin embargo…
 
 Frente a su magnífica obra terminada, no podía evitar pensar en la obvia ausencia de la amiga que debería haber estado allí, ayudándola o, al menos, elogiando su esfuerzo.
 
-"Y ahora..." murmuró Rarity con una mirada severa hacia debajo de la mesa.
-
-No tuvo que buscar demasiado para encontrar a esa poni.
+"Y ahora..." con el ceño fruncido, Rarity bajó la mirada hacia debajo de la mesa. No tenía que buscar demasiado para encontrar a esa 'poni'.
 
 "¡Pinkie Pie!", exclamó al mismo tiempo que, con su magia, levantaba el mantel que cubría la parte inferior de la mesa y sacaba de un tirón un par de bultos rosa y blanco.
 
@@ -230,7 +228,7 @@ No tuvo que buscar demasiado para encontrar a esa poni.
 
 "Ah, eso... Bueno..." Las palabras parecieron tropezar en la garganta de Pinkie Pie. "Estaba buscando... algo... ¡para ayudarte en la cocina! ¡Mira, este es el saco de harina que necesitabas!" dijo al entregar el saco que había estado abrazando todo el tiempo.
 
-"Ah, sí… muchas gracias", respondió Rarity, tomándolo con su magia y dejándolo a un lado sin apartar la vista de su amiga. "Y... además de esto, ¿hay algo más que quieras contarme sobre tu extraordinaria búsqueda debajo de la mesa?"
+"Ah, sí… muchas gracias", respondió Rarity, tomándolo con su magia y dejándolo a un lado sin apartar la vista de su amiga. "Y... además de esto, ¿hay algo más que quieras contarme? ¿Quiza sobre tu extraordinaria búsqueda debajo de la mesa?"
 
 "Ehhmm… nop", respondió Pinkie Pie, con una sonrisa aún más intensa e inocente.
 
@@ -260,43 +258,59 @@ Pinkie Pie asintió con la cabeza y, de un brinco, se levantó de su posición r
 
 "¡Oh, por toda la sal y la pimienta! ¡Esto se ve delicioso!", explotó Pinkie Pie con una sonrisa que no podía contener.
 
-"En efecto, querida", respondió Rarity con una sonrisa cómplice, observando con satisfacción cómo Pinkie Pie se relamía los labios e incapaz de mantener la atención en un solo plato de los que estaban frente a ella.
+"En efecto, querida", respondió Rarity con una sonrisa cómplice, observando con satisfacción cómo Pinkie Pie se relamía los labios, incapaz de mantener la atención en un solo plato de los que estaban frente a ella.
 
 No era para menos.
 
-Sobre la mesa, desprendiendo una fragancia que despertaría el apetito de cualquiera, se extendía todo un buffet de platos variados y deliciosos. Desde una gran fuente de arroz blanco bañado en crema de zanahoria y espinaca, hasta una guarnición de patatas cocidas con pecanas. La comida era la viva imagen del sueño culinario que Rarity había tenido esa mañana.
+Sobre la mesa, desprendiendo una fragancia que despertaría el apetito de cualquiera, se extendía todo un buffet de platos variados y deliciosos: desde una gran fuente de arroz blanco bañado en crema de zanahoria y espinaca, hasta una guarnición de patatas cocidas con pecanas. La comida era la viva imagen del sueño culinario que Rarity había tenido esa mañana.
 
 Y también era la pesadilla que Applejack había temido al inicio de la misma.
 
-Pero Applejack no estaba presente. En cambio, su amiga Pinkie Pie encarnaba en ese momento todas las emociones contrarias que habría tenido la granjera.
+Pero Applejack no estaba presente. En cambio, Pinkie Pie encarnaba en ese momento todas las emociones contrarias que habría tenido la granjera.
 
 "¿Me permitirías una probadita... una bien chiquitita?", pidió Pinkie Pie, babeando como un galgo, mientras acercaba peligrosamente la nariz a uno de los platillos más cercanos.
 
 Para Rarity, aquello era simplemente inaceptable.
 
-"¡No!", exclamó la unicornio, que en un solo movimiento de cuerno apartó la comida y a la misma Pinkie de su inevitable encuentro. "Discúlpame, Pinkie, no habrá ninguna muestra hasta que todas estemos sentadas en la mesa", terminó de decir con firmeza.
+"¡No!", exclamó la unicornio, que en un solo movimiento de cuerno apartó la comida y a la misma Pinkie de su inevitable encuentro. "Discúlpame, Pinkie, no habrá ninguna muestra hasta que todas estemos sentadas en la mesa", concluyó con firmeza.
 
-"Ohuuuu…" respondió la poni rosada, encogiéndose en el suelo con una expresión similar a la de un cachorrito tras una reprimenda.
+"Pero... pero... Ohuuuu...", respondió la poni rosada, encogiéndose en el suelo con una expresión similar a la de un cachorrito tras una reprimenda.
 
-"Por otro lado, ya que me ayudarás a ordenar los cubiertos y platos que necesitaremos, tampoco me molestaría que me ayudaras con la limpieza de los demás servicios que están sucios...", añadió Rarity, dirigiendo su mirada a las ollas y sartenes que aún contenían los restos de la comida que no había alcanzado los altos estándares de la unicornio.
+Viendo la cara de desilusión de su amiga, a Rarity se le ocurrió una idea para aliviar su descontento.
+
+"Por otro lado, ya que me ayudarás a ordenar los cubiertos y platos que necesitaremos, tampoco me molestaría que colaboraras con la limpieza de los demás servicios que están sucios...", añadió Rarity, dirigiendo su mirada a las ollas y sartenes que aún contenían restos de la comida que no había alcanzado los altos estándares de la unicornio.
 
 Bastó tan solo una ojeada para que Pinkie entendiera la oportunidad que le estaba ofreciendo su amiga. Y, como si de un soldado se tratara, se levantó firme del suelo.
 
 "¡Sí, señor! ¡Sí, señora!" Sin decir más, en paso marcial, Pinkie se retiró hacia la habitación contigua donde estaba el fregadero, llevándose consigo todos los utensilios sucios sobre su lomo.
 
-Rarity no tuvo que voltear para imaginar el rostro sonriente de Pinkie con su botín en la espalda.
+Rarity no tuvo que voltear para imaginar el rostro sonriente de Pinkie con su botín a la espalda.
 
-Ya sola, la unicornio por fin se quitó el casco de su traje de látex, dejando caer su suave melena a los costados.
+Momentos después, la silueta de la poni había desaparecido por la puerta que conducía al fregadero.
 
-Se sentía algo cansada.
+Y así, Rarity, por fin, se quedó sola.
 
-"Un poco de aire fresco no estaría mal", dijo de pronto, abriendo las ventanas de la cocina con la esperanza de sentir una brisa refrescante.
+"...Sola..."
 
-Sin embargo, nada se movió. El mundo exterior permaneció inerte, desprendiendo únicamente aquel aroma intoxicante a plástico.
+Un largo suspiro ahogado se escuchó en la cocina.
 
-Recordó entonces que no estaba en su propia casa, ni en su mundo normal, y un repentino sentimiento de desasosiego la invadió.
+Sin ya nadie que la viera, Rarity lentamente se quitó el casco de su traje de látex, dejando caer su suave melena a los costados.
 
-Negando esa emoción deprimente, Rarity cerró la ventana y volvió a colocarse el casco de su traje.
+Se encontraba ligeramente despeinada y con notables ojeras en el rostro.
+
+No podía engañarse a sí misma: estaba cansada.
+
+"Un poco de aire fresco no estaría mal", dijo de pronto, pensando en voz alta. Sin dudar, abrió las ventanas de la cocina, esperanzada en sentir algo de la sedante armonía de la naturaleza.
+
+Sin embargo, nada se movió. Afuera, todo permanecía inerte, desprendiendo únicamente aquel aroma intoxicante a plástico que lo invadía todo.
+
+Fue entonces cuando recordó que no estaba en su propia casa, ni en su mundo normal.
+
+Se encontraba muy lejos, perdida con sus amigas...
+
+Un repentino sentimiento de desasosiego la invadió.
+
+De inmediato, negando esa emoción deprimente, Rarity cerró la ventana y volvió a colocarse el casco de su traje.
 
 Nadie iba a arruinar el almuerzo que había preparado para sus amigas con un mal ánimo, y mucho menos ella.
 
@@ -304,7 +318,33 @@ Colocando sus emociones en orden, Rarity soltó una exhalación. Y entonces...
 
 "¿Y ahora qué hago... yo?"
 
-Sintiendo una mirada sobre sí, se volvió hacia el paquete de harina que yacía en el suelo. Por alguna inexplicable razón, tenía manchas de crema de leche en uno de sus lados, como si acabara de comerse un pastel.
+Tomando asiento frente al banquete, Rarity no tenía idea de qué hacer a continuación.
+
+O, mejor dicho, con el resto del día.
+
+Almorzar con sus amigas era un hecho. Después… ¿seguir enferma? No. Tenía ya suficiente de eso. Lo que quería era tomar un delicioso baño de flores para calmar su estrés o, simplemente, descansar durante seis horas entre velas.
+
+¡Mejor aún! ¡Debía hacer todo eso junto! Claro... tan pronto como encontrara un baño lo suficientemente grande para ella, además de las velas y flores a su gusto.
+
+Todas esas cosas que, en este mundo extraño, no estaban a su alcance.
+
+"Ughh..." gimió Rarity dentro de su traje, con los pensamientos cayendo en picada al mismo ritmo que su cabeza.
+
+En ese momento, una sensación extraña recorrió su espalda, sacandola de su ensimismamiento.
+
+Era como si alguien la estuviera observando.
+
+Al volver la vista a un lado, su mirada se encontró con el saco de harina de Pinkie que yacía en el suelo. El cual, ahora que la observaba de cerca, tenía manchas de crema de leche en uno de sus lados, dando la impresión de ser un ser vivo que acababa de comerse un pastel.
+
+Extrañada, Rarity ladeó la cabeza. Pero casi inmediatamente, volvió a perder el interés y suspiró.
+
+"Ojalá supieras lo perdida que me siento", susurró Rarity a si misma. O tal vez, al saco de harina a su lado. Ya no le importaba.
+
+"Oui, por supuesto que lo entiendo, madame." respondió una voz surgida de la nada.
+
+Rarity, sobresaltada, levantó la cabeza mirando a todos lados nerviosa.
+
+En la habitación contigua, Pinkie Pie, entre silbidos y risas, lavaba ollas y sartenes con una sonrisa en el rostro.
 
 [---]
 
