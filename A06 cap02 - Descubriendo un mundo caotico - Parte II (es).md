@@ -342,7 +342,9 @@ En la habitación contigua, Pinkie Pie, entre silbidos y risas, lavaba ollas y s
 
 [---]
 
-123
+"Crack, Crack, Crack..."
+
+
 
 [---]
 
