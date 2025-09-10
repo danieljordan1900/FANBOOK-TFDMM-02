@@ -342,9 +342,33 @@ En la habitación contigua, Pinkie Pie, entre silbidos y risas, lavaba ollas y s
 
 [---]
 
-"Crack, Crack, Crack..."
+"Crack, crack, crack..."
 
+Débiles crujidos resonaban en medio del sombrío bosque de cartón.
 
+Una figura salvaje, tan alta como un pequeño edificio, daba sus primeros pasos sobre aquel mundo de juguetes. Su silueta, difícil de distinguir entre los inmensos árboles artificiales, avanzaba lentamente, con sumo cuidado, delatando no solo su inteligencia, sino también la prudencia de cada movimiento.
+
+Debía ser cuidadosa. Esta vez, la bestia no daría oportunidad a su presa de escapar.
+
+Deteniéndose un momento sobre el tronco de un árbol caído, la criatura estudió el entorno con meticulosa atención.
+
+"Grrr..." gruñó al probar el sabor de una fruta caída de uno de los árboles.
+
+Era plástico.
+
+Asqueada, lo arrojó a un lado. En ese instante, un intenso dolor en su interior la hizo encorvarse, obligándola a llevar sus garras al vientre.
+
+Debía darse prisa... mantener 'eso' en su interior se estaba volviendo insoportable.
+
+Aun sintiendo aquella incomodidad punzante, la bestia fijó su atención en la elevación de terreno más cercana.
+
+No podía distinguirla del todo por la espesura de los árboles, pero parecía una colina.
+
+Confirmando su sospecha, descubrió un cartel tirado en el suelo que decía: "Colina AutumnBreeze", acompañado del dibujo de un molino de viento a un lado.
+
+Esa dirección era todo lo que necesitaba. Aun con los dolores recorriendo su cuerpo, la bestia reanudó su marcha, esta vez con el doble de velocidad.
+
+Su silueta se desvaneció en la distancia, dejando solo el débil eco de sus pasos perdiéndose en el aire.
 
 [---]
 
