@@ -370,18 +370,53 @@ Así permaneció durante varios minutos, hasta que porfin el dolor cedió lo suf
 
 Aun sintiendo 'eso' en sus entrañas, la bestia fijó su atención en la elevación de terreno más cercana.
 
-No podía distinguirla bien entre la espesura de los árboles, pero parecía una colina.
+Oculta entre la espesura de los árboles, parecía una colina.
 
 Confirmando su sospecha, halló un cartel tirado en el suelo que decía: "Colina AutumnBreeze", acompañado por el dibujo de un molino de viento a un lado.
 
 Aquella dirección era todo lo que necesitaba. A pesar de los dolores que la atormentaban, la bestia reanudó su marcha, esta vez con renovada urgencia.
 
-Su silueta se desvaneció en la distancia, dejando tras de sí el débil eco de sus pasos disipándose en el aire.
+Su silueta se desvaneció en la artificial maleza, dejando tras de sí el débil eco de sus pasos disipándose en el aire.
 
 [---]
 
+En medio de un claro del bosque, Applejack agitaba las orejas, intentando captar mejor el sonido que flotaba en el aire.
 
+"¿Escuchas algo...?" susurró Fluttershy a su lado.
 
+"No... no estoy segura", respondió Applejack, girando la cabeza de un lado a otro para enfocar mejor sus oídos.
+
+Tras varias vueltas, se dio por vencida y miró a su amiga.
+
+"Creo que no era nada..."
+
+Ambas se habían detenido en seco, sorprendidas por un ruido extraño que interrumpió su camino hacia el encuentro con Rainbow Dash. Ninguna estaba segura de qué había sido; demasiado breve y lejano para identificarlo. Sin embargo, fue suficiente para ponerlas en alerta.
+
+El silencio absoluto había sido el fiel compañero de las ponis durante todo el viaje, pero ahora, en su ausencia, otro se habia hecho presente en el aire.
+
+Incertidumbre.
+
+"Emmm... ¿crees que haya timberwolves en este bosque de cartón...?" preguntó Fluttershy, su voz temblorosa mientras sus ojos recorrían los árboles que las rodeaban.
+
+"No... creo que no..." respondió Applejack, aunque no sonaba muy convencida. "No hemos visto ninguno hasta ahora... y si hubiera alguno, serían más bien Paperwolves."
+
+"¡¿Paperwolves?!" exclamó Fluttershy, aún más alarmada.
+
+"¡Es solo una suposición!" se apresuró a aclarar Applejack, notando su error. "No hay por qué alarmarse. No existen Paperwolves... nunca he visto uno. Al menos... no en nuestro mundo."
+
+Aun así, lanzó una mirada recelosa al bosque.
+
+"¿Puedo volver a ponerme el traje, Applejack?" preguntó Fluttershy en un hilo de voz, sintiéndose cada vez más indefensa.
+
+"Sip... será lo mejor", confirmó su amiga.
+
+Tras ajustar el traje de Fluttershy y revisar una vez más el mapa, las dos ponis reanudaron su marcha, internándose de nuevo en el inquietante bosque de cartón.
+
+[---]
+
+Applejack y Fluttershy se encontraban en el bosque de carton, con Rainbow Dash a su lado.
+
+[---]
 
 Escena 1. Con Rarity y Pinkie Pie. En la cocina, preparando un pastel. Descubren a la mini Twilight.
 
