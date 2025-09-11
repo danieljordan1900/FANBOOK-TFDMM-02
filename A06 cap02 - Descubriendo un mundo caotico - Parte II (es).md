@@ -346,31 +346,42 @@ En la habitación contigua, Pinkie Pie, entre silbidos y risas, lavaba ollas y s
 
 Débiles crujidos resonaban en medio del sombrío bosque de cartón.
 
-Una figura salvaje, tan alta como un pequeño edificio, daba sus primeros pasos sobre aquel mundo de juguetes. Su silueta, difícil de distinguir entre los inmensos árboles artificiales, avanzaba lentamente, con sumo cuidado, delatando no solo su inteligencia, sino también la prudencia de cada movimiento.
+Una enorme figura salvaje daba sus primeros pasos sobre aquel mundo de juguetes. Su silueta, difícil de distinguir entre los inmensos árboles artificiales, avanzaba lentamente, cuidando cada pisada y ocultando sus huellas. Aquel comportamiento delataba no solo su inteligencia, sino también su imperiosa necesidad de pasar desapercibida.
 
-Debía ser cuidadosa. Esta vez, la bestia no daría oportunidad a su presa de escapar.
+Debía ser cuidadosa. Esta vez, la bestia estaba decidida a no darle a su presa la menor oportunidad de escapar.
 
-Deteniéndose un momento sobre el tronco de un árbol caído, la criatura estudió el entorno con meticulosa atención.
+Deteniéndose un instante sobre el tronco de un árbol caído, la bestia estudió el entorno con meticulosa atención.
 
 "Grrr..." gruñó al probar el sabor de una fruta caída de uno de los árboles.
 
 Era plástico.
 
-Asqueada, lo arrojó a un lado. En ese instante, un intenso dolor en su interior la hizo encorvarse, obligándola a llevar sus garras al vientre.
+Asqueada, la bestia arrojó la fruta a un lado. Pero apenas la falsa fruta tocó el suelo, un dolor súbito la atravesó como si un golpe invisible hubiera caído en su estómago.
 
-Debía darse prisa... mantener 'eso' en su interior se estaba volviendo insoportable.
+Encorvada, casi convulsionando, la bestia susurraba entre dientes. "Duele, duele..."
 
-Aun sintiendo aquella incomodidad punzante, la bestia fijó su atención en la elevación de terreno más cercana.
+Un ardor intenso explotaba en su interior, paralizando su cuerpo, nublando su mente. Sus garras se hallaban aferradas a su vientre en un reflejo instintivo, mientras apretaba su mandíbula con fuerza.
 
-No podía distinguirla del todo por la espesura de los árboles, pero parecía una colina.
+No gimió ni derramó una lágrima, pero la tensión en su rostro parecía dejar marcas en su piel.
 
-Confirmando su sospecha, descubrió un cartel tirado en el suelo que decía: "Colina AutumnBreeze", acompañado del dibujo de un molino de viento a un lado.
+Así permaneció durante varios minutos, hasta que porfin el dolor cedió lo suficiente como para permitirle recuperar el aliento y pensar con claridad.
 
-Esa dirección era todo lo que necesitaba. Aun con los dolores recorriendo su cuerpo, la bestia reanudó su marcha, esta vez con el doble de velocidad.
+"Debo darme prisa, debo darme prisa..." pensaba repetidamente. Estaba claro que mantener 'eso' en su interior se estaba volviendo imposible.
 
-Su silueta se desvaneció en la distancia, dejando solo el débil eco de sus pasos perdiéndose en el aire.
+Aun sintiendo 'eso' en sus entrañas, la bestia fijó su atención en la elevación de terreno más cercana.
+
+No podía distinguirla bien entre la espesura de los árboles, pero parecía una colina.
+
+Confirmando su sospecha, halló un cartel tirado en el suelo que decía: "Colina AutumnBreeze", acompañado por el dibujo de un molino de viento a un lado.
+
+Aquella dirección era todo lo que necesitaba. A pesar de los dolores que la atormentaban, la bestia reanudó su marcha, esta vez con renovada urgencia.
+
+Su silueta se desvaneció en la distancia, dejando tras de sí el débil eco de sus pasos disipándose en el aire.
 
 [---]
+
+
+
 
 Escena 1. Con Rarity y Pinkie Pie. En la cocina, preparando un pastel. Descubren a la mini Twilight.
 
