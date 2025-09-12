@@ -440,7 +440,7 @@ Sin deseos de retrasarse aún más, ambas se pusieron en marcha. Haciendo un esf
 
 Poco a poco, la ya escasa luminosidad a su alrededor comenzó a disminuir todavía más.
 
-Totalmente envueltas en un manto de penumbras, Fluttershy no tuvo más opción que encender la linterna incorporada en su traje. Con el camino iluminado, ambas ponis continuaron hasta alcanzar por fin un espacio abierto y claramente distinto.
+Totalmente envueltas en un manto de penumbras, Fluttershy no tuvo más opción que encender la linterna incorporada en su traje. Con el camino iluminado y Applejack a su lado, ambas amigas continuaron hasta alcanzar por fin un espacio abierto y claramente distinto.
 
 "Esto es nuevo..." dijo Applejack, sorprendida por lo que revelaba la luz.
 
@@ -450,11 +450,11 @@ Brotes retorcidos de árboles emergían del suelo como garras. El césped artifi
 
 El lugar —que transmitía la perturbadora sensación de haber sido poseído por algo oscuro— parecía ser, sin duda, el corazón del falso bosque Everfree.
 
-Avanzando con cautela, con la luz de la linterna moviéndose de un lado a otro, las ponis comenzaron a descubrir más sorpresas a su alrededor.
+Avanzando con cautela, con la luz de la linterna moviéndose de un lado a otro, comenzaron a descubrir más sorpresas a su alrededor.
 
 "¿Qué es todo esto?" exclamó Applejack, siendo la primera en notarlo.
 
-Incongruentes con el entorno, enormes carritos de juguete —semejantes a los carritos chocones de las ferias— yacían esparcidos por el sitio. De diseño metálico y sofisticado, se asemejaban a cápsulas espaciales, totalmente nuevos, como recién fabricados y abandonados allí sin motivo aparente.
+Incongruentes con el entorno, enormes carritos de juguete —semejantes a los carritos chocones de feria— yacían esparcidos por el sitio. Eran metálicos, de diseño sofisticado, y se asemejaban a cápsulas espaciales. Parecían recién fabricados y, sin embargo, alguien los había abandonado allí sin motivo aparente.
 
 Las ponis casi detuvieron su avance, fascinadas por el lugar.
 
@@ -462,9 +462,7 @@ Las ponis casi detuvieron su avance, fascinadas por el lugar.
 
 Applejack volvió la mirada hacia el vehículo y lo entendió de inmediato; ambas corrieron hacia él.
 
-Era similar a las demás, aunque con tonalidades más coloridas y un diseño llamativo. Sin embargo, nada parecía especialmente relevante...
-
-Excepto por el enorme agujero en el vidrio de la parte frontal.
+Era similar a las demás, aunque con tonalidades más coloridas y un diseño llamativo. No parecía especialmente relevante... salvo por el enorme agujero en el vidrio de la parte frontal.
 
 "¿Qué pasó aquí?" exclamó Applejack, conmocionada, rodeando el vehículo dañado e intentando deducir qué había ocurrido con él y, sobre todo, con su posible ocupante.
 
@@ -474,13 +472,15 @@ Con un movimiento tembloroso —lo bastante para detener en seco a Applejack— 
 
 "¿Paperwolves?" exclamó aterrada, mostrando largas tiras de papel delgado, mezcladas con fragmentos de vidrio pulverizado y unas plumas celestes.
 
-Applejack sintió que el corazón se le detenía. De inmediato, su mente se llenó de imágenes de violentos lobos de papel atacando a una Rainbow Dash acorralada.
+Un escalofrío recorrió el lomo de Applejack, quien sintió que el corazón se le detenía. Su mente, que hasta entonces se había negado a imaginar lo peor, se llenó de golpe de oscuras imágenes de violentos lobos de papel atacando a una Rainbow Dash acorralada.
 
 "¡No!" gritó por dentro, aunque de sus labios solo escapó un susurro de negación.
 
 "No... no puede ser..."
 
-Antes de que alguna pudiera reaccionar, un ruido intenso, semejante a una detonación, sacudió el aire, seguido de un silbido profundo y constante.
+Por un instante, con el corazón martillando en el pecho, ambas ponis se miraron, impactadas.
+
+Pero antes de que pudieran reaccionar, un ruido intenso, semejante a una detonación, sacudió el aire, seguido de un silbido profundo y constante.
 
 Ambas miraron, espantadas, en dirección al origen del sonido.
 
@@ -488,7 +488,7 @@ No muy lejos, una diminuta caseta roja se alzaba en medio de la oscuridad.
 
 De su interior provenía el ruido, repitiéndose en un eco escalofriante.
 
-Paralizadas, las ponis no sabían cómo reaccionar ante aquel sonido tan nítido.
+Paralizadas, no sabían cómo reaccionar ante aquel sonido tan nítido.
 
 Entonces, un nuevo estruendo las sacó de su trance. Esta vez fue más suave, semejante al agua arremolinándose en un embalse antes de caer en cascada.
 
@@ -502,62 +502,217 @@ Applejack y Fluttershy, inmóviles, la observaron en silencio durante un largo i
 
 "Vaya... así que por fin llegan, ¡tortugas! ¿Qué las hizo demorar tanto?"
 
-Ambas ponis se miraron entre sí. ¿Qué debían responder después de todo aquello?
+El par de amigas se miraron entre sí. ¿Qué debían responder después de todo aquello?
 
 "Emmmhh..." Fluttershy fue la primera en hablar. "El camino fue algo difícil... emmh... aquí está tu caja de herramientas... uhmm... creo que ya no la vas a necesitar."
 
-"No, ya no. Y gracias", respondió Rainbow Dash con sequedad, tomando la caja y echando un vistazo rápido al interior, lleno de papel higiénico y otros utensilios.
+"No, ya no. Y gracias", dijo Rainbow Dash con sequedad, tomando la caja y echando un vistazo rápido al interior, lleno de papel higiénico y otros utensilios.
 
 "Entonces..." dijo Applejack de pronto, como si recuperara el aliento de golpe. "Hmmm... ¿eso es todo?"
 
-"Sí, eso es todo", respondió Rainbow Dash encogiéndose de hombros. "Pero si quieres ver el rostro del mal absoluto, puedes entrar ahí..." terminó de decir, señalando con sus alas la caseta roja.
+"Sí, eso es todo", respondió su amiga encogiéndose de hombros. "Pero si quieres ver el rostro del mal absoluto, puedes entrar ahí..." terminó de decir, señalando con sus alas la caseta roja.
 
 Applejack no respondió.
 
-"Entonces..." preguntó Fluttershy, dudosa. "¿Te sientes bien?"
+"Entonces..." preguntó Fluttershy, dudosa. "¿Te sientes mejor?"
 
 "¡Como nueva!" respondió Rainbow Dash, totalmente despreocupada, poniéndose en marcha con una sonrisa justo cuando comenzó a escucharse el crujido de su vientre. "...¡Y con hambre! Vamos con las demás. Hoy le tocaba a Rarity cocinar, ¿no?"
 
 "Sí, así es... Pinkie está con ella ayudando", respondió Fluttershy mientras seguía a la pegaso.
 
-"¡¿Así?! Espera... eso me recuerda algo..." dijo Rainbow Dash, ladeando la cabeza y haciendo sonar un nudo en el cuello. Justo con ese movimiento giró hacia atrás y notó la ausencia de su otra amiga.
+"¡¿Así?! Espera... ¿Pinkie? Eso me recuerda algo..." pensativa, Rainbow Dash ladeó la cabeza, haciendo crujir el cuello. Justo con ese movimiento, giró hacia atrás y notó la ausencia de su otra amiga.
 
 "¡Applejack! ¿Qué haces ahí? ¿No vas a venir?"
 
-Applejack, que se había quedado atrás con la mirada fija en la caseta roja —la misma que tenía un pequeño letrero de baño en uno de sus lados—, giró suavemente la cabeza para mirar a su compañera.
+Applejack, que se había quedado atrás con la mirada fija en la caseta roja —la misma que tenía un pequeño letrero brillante que decía "baño" en uno de sus lados—, giró suavemente la cabeza para mirar a su compañera.
 
 "Sí... ya voy", respondió de pronto, como si despertara de sus pensamientos.
 
-Momentos después de darles alcance, el trío de amigas abandonó aquel sombrío lugar.
+Momentos después de darles alcance, el trío de amigas abandonó aquel misterioso lugar, dejándolo nuevamente sumido en la oscuridad y el silencio.
 
 [---]
 
-"¡¿Así?! Espera... Eso me recuerda: Pinkie ha estado actuando raro últimamente. La he visto conversando con sus amigos inanimados en las últimas noches."
+El camino de regreso del grupo de amigas era tan ameno como podía llegar a ser. Rainbow Dash iba al frente, seguida de Applejack y Fluttershy. Las preguntas hacia la pegaso iban y venían a cada paso.
 
-"Ay, no... No sabía eso", dijo Fluttershy sorprendida.
+"Así que... en pocas palabras... ¿te quedaste atrapada en una de esas cápsulas cuando explorabas ese lugar?" preguntó Applejack.
+
+"Sí, fue muy tonto de mi parte... no me sentía muy bien en ese momento. Por fortuna llevaba el comunicador para llamarlas, aunque al final eso tampoco terminó sirviendo de mucho."
+
+"¿Y el vidrio roto de la cápsula?" preguntó Fluttershy.
+
+"Lo rompí yo. Tardaban tanto que me desesperé... realmente me sorprende mi propia fuerza. ¡Jajaja!" respondió alegremente la pegaso.
+
+"Y también tu digestión..." murmuró Applejack por lo bajo.
+
+"¡Miren, al fin un claro!" interrumpió Rainbow Dash, adelantándose de un aleteo hasta alcanzar el espacio abierto que se abría en medio del bosque de cartón.
+
+Con la brillante luz del exterior iluminando sus rostros, las ponis avanzaron con los ojos entrecerrados hasta detenerse. Haber pasado tanto tiempo a oscuras había hecho que sus ojos estuvieran algo desacostumbrados.
+
+Cuando la vista se aclaró, pudieron apreciar el pequeño paisaje que se extendía ante ellas.
+
+Era un claro de césped artificial, cubierto de flores de colores variados y tamaños distintos. Todo era de plástico, pero el aspecto resultaba mucho más vivo y agradable que el lugar donde habían estado antes.
+
+[["¡Qué bonito!"]] dijo Fluttershy, con una repentina voz distorsionada.
+
+"¡Wow! ¿Qué fue eso?" exclamó Rainbow desde arriba, sorprendida por el cambio de voz de su compañera.
+
+"Ups... lo siento. El traje regresa a su estado original cada vez que me coloco el casco." respondió Fluttershy, acomodándose el equipo de látex. Se lo había quitado poco después de encontrar a Rainbow Dash, pero por el cambio de luz se lo había vuelto a poner.
+
+"Ok... lo entiendo." dijo Rainbow, descendiendo un poco y examinando atentamente la cubierta de su amiga. "Quizá debí preguntar esto antes, pero... ¿por qué llevas puesto ese traje?"
+
+"Ahhh... es por algo que pasó en la mañana. Es una larga historia..."
+
+"¿Ah, sí? Ya somos dos."
+
+"Bueno, podemos dejar eso para otro momento." cortó Applejack. "Se está haciendo tarde, Rarity y Pinkie deben de estar preocupadas por nosotras."
+
+"Tienes razón." respondió Rainbow Dash, tocándose su vacío vientre. "¡Esperen! Hay algo que necesitamos antes de volver."
+
+Con un aleteo, la pegaso se dirigió a uno de los extremos del claro, donde se encontraba una especie de buzón rosa elevado, con una palanca a un lado. De inmediato tiró de la palanca con fuerza, para luego comenzar a darle patadas como si esperara que el aparato reaccionara.
+
+"¡Vamos! ¡Vamos!" gritó mientras continuaba pateando el buzón, sin obtener respuesta.
+
+Extrañadas por el comportamiento de su compañera, Applejack y Fluttershy se acercaron.
+
+"¿Rainbow? ¿Qué haces?" preguntó Applejack.
+
+"¿Ah? Nada... aquí, esperando que este trasto funcione." respondió Rainbow Dash con frustración.
+
+"¿Te refieres a ese buzón?" preguntó Fluttershy.
+
+"Sí... bueno, no, es una máquina de caramelos... o algo así. ¡Vamos!" dijo Rainbow Dash sin detenerse. "Lo descubrí ayer. Si jalas la palanca y lo pateas lo suficiente, comienza a crear caramelos de su interior."
+
+Las otras dos se miraron entre sí.
+
+"¿Los crea? ¿Así, nada más?" preguntó Applejack, incrédula.
+
+"Sí. No lo entiendo, pero lo hace." respondió Rainbow Dash, que siguió pateando el buzón en un ángulo diferente.
+
+Applejack se rascó la cabeza. El descubrimiento de Rainbow era algo nuevo e interesante para investigar a fondo, pero no era el momento.
+
+"Rainbow... está bien que quieras algo dulce, pero será mejor que lo dejes. Tenemos bastantes cosas dulces en la casa del árbol..."
+
+"¡En la falsa casa del árbol!" corrigió Rainbow Dash sin dejar de concentrarse en el buzón.
+
+"Bien, en la falsa casa del árbol..." dijo Applejack, rodando los ojos. "Pero se está haciendo tarde, en serio..."
+
+"Ya lo sé, Applejack... pero de verdad los necesitamos. Digo, los va a necesitar Pinkie."
+
+"¿Pinkie?" preguntó Fluttershy.
+
+"Sí. Ella ha estado actuando raro últimamente. La he visto varias veces conversando con sus amigos inanimados a escondidas."
+
+"Ay, no..." exclamó Fluttershy, sorprendida.
+
+"No sabía eso." añadió Applejack, también impactada por la revelación.
 
 "Sí... creo que es porque no está consumiendo azúcar. Eso la pone así."
 
-"Pero tenemos bastante miel en las reservas."
+"Espera, tenemos bastante miel en las reservas."
 
-"La miel no es lo mismo que el azúcar. Tiene otros componentes... menos digeribles", respondió Rainbow apartando la mirada, como si no quisiera recordar algo.
+"La miel no es lo mismo que el azúcar, Applejack. Tiene otros componentes más artificiales... y menos digeribles." respondió Rainbow con la mirada apenada, evitando recordar lo sucedido en la mañana. Luego pateó con más fuerza el buzón. "Fluttershy, ¿me ayudas? Creo que si lo sostienes por abajo debería funcionar."
 
-"Ya veo..."
+"Uhmm... ok." respondió la tímida pegaso, sujetando el buzón desde abajo.
 
-"Por cierto... ¿por qué llevas puesto ese traje?"
+Observando en silencio a sus dos amigas ocupadas en aquel inesperado desafío, Applejack comenzó a reflexionar.
 
-"Ahhh... es algo que pasó en la mañana. Larga historia..."
+¿De cuántas cosas se había estado perdiendo? Sus amigas habían estado actuando así a sus espaldas, aun cuando se reunían a conversar todos los días. Entendía que todas tenían derecho a su privacidad —ya no eran potras— pero, dada la situación en la que se encontraban y la cercanía de su amistad, ¿no deberían ser más transparentes?
+
+Applejack meneó la cabeza, intentando acomodarse el sombrero que no llevaba.
+
+"Twilight..." imaginó la silueta de su amiga ausente. "Empiezo a entenderte mejor ahora..." se dijo, recordando una acalorada conversación que habían tenido tiempo atrás, donde se había tocado un tema similar.
+
+"Dirigir una nación no es lo mismo que dirigir una granja." recordó Applejack. Obviamente no se encontraba en un caos así, pero la sensación de similitud que sentía era palpable.
+
+Perdida en estos pensamientos, sin darse cuenta, su mirada se desvió hacia el bosque de cartón. Deambuló por el entorno hasta posarse en un llamativo molino naranja en la cima de la colina más cercana.
+
+"Ah... ¿esa es la colina de AutumnBreeze?" murmuró.
+
+De todas las construcciones en aquel mundo de juguetes, el molino de AutumnBreeze era el más reconocible. No por su tamaño ni por su forma, sino por lo idéntico que era a su similar en Ponyville. Para Applejack era el punto de referencia perfecto para ubicarse en esa tierra.
+
+Tras un suspiro, su mirada descendió por la colina, hasta llegar a las faldas de esta, completamente sombrías, llenas de árboles de cartón, numerosos arbustos, niebla y construcciones aleatorias.
+
+El letargo en el interior de Applejack se cortó de golpe.
+
+"¿Niebla?" sus ojos se abrieron de par en par, clavando su vista en un punto particular entre los árboles.
+
+No, su vista no le engañaba. A una distancia considerable, en el interior del bosque, una delgada tira blanca ascendía hacia el cielo.
+
+No era niebla... era humo.
+
+"¡PAFFF!"
+
+Apunto de exclamar lo que había descubierto, un sonido seco, similar al golpe de una campana, la sorprendió desde atrás, seguido de un silbido agudo.
+
+Al girarse, Applejack vio a Rainbow Dash y Fluttershy retroceder sorprendidas ante lo que parecía ser el éxito desmedido del plan de la pegaso arcoíris.
+
+Olvidando el humo por completo, la poni terrestre dio tambien un brinco hacia atrás.
+
+Un torrente de caramelos salía disparado del buzón rosa, como si una tubería rota hubiera estallado de repente. Los caramelos, de todos los colores y tamaños imaginables, caían en un flujo constante hacia el centro del claro.
+
+Sus amigas atrapaban los que podían al vuelo, escondiéndolos en sus bolsillos con rapidez.
+
+"¡Oh, sí!" exclamó emocionada Rainbow Dash, alzando el vuelo y llevándose uno a la boca sin pensarlo.
+
+"Incluso hay de mora..." añadió Fluttershy con voz suave, saboreando con cuidado el dulce a través de su casco.
+
+"Wow..." murmuró Applejack, aún atónita. Dio unos pasos hacia atrás, observando en silencio cómo el creciente montón de caramelos se acumulaba en el suelo.
+
+Uno rodó hasta sus patas delanteras. Lo tomó casi sin pensarlo y se lo llevó a la boca.
+
+Dulce. Verdaderamente dulce. De cubierta crocante y un interior de suave textura que se deshacía en su boca. Pero más importante que el sabor que este tenia...
+
+"¡Sabe a manzana!" exclamó con una sonrisa emocionada. Applejack jamás podría olvidar aquel sabor; no lo había probado en todo ese tiempo en el mundo de juguetes, y ahora, por fin, había regresado a sus labios.
+
+Sus ojos se clavaron en el suelo, siguiendo con avidez cada caramelo que rodaba hacia ella.
+
+"Esto sí es azúcar, ¿verdad, Applejack?" dijo Rainbow Dash en tono burlón, mirando cómo su amiga disfrutaba los caramelos con desesperación. Casi parecía un animal sediento bebiendo de un lago, ignorando todo a su alrededor.
+
+Fluttershy comenzó a reír al ver la escena, y Rainbow Dash no se quedó atrás.
+
+El trío de amigas estaba pasando un momento verdaderamente alegre.
+
+Tal vez por eso, al estar tan distraídas, ninguna de ellas vio lo que ocurrió después...
 
 [---]
 
-Escena 1. Con Rarity y Pinkie Pie. En la cocina, preparando un pastel. Descubren a la mini Twilight.
+Más rauda que un camión sin frenos, una sombra cruzó el claro de extremo a extremo en menos de un parpadeo.
+Cuando desapareció, el campo de flores —ahora inundado de caramelos— estaba vacío.
 
-Escena 2. Applejack y Fluttershy. En el bosque de carton, se encuentran con Rainbow Dash.
+No quedaba rastro de las ponis que un momento antes habían estado allí.
 
-Escena 3. Applejack y Fluttershy y Rainbow Dash. Se encuentran con el mounstro de juquetes.
+[---]
 
-Escena 4. Todas las amigas se encuentran en casa de Twilight. E intentan resolver la situación. Haciendo un plan.
+"Ahhh... mi cabeza..." murmuró Applejack, recuperando la conciencia.
 
-Escena 5. El mundo de juguetes es engañado y atrapado en un establo. Sin embargo el plan falla y estan a punto de ser devorados por el mounstro de juquetes. No obstante aparece la mini Twilight para salvarlas.
+Su cuerpo se sentía un desastre, y una incómoda sensación de estar amarrada le recorría la piel.
 
-Escena 6. Con el problema resuelto las amigas encuentran el diario de Twilight en los restos del mounstro de juquetes. Con el por fin comienzan a comprender que ha pasado con su amiga.
+Sus sentidos se fueron aclarando poco a poco, haciéndola consciente de su situación.
+
+Estaba colgando de cabeza dentro de una enorme bolsa de malla, suspendida en el aire en una habitación espaciosa y apenas iluminada.
+
+Su posición era la misma que una fruta colgando para madurar en una tienda.
+
+"¿Qué... qué ha pasado?" murmuró con desesperación, intentando liberarse.
+
+"Applejack... tenemos un problema." La voz, reconocible al instante, provenía de su lado.
+
+Al girar la cabeza, Applejack se encontró con Rainbow Dash, también atrapada en otra bolsa de malla. La pegaso tenía el ceño fruncido y las alas crispadas, visiblemente molesta.
+
+"¡¿Pero qué—?!" exclamó Applejack, girando al otro lado para encontrarse con Fluttershy, aún con su traje puesto, igualmente atrapada.
+
+"Aún está inconsciente," murmuró Rainbow Dash con un tono grave.
+
+"¿Qué... qué ha pasado?" repitió Applejack, cada vez más angustiada.
+
+"Pregúntaselo a él." Rainbow Dash señaló hacia abajo con la cabeza.
+
+Applejack bajó la mirada.
+
+Debajo de ellas, una masa oscura se agitaba lentamente, como si despertara de un largo sueño. De pronto, comenzó a elevarse, tomando forma hasta erguirse por completo.
+
+Su altura era tal que su cabeza llegó a la misma altura en que colgaban las tres ponis.
+
+Los ojos de la criatura se abrieron, brillando con fulgor, encontrándose con los de Applejack. Su enorme boca se abrió, mostrando dientes afilados cubiertos de caramelos masticados, que goteaban al suelo. Y finalmente, la voz que emergió fue tan grave que retumbó en las paredes de la habitación y se extendió por toda la colina de AutumnBreeze.
+
+"¿Dónde está la princesa Twilight?" preguntó la bestia implacable.
