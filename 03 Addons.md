@@ -14,6 +14,10 @@
     -> Los diálogos deben ser propios de los personajes.
 ]
 
+Podcast-prompt:
+
+Crea un podcast enfocandote en la fuente: A05 cap02 - Descubriendo un mundo caotico - Parte I (es). Esta fuente corresponde a la primera parte del capitulo: "descubriendo un mundo caotico". Este podcast es parte de una serie de podcast sobre el fanfic: "Twilight frente a la oscura marcha marcial - Pt 02 (Mundo de Caos)". Puedes hacer referencia a capítulos anteriores si es necesario.
+
 # Descubriendo un mundo caotico
 
 Estructura general: este capitulo desarrolla los acontecimientos posteriores a la llegada de los ponis al mundo de caos. Tres dias despues de lo narrado en el capitulo anterior. Esta dividido en varias escenas que se mencionaran a continuacion.
