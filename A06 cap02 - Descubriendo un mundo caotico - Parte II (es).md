@@ -420,7 +420,7 @@ A diferencia de las arboledas que las ponis habían cruzado antes, este bosque d
 
 Entre nuevas ubicaciones y otras que les resultaban vagamente familiares, Applejack y Fluttershy habían enfrentado más de un obstáculo en su camino. Era una zona que aún quedaba pendiente de explorar a fondo y, de no haber sido por el mapa de su amiga pegaso, probablemente habrían terminado perdidas antes de llegar a su destino.
 
-Destino que, ahora, estaba a solo unos pasos de alcansar.
+Destino que, ahora, estaba a solo unos pasos de alcanzar.
 
 "Ufff... vaya rodeo", suspiró Applejack mientras se detenía a secarse el sudor. No llevaba equipaje, pero el viaje apresurado le había costado más de lo que pensaba. "Por fin llegamos."
 
@@ -436,33 +436,33 @@ La tímida pegaso tragó saliva con nerviosismo. Applejack, por su parte, levant
 
 "Vaya lugar el que eligió Rainbow Dash para meterse en problemas", murmuró la poni granjera. "Terminemos con esto..."
 
-Sin deseos de retrasarse aun mas, ambas se pusieron en marcha. Haciendo un esfuerzo adicional, avanzaron lentamente entre los obstáculos que se interponían en su nuevo camino.
+Sin deseos de retrasarse aún más, ambas se pusieron en marcha. Haciendo un esfuerzo adicional, avanzaron lentamente entre los obstáculos que se interponían en su nuevo camino.
 
-Poco a poco la ya poca luminosidad a su alrrededor comenzo a disminuir aun más.
+Poco a poco, la ya escasa luminosidad a su alrededor comenzó a disminuir todavía más.
 
-Totalmente envueltas en manto de penumbras, Fluttershy no tuvo más opción que encender la linterna incorporada en su traje. Con el camino iluminado, ambas ponis continuaron hasta porfin alcanzar un espacio abierto y claramente distinto.
+Totalmente envueltas en un manto de penumbras, Fluttershy no tuvo más opción que encender la linterna incorporada en su traje. Con el camino iluminado, ambas ponis continuaron hasta alcanzar por fin un espacio abierto y claramente distinto.
 
 "Esto es nuevo..." dijo Applejack, sorprendida por lo que revelaba la luz.
 
 El bosque, que hasta ese momento había resultado monótono con sus ramas y arbustos repetitivos, se transformaba ahora en algo más realista y variado. Pero, sobre todo... tétrico.
 
-Brotes retorcidos de árboles emergían del suelo como garras. El césped artificial había dado paso a roca sólida cubierta de hojas secas y maleza punzante. Los troncos alrededor eran más anchos de lo que jamás habían visto y, al alzar la mirada, las ponis podían notar grandes mallas superpuestas que cubrían el cielo como telarañas negras que bloqueaban por completo la luz exterior.
+Brotes retorcidos de árboles emergían del suelo como garras. El césped artificial había dado paso a roca sólida cubierta de hojas secas y maleza punzante. Los troncos alrededor eran más anchos de lo que jamás habían visto y, al alzar la mirada, las ponis podían notar enormes mallas superpuestas que cubrían el cielo como telarañas negras, bloqueando por completo la luz exterior.
 
-El lugar, que daba una extraña sensación de haber sido poseido por el mal, parecía ser sin duda el corazón del falso bosque Everfree.
+El lugar —que transmitía la perturbadora sensación de haber sido poseído por algo oscuro— parecía ser, sin duda, el corazón del falso bosque Everfree.
 
-Avanzando con cautela con la luz de la linterna apuntando aqui y alla, las ponis encontraron más sorpresas a su alrededor.
+Avanzando con cautela, con la luz de la linterna moviéndose de un lado a otro, las ponis comenzaron a descubrir más sorpresas a su alrededor.
 
 "¿Qué es todo esto?" exclamó Applejack, siendo la primera en notarlo.
 
-Incongruentes con el entorno, enormes carritos de juguete —semejantes a los carritos chocones de las ferias— yacían esparcidos por el sitio. De diseño metálico y sofisticado, se asemejaban a cápsulas espaciales, totalmente nuevos, como recién fabricados y abandonados allí sin motivo.
+Incongruentes con el entorno, enormes carritos de juguete —semejantes a los carritos chocones de las ferias— yacían esparcidos por el sitio. De diseño metálico y sofisticado, se asemejaban a cápsulas espaciales, totalmente nuevos, como recién fabricados y abandonados allí sin motivo aparente.
 
 Las ponis casi detuvieron su avance, fascinadas por el lugar.
 
 "¡Mira!" exclamó de pronto Fluttershy, señalando una de las cápsulas.
 
-Applejack volvio su mirada al vehículo y lo entendió de inmediato; ambas corrieron hacia este.
+Applejack volvió la mirada hacia el vehículo y lo entendió de inmediato; ambas corrieron hacia él.
 
-Era similar a las demás, con tonalidades más colorida y con un diseño llamativo. Pero sin nada especialmente relevante...
+Era similar a las demás, aunque con tonalidades más coloridas y un diseño llamativo. Sin embargo, nada parecía especialmente relevante...
 
 Excepto por el enorme agujero en el vidrio de la parte frontal.
 
@@ -470,7 +470,7 @@ Excepto por el enorme agujero en el vidrio de la parte frontal.
 
 Para Fluttershy, la respuesta estaba en el suelo.
 
-Con un movimiento tembloroso, que llamó la atención de Applejack deteniendola en seco, la pegaso levantó algo.
+Con un movimiento tembloroso —lo bastante para detener en seco a Applejack— la pegaso levantó algo.
 
 "¿Paperwolves?" exclamó aterrada, mostrando largas tiras de papel delgado, mezcladas con fragmentos de vidrio pulverizado y unas plumas celestes.
 
@@ -520,7 +520,7 @@ Applejack no respondió.
 
 "Sí, así es... Pinkie está con ella ayudando", respondió Fluttershy mientras seguía a la pegaso.
 
-"¡¿Así?! Espera... eso me recuerda algo" ladeando la cabeza, Rainbow Dash hizo sonar un nudo en el cuello. Justo con ese movimiento giró hacia atrás y notó la ausencia de su otra amiga.
+"¡¿Así?! Espera... eso me recuerda algo..." dijo Rainbow Dash, ladeando la cabeza y haciendo sonar un nudo en el cuello. Justo con ese movimiento giró hacia atrás y notó la ausencia de su otra amiga.
 
 "¡Applejack! ¿Qué haces ahí? ¿No vas a venir?"
 
