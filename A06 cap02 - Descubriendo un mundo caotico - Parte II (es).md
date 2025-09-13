@@ -622,7 +622,7 @@ Applejack meneó la cabeza, intentando acomodarse el sombrero que no llevaba.
 
 "Twilight..." imaginó la silueta de su amiga ausente. "Empiezo a entenderte mejor ahora..." se dijo, recordando una acalorada conversación que habían tenido tiempo atrás, donde se había tocado un tema similar.
 
-"Dirigir una nación no es lo mismo que dirigir una granja." recordó Applejack. Obviamente no se encontraba en un caos así, pero la sensación de similitud que sentía era palpable.
+"Dirigir una nación no es lo mismo que dirigir una granja." recordó Applejack. Obviamente no se encontraba en un caso así, pero la sensación de similitud que sentía era palpable.
 
 Perdida en estos pensamientos, sin darse cuenta, su mirada se desvió hacia el bosque de cartón. Deambuló por el entorno hasta posarse en un llamativo molino naranja en la cima de la colina más cercana.
 
@@ -713,6 +713,6 @@ Debajo de ellas, una masa oscura se agitaba lentamente, como si despertara de un
 
 Su altura era tal que su cabeza llegó a la misma altura en que colgaban las tres ponis.
 
-Los ojos de la criatura se abrieron, brillando con fulgor, encontrándose con los de Applejack. Su enorme boca se abrió, mostrando dientes afilados cubiertos de caramelos masticados, que goteaban al suelo. Y finalmente, la voz que emergió fue tan grave que retumbó en las paredes de la habitación y se extendió por toda la colina de AutumnBreeze.
+Los ojos de la criatura se abrieron, brillando con fulgor antinatural, encontrándose con los de Applejack. Su enorme boca se abrió, mostrando dientes afilados cubiertos de caramelos masticados, que goteaban al suelo. Y finalmente, la voz que emergió fue tan grave que retumbó en las paredes de la habitación y se extendió por toda la colina de AutumnBreeze.
 
 "¿Dónde está la princesa Twilight?" preguntó la bestia implacable.
