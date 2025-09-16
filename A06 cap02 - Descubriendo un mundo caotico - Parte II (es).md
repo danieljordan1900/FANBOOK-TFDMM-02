@@ -30,7 +30,9 @@ Rarity no estaba en contra de esa decisión, era razonable; sin embargo, a su pa
 
 Su memoria de aquellos días era difusa debido a los episodios de fiebre, provocados más por el choque del nuevo ambiente que por una enfermedad real. Aun así, habia conservado suficiente lucidez para estar segura de que Pinkie Pie había ayudado a Applejack a crear esa lista. Ademas que ambas ponis la habían revisado varias veces para asegurarse de que fuera correcta.
 
-Entonces... ¿cómo se explicaba que faltaran tantas cosas y, en cambio, sobraran otras?
+"¡Faltaba azúcar!" ¿habia repetido Pinkie Pie?
+
+Recordar eso no importaba... lo que si importaba era entender ¿Por qué faltaban tantas cosas y, en cambio, sobraban otras?
 
 "Clack!" se escuchó de pronto en la silenciosa habitación.
 
@@ -42,11 +44,13 @@ Tras un tiempo indeterminado, bajó la sartén en silencio, mirando con desconfi
 
 Incluso con sus sentidos limitados por el traje que la aislaba del exterior, Rarity podía percibirlo con claridad.
 
-Ese mundo liminal, aquel mundo de juguetes en el que estaban atrapadas, no estaba vacío.
+Ese mundo liminal, aquella caja de juguetes en el que estaban atrapadas, no estaba vacío.
 
-Algo las acechaba...
+Algo las acechaba... dentro del mundo de juguetes.
 
-"Necesitamos tener todas una nueva reunión... hoy mismo." anunció sin apartar la mirada del aire inmóvil en medio de la habitación. "Pero antes... Pinkie."
+¿Mundo de juguetes? penso la poni con ingenio. Eso definitivamente sonaba mejor. Lo anoto con brillantes en su diario mental.
+
+"Necesitamos tener todas una nueva reunión... hoy mismo." anunció en voz alta sin apartar la mirada del aire inmóvil en medio de la habitación. "Pero antes... Pinkie."
 
 Con estas palabras abrió la puerta y, sin mirar atrás, abandonó el lugar.
 
@@ -180,7 +184,7 @@ Pinkie Pie, que había saltado de un brinco para ponerse en pie, fue la primera 
 
 "Sipi-sipi, pero no te preocupes. ¡Ya te encontramos! Y ahora que estamos todos juntos otra vez, podremos resolverlo. Además, el Sr. Nabo ya tiene un plan para salir de aquí… ¡Ehmm! ¿Exactamente dónde era aqui?" pregunto Pinkie, un poco confundida por su propia lógica.
 
-"Ujum, sobre eso, Madame. Tras varias observaciones hemos llegado a la conclusión de que este mundo de plástico o mundo de juguetes como preferimos llamarlo, muy probablemente, sea una dimensión de bolsillo creada artificialmente a partir de la información residual de nuestro universo original." añdio el Sr. Nabo acomodandose las hojas.
+"Ujum, sobre eso, Madame. Tras varias observaciones hemos llegado a la conclusión de que este mundo de plástico o mundo de juguetes como preferimos llamarlo, muy probablemente, sea una dimensión de bolsillo creada artificialmente a partir de la información residual de nuestro universo original." añadió el Sr. Nabo acomodandose las hojas.
 
 "Vaya... eso es..." balbuceó Madame Harina, con sus pensamientos apilándose uno sobre otro.
 
@@ -332,7 +336,7 @@ Al volver la vista a un lado, su mirada se encontró con el saco de harina de Pi
 
 Extrañada, Rarity ladeó la cabeza. Pero casi inmediatamente, volvió a perder el interés y suspiró.
 
-"Ojalá supieras lo perdida que me siento", susurró Rarity a si misma. O tal vez, al saco de harina a su lado. Ya no le importaba.
+"Ojalá supieras lo perdida que me siento", susurró Rarity a sí misma. O tal vez, al saco de harina a su lado. Ya no le importaba.
 
 "Oui, por supuesto que lo entiendo, madame." respondió una voz surgida de la nada.
 
@@ -566,7 +570,7 @@ Era un claro de césped artificial, cubierto de flores de colores variados y tam
 
 "Bueno, podemos dejar eso para otro momento." cortó Applejack. "Se está haciendo tarde, Rarity y Pinkie deben de estar preocupadas por nosotras."
 
-"Tienes razón." respondió Rainbow Dash, tocándose su vacío vientre. "¡Esperen! Hay algo que necesitamos antes de volver."
+"Tienes razón." respondió Rainbow Dash, tocándose su vacío vientre. "¡Esperen! Hay algo que necesito antes de volver."
 
 Con un aleteo, la pegaso se dirigió a uno de los extremos del claro, donde se encontraba una especie de buzón rosa elevado, con una palanca a un lado. De inmediato tiró de la palanca con fuerza, para luego comenzar a darle patadas como si esperara que el aparato reaccionara.
 
@@ -594,13 +598,13 @@ Applejack se rascó la cabeza. El descubrimiento de Rainbow era algo nuevo e int
 
 "¡En la falsa casa del árbol!" corrigió Rainbow Dash sin dejar de concentrarse en el buzón.
 
-"Bien, en la falsa casa del árbol..." dijo Applejack, rodando los ojos. "Pero se está haciendo tarde, en serio..."
+"Bien, en la falsa casa del árbol de Twilight..." dijo Applejack, rodando los ojos. "Pero se está haciendo tarde, en serio..."
 
-"Ya lo sé, Applejack... pero de verdad los necesitamos. Digo, los va a necesitar Pinkie."
+"Ya lo sé, Applejack... pero de verdad los necesito. Digo, los va a necesitar Pinkie."
 
 "¿Pinkie?" preguntó Fluttershy.
 
-"Sí. Ella ha estado actuando raro últimamente. La he visto varias veces conversando con sus amigos inanimados a escondidas."
+"Sí. ¿No lo han notado? Ella ha estado actuando raro últimamente. La he visto varias veces conversando con sus amigos inanimados a escondidas."
 
 "Ay, no..." exclamó Fluttershy, sorprendida.
 
@@ -608,7 +612,7 @@ Applejack se rascó la cabeza. El descubrimiento de Rainbow era algo nuevo e int
 
 "Sí... creo que es porque no está consumiendo azúcar. Eso la pone así."
 
-"Espera, tenemos bastante miel en las reservas."
+"¿Azucar? Espera, tenemos bastante miel en las reservas."
 
 "La miel no es lo mismo que el azúcar, Applejack. Tiene otros componentes más artificiales... y menos digeribles." respondió Rainbow con la mirada apenada, evitando recordar lo sucedido en la mañana. Luego pateó con más fuerza el buzón. "Fluttershy, ¿me ayudas? Creo que si lo sostienes por abajo debería funcionar."
 
@@ -666,7 +670,7 @@ Dulce. Verdaderamente dulce. De cubierta crocante y un interior de suave textura
 
 Sus ojos se clavaron en el suelo, siguiendo con avidez cada caramelo que rodaba hacia ella.
 
-"Esto sí es azúcar, ¿verdad, Applejack?" dijo Rainbow Dash en tono burlón, mirando cómo su amiga disfrutaba los caramelos con desesperación. Casi parecía un animal sediento bebiendo de un lago, ignorando todo a su alrededor.
+"Esto sí es azúcar, ¿verdad, Applejack?" dijo Rainbow Dash en tono burlón, mirando cómo su amiga en el suelo disfrutaba los caramelos con desesperación. Casi parecía un animal sediento bebiendo de un lago, ignorando todo a su alrededor.
 
 Fluttershy comenzó a reír al ver la escena, y Rainbow Dash no se quedó atrás.
 
@@ -676,7 +680,7 @@ Tal vez por eso, al estar tan distraídas, ninguna de ellas vio lo que ocurrió 
 
 [---]
 
-Más rauda que un camión sin frenos, una sombra cruzó el claro de extremo a extremo en menos de un parpadeo.
+Más rauda que un camión sin frenos, una sombra cruzó el claro de extremo a extremo en un poco más de un parpadeo.
 Cuando desapareció, el campo de flores —ahora inundado de caramelos— estaba vacío.
 
 No quedaba rastro de las ponis que un momento antes habían estado allí.
@@ -703,16 +707,16 @@ Al girar la cabeza, Applejack se encontró con Rainbow Dash, también atrapada e
 
 "Aún está inconsciente," murmuró Rainbow Dash con un tono grave.
 
-"¿Qué... qué ha pasado?" repitió Applejack, cada vez más angustiada.
+"¡¿Qué... qué ha pasado?!" repitió Applejack, cada vez más angustiada.
 
 "Pregúntaselo a él." Rainbow Dash señaló hacia abajo con la cabeza.
 
 Applejack bajó la mirada.
 
-Debajo de ellas, una masa oscura se agitaba lentamente, como si despertara de un largo sueño. De pronto, comenzó a elevarse, tomando forma hasta erguirse por completo.
+Debajo de ellas, una masa oscura se agitaba lentamente, como si despertara de un pesado letargo. De pronto, comenzó a elevarse, tomando forma hasta erguirse por completo.
 
 Su altura era tal que su cabeza llegó a la misma altura en que colgaban las tres ponis.
 
-Los ojos de la criatura se abrieron, brillando con fulgor antinatural, encontrándose con los de Applejack. Su enorme boca se abrió, mostrando dientes afilados cubiertos de caramelos masticados, que goteaban al suelo. Y finalmente, la voz que emergió fue tan grave que retumbó en las paredes de la habitación y se extendió por toda la colina de AutumnBreeze.
+Los ojos de la criatura se abrieron, brillando con fulgor antinatural, encontrándose con los de Applejack. Su enorme boca se abrió, mostrando dientes afilados cubiertos de caramelos masticados, que goteaban al suelo. Y finalmente, la voz que emergió fue tan grave que retumbó en las paredes de la habitación y se extendió mas alla, en toda la cima de la colina de AutumnBreeze.
 
 "¿Dónde está la princesa Twilight?" preguntó la bestia implacable.
