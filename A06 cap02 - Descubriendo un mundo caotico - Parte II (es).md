@@ -664,13 +664,13 @@ Sus amigas atrapaban los que podían al vuelo, escondiéndolos en sus bolsillos 
 
 Uno rodó hasta sus patas delanteras. Lo tomó casi sin pensarlo y se lo llevó a la boca.
 
-Dulce. Verdaderamente dulce. De cubierta crocante y un interior de suave textura que se deshacía en su boca. Pero más importante que el sabor que este tenia...
+Dulce. Verdaderamente dulce. De cubierta crocante y un interior de suave textura que se deshacía en su boca. Pero más importante que todo esto, era el sabor que este tenia...
 
 "¡Sabe a manzana!" exclamó con una sonrisa emocionada. Applejack jamás podría olvidar aquel sabor; no lo había probado en todo ese tiempo en el mundo de juguetes, y ahora, por fin, había regresado a sus labios.
 
 Sus ojos se clavaron en el suelo, siguiendo con avidez cada caramelo que rodaba hacia ella.
 
-"Esto sí es azúcar, ¿verdad, Applejack?" dijo Rainbow Dash en tono burlón, mirando cómo su amiga en el suelo disfrutaba los caramelos con desesperación. Casi parecía un animal sediento bebiendo de un lago, ignorando todo a su alrededor.
+"Esto sí es azúcar, ¿verdad, Applejack?" dijo Rainbow Dash en tono burlón, mirando cómo su amiga (que se habia tirado al suelo) disfrutaba los caramelos con desesperación. Casi parecía un animal sediento bebiendo de un lago, ignorando todo a su alrededor.
 
 Fluttershy comenzó a reír al ver la escena, y Rainbow Dash no se quedó atrás.
 

@@ -9,6 +9,52 @@
 
 [---]
 
+Las voces a su alrrededor se intensificaban. Sus sentidos, nublados desde que fuera capturada, comenzaron a despertar.
+
+Fluttershy, inconciente hasta hacia unos segundos antes, abrio los ojos dentro de su sellado traje de latex.
+
+Todo estaba oscuro. No podia ver nada, era de esperarse, ya que llevaba puesto un casco, pero lo que no entendia era porque tampoco podia moverse con libertad.
+
+"¿Que ha pasado?" murmuro en silencio, agitandose en vano.
+
+Las voces a su alrrededor, difusas al principio, se volvieron lentamente claras. No tardo demasiado en entender que una conversacion nada amigable se desarrollaba cerca de ella.
+
+"Applejack? Rainbow Dash?" volvio a murmurar.
+
+La conversacion, a la cual se encontraba ajena, continuaba. Reconocia la voz de sus amigas. Pero tambien la de alguien mas...
+
+"¿Quien?" la pegaso no reconocia la tercera voz. Grave, intensa, violenta... definitivamente no era alguien que conociera, y por la forma en que se expresaba, tampoco era alguien al que pronto quisiera conocer.
+
+Inperceptible, acomodo su cabeza dentro de traje y luego permanecio inmovil, atenta al desarrollo de la platica...
+
+No, de la discusion...
+
+"¿Twilight?¿Niño?¿Badwhiz?¿El rey de la harmonia?" confundida, la mente de Fluttershy intentaba analizar cada palabra que escuchaba.
+
+De pronto, la intensa discusion se detuvo y un tenso silencio ocurrio.
+
+Peligro.
+
+Los sentidos innatos de Fluttershy sonaban con intensidad en su interior. Algo muy peligroso hiba a ocurrir.
+
+La discusion no habia mejorado. Por lo contrario, si lo ultimo que habia escuchado era correcto, las cosas se pondrian bastante mal.
+
+El silencio se rompio. A sus oidos llegaron nuevas palabras. Sus temores se confirmaron.
+
+"¡Que hago! ¡Que hago! ¡Twilight que deberia hacer!" rogo desesperada entre lagrimas buscando inspiracion en los recuerdos de su desaparecida amiga princesa.
+
+Como por arte de magia una respuesta ilumino su desesperado ser.
+
+Twilight se lo habia dicho tiempo atras. Era claro lo que tenia que hacer a continuacion...
+
+Segundos despues, Fluttershy fue aplastada.
+
+[---]
+
+A.
+
+[---]
+
 "No te dire nada" replico Applejack desafiante, intercambiando miradas con la bestia por un instante. Y aunque el encuentro visual fue breve, fue el suficiente para que la criatura reconsiderar su enfoque hasta ese momento...
 
 "Entiendo" respondio en un resoplido y una mirada aun mas dura.
