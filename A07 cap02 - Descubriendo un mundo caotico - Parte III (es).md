@@ -9,49 +9,63 @@
 
 [---]
 
-Las voces a su alrrededor se intensificaban. Sus sentidos, nublados desde que fuera capturada, comenzaron a despertar.
+Las voces a su alrededor se intensificaban. Sus sentidos, nublados desde el momento en que fue capturada, comenzaban por fin a reaccionar.
 
-Fluttershy, inconciente hasta hacia unos segundos antes, abrio los ojos dentro de su sellado traje de latex.
+Fluttershy, inconsciente hasta hacía apenas unos segundos, abrió lentamente los ojos dentro de su hermético traje de látex.
 
-Todo estaba oscuro. No podia ver nada, era de esperarse, ya que llevaba puesto un casco, pero lo que no entendia era porque tampoco podia moverse con libertad.
+Todo estaba oscuro. No podía ver nada, algo lógico considerando lo que llevaba puesto. Pero lo que la inquieto de inmediato fue la otra sensación que percibía: no era capaz de mover su cuerpo con libertad.
 
-"¿Que ha pasado?" murmuro en silencio, agitandose en vano.
+"¿Qué ha pasado?" murmuró en voz apenas audible, agitándose en vano.
 
-Las voces a su alrrededor, difusas al principio, se volvieron lentamente claras. No tardo demasiado en entender que una conversacion nada amigable se desarrollaba cerca de ella.
+Las voces a su alrededor, difusas al principio, comenzaron a definirse poco a poco. No tardó en comprender que una conversación, nada amistosa por el tono, se desarrollaba muy cerca de ella.
 
-"Applejack? Rainbow Dash?" volvio a murmurar.
+"¿Applejack? ¿Rainbow Dash?" volvió a susurrar, con un hilo de esperanza.
 
-La conversacion, a la cual se encontraba ajena, continuaba. Reconocia la voz de sus amigas. Pero tambien la de alguien mas...
+La conversación —de la que seguía siendo ajena— continuaba, y aunque reconocía las voces de sus amigas, había otra que le heló la sangre.
 
-"¿Quien?" la pegaso no reconocia la tercera voz. Grave, intensa, violenta... definitivamente no era alguien que conociera, y por la forma en que se expresaba, tampoco era alguien al que pronto quisiera conocer.
+No la conocía. Era grave, intensa, violenta... y por la forma en que se expresaba, estaba claro que no era en absoluto amistosa.
 
-Inperceptible, acomodo su cabeza dentro de traje y luego permanecio inmovil, atenta al desarrollo de la platica...
+Casi sin pensarlo, acomodó su cabeza dentro del casco y permaneció inmóvil, atenta. Escuchando todo lo que se decía en medio de la conversación.
 
-No, de la discusion...
+No, no era una conversación. Era una discusión.
 
-"¿Twilight?¿Niño?¿Badwhiz?¿El rey de la harmonia?" confundida, la mente de Fluttershy intentaba analizar cada palabra que escuchaba.
+"¿Twilight? ¿Niño? Espera... ¿Badwhiz? ¿El Rey de la Armonía?" repitió mentalmente, tratando de procesar cada palabra.
 
-De pronto, la intensa discusion se detuvo y un tenso silencio ocurrio.
+De pronto, la discusión se detuvo. Un silencio pesado llenó la habitación.
 
 Peligro.
 
-Los sentidos innatos de Fluttershy sonaban con intensidad en su interior. Algo muy peligroso hiba a ocurrir.
+Su instinto de supervivencia gritó dentro de ella. Algo muy malo estaba a punto de suceder.
 
-La discusion no habia mejorado. Por lo contrario, si lo ultimo que habia escuchado era correcto, las cosas se pondrian bastante mal.
+Segundos pasaron. Y la tension no paro de crecer en la pegaso, casi cortandole el aliento.
 
-El silencio se rompio. A sus oidos llegaron nuevas palabras. Sus temores se confirmaron.
+Finalmente, el silencio se quebró de golpe. Las palabras que llegaron a sus oídos confirmaron sus peores temores.
 
-"¡Que hago! ¡Que hago! ¡Twilight que deberia hacer!" rogo desesperada entre lagrimas buscando inspiracion en los recuerdos de su desaparecida amiga princesa.
+"¡¿Qué hago?! ¡¿Qué hago?! ¡Twilight, qué debería hacer?!" rogó en un susurro desesperado, con lágrimas formándose dentro de su casco.
 
-Como por arte de magia una respuesta ilumino su desesperado ser.
+Fue entonces cuando, como si una chispa encendiera su mente, que Fluttershy recordó algo. Algo que Twilight le había dicho mucho tiempo atrás.
 
-Twilight se lo habia dicho tiempo atras. Era claro lo que tenia que hacer a continuacion...
+La respuesta era clara. Sabía lo que debía hacer.
 
-Segundos despues, Fluttershy fue aplastada.
+Un instante después, la bolsa de malla en la que estaba atrapada se estremeció… y fue aplastada.
 
 [---]
 
-A.
+"Por favor... necesito encontrar a la princesa Twilight..." suplico la voz grave de la bestia haciendo eco dentro de la habitacion.
+
+Applejack y Rainbow Dash, ambas ponis atrapadas como frutas, colgando del techo del molino de AutumnBreeze, no respondieron.
+
+[---]
+
+"Ella tiene razon Rainbow Dash..." dijo Applejac con voz firme, "Necesita ayuda".
+
+Los ojos de la bestia titilaron y una sonrisa se formo en su rostro. Al mismo tiempo que el rostro de Rainbow Dash se deformaba por la indignacion.
+
+"¡Hablas en serio!" exploto la pegaso arcoíris.
+
+"Si, lo hago" respondio Applejack resuelta.
+
+"Bien, muy bien" respondio la bestia, emocionada
 
 [---]
 
