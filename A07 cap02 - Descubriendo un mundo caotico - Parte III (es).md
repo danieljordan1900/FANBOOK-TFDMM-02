@@ -51,21 +51,91 @@ Un instante después, la bolsa de malla en la que estaba atrapada se estremeció
 
 [---]
 
-"Por favor... necesito encontrar a la princesa Twilight..." suplico la voz grave de la bestia haciendo eco dentro de la habitacion.
-
-Applejack y Rainbow Dash, ambas ponis atrapadas como frutas, colgando del techo del molino de AutumnBreeze, no respondieron.
+*Escena 1. Con la bestia, Applejack y Rainbow Dash. En el molino de AutumnBreeze.*
 
 [---]
 
-"Ella tiene razon Rainbow Dash..." dijo Applejac con voz firme, "Necesita ayuda".
+"Por favor... necesito encontrar a la princesa..." habló la voz grave de la bestia, haciendo eco en la oscuridad de la habitación.
 
-Los ojos de la bestia titilaron y una sonrisa se formo en su rostro. Al mismo tiempo que el rostro de Rainbow Dash se deformaba por la indignacion.
+Applejack y Rainbow Dash, colgadas del techo del molino de AutumnBreeze como frutas en un secadero, no respondieron.
 
-"¡Hablas en serio!" exploto la pegaso arcoíris.
+"Solo la princesa Twilight tiene el poder para derrotar a la yegua malvada que aprisionó a mi gente. Por eso necesito que me lleven con ella. Se los suplico..." rogó la bestia, conteniendo a duras penas la desesperación en su voz.
 
-"Si, lo hago" respondio Applejack resuelta.
+El silencio de las ponis se prolongó. El ceño de la criatura se frunció aún más.
 
-"Bien, muy bien" respondio la bestia, emocionada
+"¡¿Es que no entienden que necesito ayuda?!" rugió la bestia, alzando la voz. "¡Las vidas de todos los habitantes de mi mundo dependen de ella! La malvada Alicornio de Fuego no se detendrá ante nada por robar toda la magia que existe en el universo. Si no la derrotamos pronto, ¡su mundo correrá la misma suerte que el mío!"
+
+Las palabras retumbaron en las paredes, y la tensión creció como un hilo a punto de romperse.
+
+Otra vez, silencio. O al menos, hasta que una voz cargada de desdén lo rompió:
+
+"Ajá... 'la malvada Alicornio de Fuego'," respondió Rainbow Dash haciendo crujir su cuello. "¿Sabes si tiene un nombre menos ridículo?"
+
+La bestia quedó quieta unos segundos, reprimiendo la respuesta que le quemaba en la garganta.
+
+"Opaline Arcana," dijo finalmente, en un tono sepulcral.
+
+"Ajá..." murmuró Rainbow Dash, ladeando la cabeza. "Applejack, ¿recuerdas si Twilight nos mencionó alguna vez a una tal Opaline Arcana? ¿La 'malvada Alicornio de Fuego'?"
+
+"No..." respondió Applejack, sin apartar la mirada de la criatura.
+
+"Exacto. Nunca lo hizo, ni lo hemos escuchado antes. Lo que significa que, muy probablemente, todo esto no sea mas que una gran mentira."
+
+"¿Crees que estoy mintiendo?" gruñó la bestia, esta vez sin contener su ira. "¡Es la pura verdad! ¡Tu princesa lo sabe! Llévenme con ella y les demostrará lo equivocadas que están."
+
+"¡¿Ah, sí?! ¡Grandísima bola de pelo!" explotó Rainbow Dash, agitando las alas. "Si tanto quieres que te llevemos con ella, ¡¿por qué no nos sueltas primero?!"
+
+"Ya se los dije: es por su propia seguridad," respondió la bestia, bajando el tono. "Este refugio ya fue invadido por los sirvientes de la Alicornio de Fuego. Si las libero ahora, podrían caer en manos del enemigo..."
+
+"¿Y no lo estamos ya?" replicó Rainbow Dash con sarcasmo, pero fue ignorada.
+
+"... Pero no tienen que preocuparse por nada. Solo díganme dónde está la princesa Twilight."
+
+Rainbow Dash rodó los ojos, exasperada, y volvió la mirada a su amiga, que se había mantenido callada todo ese tiempo.
+
+"Applejack, ¿me ayudas un poco con el sentido común? Para que esta cosa—"
+
+"Soy GAM," interrumpió la criatura.
+
+"¡Qué importa!" gruñó Rainbow Dash. "¡Que nos libere de una vez!"
+
+Applejack no respondió de inmediato. En su lugar, exhaló profundamente y, sin mirar a su amiga, dijo:
+
+"No, Rainbow Dash. Tiene razón." Su voz sonó firme, casi solemne. "Necesita ayuda."
+
+Los ojos de la bestia titilaron y una sonrisa casi involuntaria apareció en su rostro. Rainbow Dash, en cambio, abrió los ojos de par en par, indignada.
+
+"¡¿Hablas en serio?!" gritó la pegaso.
+
+"Sí, lo hago," respondió Applejack con calma, aunque con determinación.
+
+"Bien. Muy bien," dijo la bestia, dejando escapar un atisbo de alivio. "El Rey de la Armonía está de nuestro lado. Entonces, ¿me dirán dónde está la princesa Twilight?"
+
+"Por supuesto. Pero antes puedes hacernos un favor," respondió Applejack con seriedad.
+
+"¡Claro que sí!" respondió la bestia con entusiasmo.
+
+"Entonces, podrías empezar por ser honesta de una buena vez."
+
+El gesto de la criatura se tensó como si un balde de agua fría le hubiera caído encima.
+
+"¿Honesta?" repitió, desconcertada. "¿Qué quieres decir?"
+
+"¿Quién eres tú realmente?" enfatizó Applejack.
+
+"Soy GAM, emisario del Rey de la Armonía..."
+
+"No lo eres," lo interrumpió Applejack. "No sé cuánto de lo que nos has dicho hasta ahora es verdad o mentira, pero hay algo que sí tengo claro: necesitas ayuda. Y nos secuestraste esperando obtenerla de nosotras, porque ya nos conocías... ¿cierto?"
+
+La silueta de la bestia se contrajo y sus ojos brillaron con un fulgor amenazante.
+
+"¿Me dirás dónde está la princesa Twilight?" gruñó, con un tono más grave que antes.
+
+"¿Nos dirás quién eres en realidad?" replicó Applejack, sin ceder.
+
+"No."
+
+"Entonces... no te diré nada."
 
 [---]
 
