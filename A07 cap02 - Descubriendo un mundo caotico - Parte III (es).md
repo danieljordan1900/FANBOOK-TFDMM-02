@@ -51,15 +51,23 @@ Un instante después, la bolsa de malla en la que estaba atrapada se estremeció
 
 [---]
 
-Momentos antes...
+Momentos antes, en ese mismo lugar...
 
-"Por favor... necesito encontrar a la princesa..." habló una voz grave que resonó como un eco en la oscuridad de la habitación.
+"Por favor... necesito encontrar a la princesa..." resonó una voz grave haciendo eco en la profunda oscuridad de la habitación.
 
-Applejack y Rainbow Dash, colgadas del techo del molino de AutumnBreeze como frutas en un secadero, no respondieron.
+Applejack y Rainbow Dash, apenas visibles, colgadas del techo como frutas en un secadero, no respondieron.
 
-En su lugar, se limitaron a observar a la criatura desconocida que les hablaba.
+La voz grave continuo.
 
-"Solo la princesa Twilight tiene el poder para derrotar a la yegua malvada que aprisionó a mi gente. Por eso necesito que me lleven con ella. Se los suplico..." rogó la bestia, conteniendo apenas la desesperación que amenazaba con quebrar su semblante. O al menos, asi aparentaba.
+"Solo la princesa Twilight tiene el poder para derrotar a la yegua malvada que aprisionó a mi gente. Por eso necesito que me lleven con ella. Se los suplico..."
+
+
+
+En su lugar, se limitaron a observar, desde las bolsas de mallas en las que estaban atrapadas, a la criatura desconocida que les hablaba.
+
+"Solo la princesa Twilight tiene el poder para derrotar a la yegua malvada que aprisionó a mi gente. Por eso necesito que me lleven con ella. Se los suplico..." rogó la criatura que se asemejaba a una bestia cp
+
+, conteniendo apenas la desesperación que amenazaba con quebrar su semblante. O al menos, asi aparentaba.
 
 Por otro lado, el silencio de las ponis se prolongó. El ceño de la criatura se frunció aún más.
 
@@ -69,7 +77,7 @@ Las palabras retumbaron en las paredes, haciendo el ambiente más opresivo.
 
 Una vez más, silencio. Hasta que una voz cargada de desdén lo rompió:
 
-"Ajá... 'la malvada Alicornio de Fuego'," respondió Rainbow Dash, haciendo crujir su cuello. "¿Sabes si tiene un nombre menos estúpido?"
+"Ajá, bonito cuento... 'la malvada Alicornio de Fuego'," respondió Rainbow Dash, haciendo crujir su cuello. "¿Sabes si tiene un nombre menos estúpido?"
 
 La bestia permaneció inmóvil unos segundos, reprimiendo la respuesta inmediata que le quemaba en la garganta.
 
@@ -101,7 +109,7 @@ Rainbow Dash rodó los ojos, exasperada, y volvió la mirada a su amiga, que se 
 
 Applejack no respondió de inmediato. Exhaló profundamente y, sin mirar a su amiga, dijo:
 
-"No, Rainbow Dash. Tiene razón." Su voz sonó firme, casi solemne. "Necesita ayuda."
+"No, Rainbow Dash. Tiene razón." Su voz sonó firme, descidida. "Necesita ayuda."
 
 Los ojos de la bestia titilaron y una sonrisa casi involuntaria apareció en su rostro. Rainbow Dash, en cambio, abrió los ojos de par en par, estupefacta.
 
@@ -127,7 +135,7 @@ El gesto de la criatura se tensó, como si un balde de agua fría le hubiera ca�
 
 "No, no lo eres," la interrumpió Applejack. "No sé cuánto de tu discurso es verdad o mentira, pero hay algo que me queda claro: necesitas ayuda. Estás desesperada, lo veo en tus ojos."
 
-La bestia no respondió. Applejack continuó:
+La bestia no respondió. Applejack, manteniendo su penetrante mirada, continuó:
 
 "Si de verdad quieres nuestra ayuda, empieza por decirnos la verdad. ¿Quién eres?"
 
@@ -137,7 +145,7 @@ La bestia no respondió. Applejack continuó:
 
 El aire se volvió aún más pesado. La silueta de la bestia se contrajo y sus ojos brillaron con un fulgor amenazante.
 
-"¿Ayudarme?" soltó en un siseo burlon la bestia. "¿Me dirás dónde está la princesa Twilight?"
+"¿Ayudarme?" soltó en un siseo burlon. "¿Me dirás dónde está la princesa Twilight?"
 
 "¿Nos dirás quién eres en realidad?" replicó Applejack, sin ceder.
 
