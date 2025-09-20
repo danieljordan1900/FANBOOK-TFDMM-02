@@ -106,13 +106,13 @@ Los ojos de la bestia titilaron y una sonrisa casi involuntaria apareció en su 
 
 "¡¿Hablas en serio?!" gritó la pegaso indignada.
 
-"Sí, lo hago," respondió Applejack con calma.
+"Sí, lo hago," confirmó Applejack con calma.
 
-"Bien. Muy bien," dijo la bestia, dejando escapar un atisbo de alivio. "El Rey de la Armonía está de nuestro lado. ¿Me dirán dónde está la princesa Twilight?"
+"Bien. Muy bien," asintió la bestia, dejando escapar un atisbo de alivio. "El Rey de la Armonía está de nuestro lado. ¿Me dirán dónde está la princesa Twilight?"
 
-"Por supuesto. Pero antes, puedes hacernos un favor," respondió Applejack con seriedad.
+"Por supuesto. Pero antes, puedes hacernos un favor," añadió Applejack con seriedad.
 
-"¡Claro que sí!" respondió la bestia con entusiasmo.
+"¡Claro que sí!" exclamó la bestia con entusiasmo.
 
 "Bien. Entonces podrías comenzar por ser honesta de una buena vez."
 
