@@ -1,21 +1,12 @@
 # Descubriendo un mundo caótico - Parte III (es)
 
-* conversacion entre la bestia y las ponis capturadas
-* escape de Fluttershy
-* Fluttershy alerta a las ponis, Rarity y Pinkie Pie escapan a duras penas del escape de la bestia
-* comienza el combate entre Fluttershy y la bestia
-* La bestia es derrotada, un inesperado resultado final
-* La bestia reaparese, el rey de la armonia (el titulo honorifico de Accord aun esta por verse) la despide, ya tiene suficiente de ella, a partir de ahora, el se encargara.
-
-[---]
-
 En el interior del molino en la cima de la colina AutumnBreeze...
 
 Las voces a su alrededor se intensificaban. Sus sentidos, nublados desde el momento en que fue capturada, comenzaban por fin a reaccionar.
 
 Fluttershy, inconsciente hasta hacía apenas unos segundos, abrió lentamente los ojos dentro de su hermético traje de látex.
 
-Todo estaba oscuro. No podía ver nada, algo lógico considerando lo que llevaba puesto. Pero lo que la inquieto de inmediato fue la otra sensación que percibía: no era capaz de mover su cuerpo con libertad.
+Todo estaba oscuro. No podía ver nada, algo lógico considerando lo que llevaba puesto. Pero eso no era todo: lo que percibió a continuación la invadió de inquietud al instante. No podía mover su cuerpo con libertad.
 
 "¿Qué ha pasado?" murmuró en voz apenas audible, agitándose en vano.
 
@@ -27,11 +18,11 @@ La conversación —de la que seguía siendo ajena— continuaba, y aunque recon
 
 No la conocía. Era grave, intensa, violenta... y por la forma en que se expresaba, estaba claro que no era en absoluto amistosa.
 
-Casi sin pensarlo, acomodó su cabeza dentro del casco y permaneció inmóvil, atenta. Escuchando todo lo que se decía en medio de la conversación.
+Casi sin pensarlo, acomodó su cabeza dentro del casco, asegurándola y permaneció inmóvil, atenta. Escuchando todo lo que se decía en medio de la conversación.
 
 No, no era una conversación. Era una discusión.
 
-"¿Twilight? ¿Niño? Espera... ¿Badwhiz? ¿El Rey de la Armonía?" repitió mentalmente, tratando de procesar cada palabra.
+"¿Twilight? ¿Alicornio de Fuego? Espera... ¿El Rey de la Armonía?" repitió mentalmente, tratando de procesar cada palabra.
 
 De pronto, la discusión se detuvo. Un silencio pesado llenó la habitación.
 
@@ -39,7 +30,7 @@ Peligro.
 
 Su instinto de supervivencia gritó dentro de ella. Algo muy malo estaba a punto de suceder.
 
-Segundos pasaron. Y la tension no paro de crecer en la pegaso, casi cortandole el aliento.
+Segundos pasaron. Y la tensión no paro de crecer en la pegaso, casi cortandole el aliento.
 
 Finalmente, el silencio se quebró de golpe. Las palabras que llegaron a sus oídos confirmaron sus peores temores.
 
@@ -152,17 +143,3 @@ El aire se volvió aún más pesado. La silueta de la bestia se contrajo y sus o
 "No." gruñó, con un tono más grave que antes.
 
 "Entonces... no te diré nada," sentenció Applejack, desafiante.
-
-[---]
-
-"No te dire nada" replico Applejack desafiante, intercambiando miradas con la bestia por un instante. Y aunque el encuentro visual fue breve, fue el suficiente para que la criatura reconsiderar su enfoque hasta ese momento...
-
-"Entiendo" respondio en un resoplido y una mirada aun mas dura.
-
-Fue entonces cuando la bestia levanto una de sus garras, y con velocidad implacable la dirigio, no hacia Applejack, sino hacia una de sus amigas a lado suyo.
-
-Esta era la amiga a la que mas sentimientos guardaba: Rainbow Dash.
-
-"Quiza esto te haga cambiar de opinion..." dijo al mismo tiempo que convertia el agarre de sus gruesos dedos en puño cerrado sobre esto.
-
-No obstante, antes que Applejack pudiera reaccionar, la garra de la bestia se extendia hacia atras, retirandose.
