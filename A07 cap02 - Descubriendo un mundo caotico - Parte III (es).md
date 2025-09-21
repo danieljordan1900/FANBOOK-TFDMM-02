@@ -68,7 +68,7 @@ Las palabras retumbaron en las paredes, cargando el ambiente con una tensión pa
 
 Aun así, volvió el silencio. Y así prosiguió hasta que, contrario al ambiente, una voz cargada de desdén lo rompió:
 
-"Ajá, bonito cuento... 'la malvada Alicornio de Fuego'," dijo Rainbow Dash, haciendo crujir su cuello. "¿Sabes si tiene un nombre menos estúpido?"
+"Ajá, bonito cuento... 'la Alicornio de Fuego'," dijo Rainbow Dash, haciendo crujir su cuello. "¿Sabes si tiene un nombre menos estúpido?"
 
 La bestia permaneció inmóvil unos segundos, reprimiendo la respuesta inmediata que le quemaba en la garganta.
 
@@ -142,4 +142,120 @@ El aire se volvió aún más pesado. La silueta de la bestia se contrajo y sus o
 
 "No." gruñó, con un tono más grave que antes.
 
-"Entonces... no te diré nada," sentenció Applejack, desafiante.
+"Entonces... no te diré nada" sentenció Applejack, desafiante.
+
+Un silencio de muerte se apoderó de la habitación. Pero, a diferencia de los anteriores, este estaba cargado de hostilidad, como si el aire mismo presagiara un peligro inminente.
+
+En el centro de todo, Applejack y la bestia permanecían inmóviles, cruzando miradas en un duelo silencioso.
+
+Rainbow Dash, que hasta entonces se había limitado a observar, se agitaba en su celda de malla, las alas tensas, expectante de lo que estaba por suceder.
+
+El silencio se volvió aún más profundo. La respiración de las presentes parecía suspendida, y el único sonido audible era el sutil crujido de las cuerdas que sostenían a las ponis.
+
+¡Splat! Un chasquido seco resonó de pronto, como el de un látigo golpeando el suelo.
+
+Las ponis se sobresaltaron, pero pronto hallaron el origen: una sombra sinuosa, semejante a una enorme serpiente, se agitaba detrás de la bestia.
+
+Era su cola, que ahora delataba el cambio en sus intenciones.
+
+"Son una decepción... todas ustedes. Y su princesa... no es diferente" murmuró la criatura, envuelta en la negrura.
+
+Applejack entrecerró los ojos. El rostro de la bestia era pura sombra; las lámparas incandescentes que eran sus ojos se habían apagado.
+
+"Applejack... esto es malo" susurró Rainbow Dash desde su jaula.
+
+La granjera no alcanzó a responder. En ese mismo instante, los ojos de la bestia se abrieron de golpe, brillando con una ferocidad que la paralizó. Luego, una de sus garras se extendió con violencia.
+
+No... no hacia ella.
+
+"No las necesito a todas. Con dos bastará" gruñó la criatura, cerrando su garra en un puño.
+
+"¡No!" gritó Applejack, inútilmente.
+
+Pero la garra se detuvo en seco.
+
+Un silbido cortante, como el de una cuchilla atravesando el aire, resonó en la penumbra.
+
+La garra retrocedió.
+
+Para alivio de Applejack, una silueta colorida emergió de entre las sombras.
+
+Rainbow Dash estaba de pie, las alas desplegadas como cuchillas, justo en el punto donde la garra había intentado aplastar a su víctima. Sin vacilar, escupió a un lado, apartándose un mechón de crin que se le había pegado a la boca.
+
+"Inténtalo de nuevo" lo desafió con una sonrisa, mientras la bestia volvía a su posición inicial.
+
+Applejack dejó escapar un suspiro de alivio.
+
+"Casi olvido lo poco dócil que eres... Rainbow Dash" replicó la bestia con una calma inquietante.
+
+La pegaso arqueó una ceja. Esas palabras confirmaban la sospecha de Applejack: aquella criatura, a la que nunca habían visto o dado su nombre, las conocía.
+
+Applejack tragó saliva. Su expresión dejaba claro que también había comprendido el alcance de aquella revelación. Aunque saberlo solo añadió más presión a su adolorida cabeza.
+
+Entonces, en la penumbra, una afilada sonrisa rasgó el rostro de la bestia.
+
+Las ponis se tensaron en sus jaulas, listas para lo que pudiera venir.
+
+De nada sirvió; ninguna pudo prever lo que vino después.
+
+La garra de la bestia se extendió de nuevo, aún más rápido que antes, esta vez dirigida hacia la tercera de las ponis.
+
+En un instante, alcanzó la bolsa donde estaba Fluttershy y, sin el menor esfuerzo ni señal de alarma de su víctima, la aplastó.
+
+El silencio fue roto por un golpe sordo y el crujir de las cuerdas. Acompañado por un inperceptible silvido de algo desinflandose...
+
+Applejack y Rainbow Dash, atónitas ante la brutalidad de aquel acto, quedaron inmóviles, y así habrían permanecido por mucho más tiempo de no ser por lo que ocurrió después.
+
+"Uhhhhhhh..." la bestia ululó con un tono torpe, muy diferente al que había mostrado antes. Confusa, apretaba más y más su puño, como si buscara algo. Sin embargo, mientras más lo hacía, más su grotesco rostro se deformaba de puro estupor. Finalmente, reaccionando a su incomprensible shock, retrocedió liberando la garra y a su presa.
+
+Sin prestar atención a las miradas de sorpresa de las ponis, se impulsó hacia arriba y, de un empujón, derribó el techo de la oscura habitación.
+
+La luz del exterior se precipitó hacia adentro como un golpe. Todas parpadearon, cegadas por el repentino resplandor.
+
+Cuando por fin pudieron ver con claridad, la escena que se reveló ante ellas las dejó desconcertadas.
+
+La bolsa de malla donde debía estar Fluttershy estaba vacía. Sí, el traje de látex seguía allí, desgarrado y retorcido como un globo reventado tras una presión excesiva... pero no había nada más.
+
+Ni una pluma. Ni un solo pelo. Ni un rastro de piel. Nada.
+
+Incluso la bestia parecía tan incrédula como ellas.
+
+"¡¿Qué demonios...?!" rugió, incapaz de comprender lo que veía.
+
+"¡Jajajajaja!" estalló de pronto una carcajada a un lado de Applejack. Rainbow Dash, con una sonrisa de oreja a oreja y lágrimas en los ojos, se revolcaba de la risa dentro de su celda de malla.
+
+"Esa cobarde de Fluttershy..." dijo entre risas. "¡Huyó como siempre, jajajaja!"
+
+Applejack permanecía muda, aún intentando asimilar lo que veía. ¿En qué momento había escapado su amiga? No tenía explicación, pero lo que sí tenía era un estómago por fin libre del nudo de angustia que había estado asfixiándola por dentro.
+
+La bestia, por su parte, empezaba a comprender la magnitud del desastre. "¿Fluttershy...?" susurró con dificultad. "¿No Rarity...?"
+
+"¡Claro que Fluttershy, bola de pelo!" respondió Rainbow Dash, radiante, con seguridad absoluta. "Ahora mismo debe estar yendo a la base para avisarle a Twilight y a las demás lo que está pasando. ¡Jajajaja!"
+
+Applejack la observó, confundida por la mención de Twilight, hasta que Rainbow le guiñó un ojo de manera cómplice.
+
+La granjera parpadeo y al instante siguiente comprendió la intención de su amiga, luego añadió con firmeza: "¡Claro que sí! Twilight vendrá a rescatarnos y te dará tu merecido. ¡Incluso Badwhiz se unirá esta vez!"
+
+El rostro de la bestia se contrajo de ira.
+
+"¡¿Ese mocoso aún sigue con vida?!" rugió.
+
+"Sí, ¿y qué harás al respecto?" replicó Rainbow Dash con una sonrisa desafiante.
+
+La bestia no respondió con palabras. Extendió ambas garras y atrapó a las dos ponis en un movimiento fulminante.
+
+Applejack y Rainbow sintieron de inmediato la presión aplastante de aquellos colosales puños. Sus cuerpos se estremecieron bajo la fuerza bruta, pero su espíritu seguía intacto.
+
+"Pierdes... el tiempo..." murmuró una enrojecida Rainbow Dash con dificultad, sintiendo cómo el aire se le escapaba de los pulmones.
+
+La criatura mantuvo el agarre por unos segundos más, hasta que, tal vez por las palabras de la pegaso o por la terquedad de ambas en no ceder con facilidad, detuvo su ataque y las soltó.
+
+Ambas cayeron exhaustas en el suelo de sus jaulas, jadeando al unísono.
+
+Con un rugido de frustración, la bestia descargó un puñetazo que derribó una de las paredes de la habitación. Su feroz mirada se posó en el falso Ponyville que se extendía al otro lado.
+
+Tras mirar largamente el lugar, exhaló con fuerza por la nariz, como un toro enfurecido, y volvió su atención hacia las dos ponis que aún colgaban, temblorosas y sin fuerzas para oponer resistencia.
+
+"Me serán útiles... les guste o no" susurró con voz venenosa.
+
+Momentos después, la bestia descendió de la colina AutumnBreeze, cargando dos bultos en su espalda, y se internó en el oscuro bosque de cartón.
