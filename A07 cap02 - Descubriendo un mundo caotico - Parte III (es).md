@@ -50,19 +50,19 @@ Momentos antes, en ese mismo lugar...
 
 Apenas visible en la penumbra, una criatura de aspecto amenazante —una enorme bestia con cuernos— permanecía erguida en el centro de la habitación, con la mirada fija en sus prisioneras.
 
-"Solo la princesa Twilight tiene el poder para derrotar a la yegua malvada que aprisionó a mi gente..." continuó.
+"...solo la princesa Twilight tiene el poder para derrotar a la yegua malvada que aprisionó a mi gente..." continuó.
 
 Frente a ella, meciéndose sin viento, tres bolsas de malla colgaban del techo. Applejack y Rainbow Dash, atrapadas en dos de ellas, observaban a su captor sin pronunciar palabra.
 
-"Por eso necesito que me lleven con ella. Se los suplico..."
+"...por eso necesito que me lleven con ella. Se los suplico..."
 
-La bestia terminó su discurso, que había comenzado minutos atrás con un tono amenazante y ahora concluía con una voz casi quebrada por la desesperación.
+La bestia terminó su discurso, que había comenzado minutos atrás con un tono amenazante y ahora concluía casi quebrada por la desesperación.
 
 O al menos, eso aparentaba.
 
 Las ponis permanecieron en silencio, incluso cuando la expresión de la criatura se volvió más impaciente.
 
-"¡¿Es que no entienden que necesito ayuda?!" rugió de pronto, alzando la voz. "¡Las vidas de todos los habitantes de mi mundo dependen de ella! La malvada Alicornio de Fuego no se detendrá ante nada para robar toda la magia que existe en el universo. Si no la derrotamos pronto, ¡su mundo correrá la misma suerte que el mío!"
+"¡¿Es que no entienden que necesito ayuda?!" rugió de pronto "¡Las vidas de todos los habitantes de mi mundo dependen de ella! La malvada Alicornio de Fuego no se detendrá ante nada para robar toda la magia que existe en el universo. Si no la derrotamos pronto, ¡su mundo correrá la misma suerte que el mío!"
 
 Las palabras retumbaron en las paredes, cargando el ambiente con una tensión palpable.
 
@@ -120,7 +120,7 @@ El gesto de la criatura se tensó, como si un balde de agua fría le hubiera ca�
 
 "¿Honesta?" repitió, desconcertada. "¿Qué quieres decir?"
 
-"¿Quién eres tú realmente?" enfatizó Applejack.
+"¿Quién eres tú realmente?"
 
 "Soy GAM, emisario del Rey de la Armonía..."
 
