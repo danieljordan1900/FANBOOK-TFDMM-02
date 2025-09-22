@@ -68,27 +68,25 @@ Las palabras retumbaron en las paredes, cargando el ambiente con una tensión pa
 
 Aun así, volvió el silencio. Y así prosiguió hasta que, contrario al ambiente, una voz cargada de desdén lo rompió:
 
-"Ajá, bonito cuento... 'la Alicornio de Fuego'," dijo Rainbow Dash, haciendo crujir su cuello. "¿Sabes si tiene un nombre menos estúpido?"
+"Ya veo, bonito cuento... ¿'la Alicornio de Fuego'?," dijo Rainbow Dash, haciendo crujir su cuello. "¿Sabes si tiene un nombre menos estúpido?"
 
-La bestia permaneció inmóvil unos segundos, reprimiendo la respuesta inmediata que le quemaba en la garganta.
+La bestia permaneció inmóvil unos segundos, reprimiendo la respuesta inmediata que le quemaba en la garganta. Tras un instante, finalmente respondió en un tono sepulcral: "Opaline Arcana"
 
-"Opaline Arcana," dijo finalmente en un tono sepulcral.
-
-"Ajá..." murmuró Rainbow Dash, ladeando la cabeza. "Applejack, ¿recuerdas si Twilight nos mencionó alguna vez a una tal Opaline Arcana? ¿La 'malvada Alicornio de Fuego'?"
+"¡Ajá!" exclamó Rainbow Dash, ladeando la cabeza. "Applejack, ¿recuerdas si Twilight nos mencionó alguna vez a una tal Opaline Arcana? ¿La 'malvada Alicornio de Fuego'?"
 
 "No..." replicó Applejack, sin apartar la mirada de la criatura.
 
-"Exacto. Nunca lo hizo, ni lo hemos escuchado antes. Lo que significa que, muy probablemente, todo esto no sea más que una gran pila de ¡mentiras!"
+"Exacto. Nunca lo hizo, ni lo hemos escuchado antes. Lo que significa que, muy probablemente, todo esto no sea más que un montón de ¡mentiras!"
 
-"¿Crees que estoy mintiendo?" gruñó la bestia, esta vez sin contener su ira. "¡Es la pura verdad! ¡Tu princesa lo sabe! Llévenme con ella y les demostrará lo equivocadas que están."
+"¿Crees que estoy mintiendo?" gruñó la bestia, esta vez sin contener su ira. "¡Es pura verdad! ¡Tu princesa lo sabe! Llévenme con ella y les demostrará lo equivocadas que están."
 
 "¡¿Ah, sí?! ¡Grandísima bola de pelo!" explotó Rainbow Dash, agitando las alas. "Si tanto quieres que te llevemos con ella, ¡¿por qué no nos sueltas primero?!"
 
-"Ya se los dije: es por su propia seguridad," respondió la bestia, bajando el tono. "Este refugio ya fue invadido por los sirvientes de la Alicornio de Fuego. Si las libero ahora, podrían caer en manos del enemigo..."
+"Ya se los dije: es por su propia seguridad," respondió la bestia, bajando el tono. "Este refugio ya fue invadido por los sirvientes de Opaline. Si las libero ahora, podrían caer en manos del enemigo..."
 
 "¿Y no lo estamos ya?" replicó Rainbow Dash con sarcasmo, pero fue ignorada.
 
-"... Pero no tienen que preocuparse por eso. Solo díganme dónde está la princesa Twilight."
+"Ya estan a salvo, no tienen que preocuparse por eso. Solo díganme dónde está la princesa Twilight."
 
 Rainbow Dash rodó los ojos, exasperada, y volvió la mirada a su amiga, que se había mantenido en silencio casi todo el tiempo.
 
@@ -106,7 +104,7 @@ Los ojos de la bestia titilaron y una sonrisa casi involuntaria apareció en su 
 
 "¡¿Hablas en serio?!" gritó la pegaso indignada.
 
-"Sí, lo hago," confirmó Applejack con calma.
+"Sí, sí lo hago," confirmó Applejack con calma.
 
 "Bien. Muy bien," asintió la bestia, dejando escapar un atisbo de alivio. "El Rey de la Armonía está de nuestro lado. ¿Me dirán dónde está la princesa Twilight?"
 
@@ -146,19 +144,19 @@ El aire se volvió aún más pesado. La silueta de la bestia se contrajo y sus o
 
 Un silencio de muerte se apoderó de la habitación. Pero, a diferencia de los anteriores, este estaba cargado de hostilidad, como si el aire mismo presagiara un peligro inminente.
 
-En el centro de todo, Applejack y la bestia permanecían inmóviles, cruzando miradas en un duelo silencioso.
+En el centro de todo, Applejack y la bestia permanecían inmóviles, cruzando miradas en un duelo de voluntades.
 
-Rainbow Dash, que hasta entonces se había limitado a observar, se agitaba en su celda de malla, las alas tensas, expectante de lo que estaba por suceder.
+Rainbow Dash, que hasta entonces se había limitado a observar, se agitaba en su celda de malla, con las alas tensas, expectante de lo que estaba por suceder.
 
-El silencio se volvió aún más profundo. La respiración de las presentes parecía suspendida, y el único sonido audible era el sutil crujido de las cuerdas que sostenían a las ponis.
+El silencio se volvió aún más profundo. La respiración de las ponis parecía suspendida, y el único sonido audible era el sutil crujido de las cuerdas que las mantenían colgadas.
 
-¡Splat! Un chasquido seco resonó de pronto, como el de un látigo golpeando el suelo.
+¡Splat! Un chasquido seco resonó de pronto, cortando el ambiente, como el azote de un látigo golpeando el suelo.
 
-Las ponis se sobresaltaron, pero pronto hallaron el origen: una sombra sinuosa, semejante a una enorme serpiente, se agitaba detrás de la bestia.
+Las ponis se sobresaltaron y buscaron con la mirada su origen. No tardaron en hallarlo: una sombra sinuosa, semejante a una enorme serpiente, se agitaba detrás de la bestia.
 
 Era su cola, que ahora delataba el cambio en sus intenciones.
 
-"Son una decepción... todas ustedes. Y su princesa... no es diferente" murmuró la criatura, envuelta en la negrura.
+"Son una decepción... todas ustedes. Y su princesa... es más de lo mismo" murmuró la criatura, envuelta en la negrura.
 
 Applejack entrecerró los ojos. El rostro de la bestia era pura sombra; las lámparas incandescentes que eran sus ojos se habían apagado.
 
@@ -180,7 +178,7 @@ La garra retrocedió.
 
 Para alivio de Applejack, una silueta colorida emergió de entre las sombras.
 
-Rainbow Dash estaba de pie, las alas desplegadas como cuchillas, justo en el punto donde la garra había intentado aplastar a su víctima. Sin vacilar, escupió a un lado, apartándose un mechón de crin que se le había pegado a la boca.
+Rainbow Dash estaba de pie, las alas desplegadas como cuchillas, justo en el punto donde la garra había intentado aplastar a su víctima. Sin vacilar, escupió a un lado, quitándose un mechón de crin que se le había pegado a la boca.
 
 "Inténtalo de nuevo" lo desafió con una sonrisa, mientras la bestia volvía a su posición inicial.
 
@@ -200,13 +198,13 @@ De nada sirvió; ninguna pudo prever lo que vino después.
 
 La garra de la bestia se extendió de nuevo, aún más rápido que antes, esta vez dirigida hacia la tercera de las ponis.
 
-En un instante, alcanzó la bolsa donde estaba Fluttershy y, sin el menor esfuerzo ni señal de alarma de su víctima, la aplastó.
+En un parpadeo, alcanzó la bolsa donde estaba Fluttershy y, sin el menor esfuerzo ni resistencia de su víctima, la aplastó.
 
-El silencio fue roto por un golpe sordo y el crujir de las cuerdas. Acompañado por un inperceptible silvido de algo desinflandose...
+Lo primero que se escuchó fue un golpe sordo, seguido del crujir de las cuerdas. Este último se repitió con angustiosa claridad, una y otra vez, acompañado por un silbido casi imperceptible, similar al que haría un cuerpo desinflandose...
 
 Applejack y Rainbow Dash, atónitas ante la brutalidad de aquel acto, quedaron inmóviles, y así habrían permanecido por mucho más tiempo de no ser por lo que ocurrió después.
 
-"Uhhhhhhh..." la bestia ululó con un tono torpe, muy diferente al que había mostrado antes. Confusa, apretaba más y más su puño, como si buscara algo. Sin embargo, mientras más lo hacía, más su grotesco rostro se deformaba de puro estupor. Finalmente, reaccionando a su incomprensible shock, retrocedió liberando la garra y a su presa.
+"Uhhhhhhh..." la bestia ululó con un tono torpe, muy diferente al que había mostrado antes. Confusa, apretaba más y más su puño, como si buscara algo. Sin embargo, mientras más lo hacía, más su grotesco rostro se deformaba de puro estupor. Finalmente, reaccionando a su incomprensible shock, retrocedió, liberando la garra y a su presa.
 
 Sin prestar atención a las miradas de sorpresa de las ponis, se impulsó hacia arriba y, de un empujón, derribó el techo de la oscura habitación.
 
@@ -259,3 +257,7 @@ Tras mirar largamente el lugar, exhaló con fuerza por la nariz, como un toro en
 "Me serán útiles... les guste o no" susurró con voz venenosa.
 
 Momentos después, la bestia descendió de la colina AutumnBreeze, cargando dos bultos en su espalda, y se internó en el oscuro bosque de cartón.
+
+[---]
+
+A.
