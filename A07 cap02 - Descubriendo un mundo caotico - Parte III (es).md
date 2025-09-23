@@ -260,4 +260,112 @@ Momentos después, la bestia descendió de la colina AutumnBreeze, cargando dos 
 
 [---]
 
-A.
+Todo iba muy rápido. Eso estaba bien para ella, pero no lo otro.
+
+"...Tik, tik, tik..." Un sonido agudo golpeaba sus oídos.
+
+"Ouuuu..." Con los ojos entrecerrados, Rainbow Dash vocalizó sin tino. Aún se sentía mareada, y todo a su alrededor se mecía como un barco. ¿Acaso estaba en el mar? Sus pensamientos vagaban mientras los continuos golpes, semejantes a olas, seguían llegando a sus oídos.
+
+¿De dónde venían las olas? ¿De abajo? ¿Por qué el suelo parecía correr? ¿Estaba ella corriendo... o alguien la estaba llevando?
+
+"Tik, tik, tik." La pegaso agitó las orejas, distraída. El sonido volvía a repetirse, cada vez más molesto. Por instinto, comenzó a ladear la cabeza rápidamente, moviendo la crin tanto como las ataduras se lo permitían.
+
+Pero el esfuerzo no bastó: el molesto sonido persistía.
+
+"¡Qué fastidio! ¿Qué pasa? Uggg... tengo tanta hambre..." protestó la pegaso en voz baja. Su vista estaba agotada, la cabeza le dolía una barbaridad y, para empeorar las cosas, sentía el cuerpo débil. La falta de aire reciente y el estómago vacío habían comenzado a hacer estragos en su físico. Sin energía para recuperarse, Rainbow Dash era apenas una neblina de sí misma.
+
+A causa de sus quejas, el incómodo sonido desapareció, devolviéndole un poco de paz.
+
+Entonces, algo inesperado ocurrió: en su seca boca comenzó a formarse un sabor dulce. Instintivamente, su lengua se estiró para atraparlo.
+
+Era redondo, ligeramente sólido, y pegajoso al masticar. El sabor se esparció por su boca, haciéndola sonreír de inmediato. El chocolate siempre lograba esa reacción en ella.
+
+Lo tragó de golpe y, al instante, quiso más. Como si su deseo hubiera sido escuchado, más bocados comenzaron a aparecer. Sin perder tiempo, Rainbow Dash los devoró uno tras otro. Así continuó hasta que ya no hubo más. Seguía teniendo hambre, pero no se iba a quejar: lo que acababa de comer le había devuelto la energía suficiente para comenzar a volver en sí.
+
+Vaya forma de volver en sí...
+
+"¡Rainbow Dashhhh!" Una voz chillona estalló en uno de sus oídos.
+
+"Waaaaaa..." El cuerpo de Rainbow Dash se estremeció por la sorpresa. Incluso habría saltado al aire de no ser por su precario estado.
+
+Abrió los ojos lo suficiente para darse cuenta de que estaba amarrada dentro de una bolsa de malla. A su lado, Applejack permanecía inconsciente en un estado similar. Más allá, el suelo —y todo a su alrededor— pasaba velozmente, como si estuvieran sobre algún vehículo en movimiento.
+
+Su memoria se refrescó en un instante y ató los cabos: habían sido capturadas por la bestia. Después de su fallido intento de engañarla, esta las había dejado inconscientes y ahora las transportaba a otro lugar para hacer uso de ellas.
+
+Las plumas de la pegaso se crisparon al comprender la situación.
+
+En efecto, eso era lo que estaba pasando. Ambas ponis viajaban en el lomo de la criatura, que cruzaba el bosque de cartón a gran velocidad, llevándolas a su guarida...
+
+¿O a algún lugar peor?
+
+Sin perder tiempo, Rainbow Dash empezó a forcejear contra las ataduras. Sin embargo, no logró mucho antes de que la voz volviera a interrumpirla.
+
+"¡Rainbow Dashhhh! ¡Despertaste, gracias al cielo que estás bien!" chilló la voz aguda dentro de su cabeza.
+
+"¡¿Qué demonios...?!" La pegaso agitó las orejas, desconcertada.
+
+"¡Rainbow Dash, soy yo! ¡Fluttershy! No grites... ¡Aaaaaaaahhhhh!" chilló nuevamente la voz.
+
+Entre los movimientos de Rainbow Dash, un pequeño bulto surgió de su oreja.
+
+"¿Fluttershy?" exclamó, impactada, al ver cómo aquel diminuto insecto que había estado en su oído se arrastraba con esfuerzo hasta aferrarse a las cuerdas en medio del bamboleo del lomo de la bestia, y luego se posaba en su nariz.
+
+Aunque se veía muy diferente, era Fluttershy: diminuta, delicada, transformada en un Breezie.
+
+Rainbow Dash se quedó con la boca abierta, sin dar crédito a lo que veía. Poco a poco, su mente comenzó a procesar la situación.
+
+"El regalo de la reina Novo... la perla... te transformó en un Breezie..." murmuró, todavía asimilando la información.
+
+"Sí... sí..." respondió emocionada la pequeña Fluttershy. "Estaba con ustedes antes y..."
+
+No terminó la frase. De un lengüetazo, Rainbow Dash la arrastró al interior de su boca y se inmovilizó, fingiendo inconsciencia.
+
+La razón estaba más allá de su jaula.
+
+La bestia se había detenido. Girando su enorme cabeza como un búho, olfateaba el aire, como si detectara algo entre los árboles de cartón.
+
+El corazón de Rainbow Dash latía con fuerza, suplicando no haber sido descubierta, mientras una voz aguda chillaba atrapada entre sus dientes.
+
+El intervalo terminó. Sin decir palabra, la criatura reanudó la marcha.
+
+Rainbow Dash escupió a la pequeña Fluttershy, que, cubierta de babas, parecía tan desorientada como la inconsciente Applejack a su lado.
+
+"Auu... ¿qué fue eso?" protestó la diminuta pony.
+
+"¡No es momento para explicaciones!" gruñó Rainbow Dash en un susurro furioso. "¡¿Por qué rayos no fuiste con las otras para advertirles de lo que está pasando?!"
+
+La Fluttershy Breezie agitó la cabeza para reaccionar y respondió: "No... no pude. No sé cómo llegar."
+
+"¡¿Cómo que no sabes?! ¡Tienes alas! ¡Tenías el mapa! ¿Qué más necesitas?"
+
+"Sí, sí... pero el mapa se rompió... junto con mi traje."
+
+"Ah... cierto. Pero... ¡guíate desde el cielo! ¡Usa tus alas!"
+
+"No... tampoco puedo. No hay viento en este lugar y no puedo volar como Breezie sin él. Mis alas normales no funcionan. Estoy muy asustada, Rainbow... ¡no sé qué hacer!" comenzó a llorar la pequeña Fluttershy.
+
+"¡Aughhhh!" Rainbow Dash se mordió el labio, frustrada por la incapacidad de su amiga. Todo lo que Fluttershy contaba era verdad. Poco después de escapar de ser aplastada, había intentado ir con las otras ponis a advertirles, pero le había bastado dar un par de pasos para quedarse desorientada e incapaz de avanzar por sí sola.
+
+Aceptando su propia incapacidad, lo único que se le ocurrió fue volver con Applejack y Rainbow Dash, con la esperanza de idear juntas un plan para escapar de esa peligrosa situación.
+
+"Así que... volviste convertida en Breezie y te aferraste a la bestia sin que se diera cuenta..." murmuró Rainbow Dash con una sonrisa torcida.
+
+"Sí... ¿no estuvo bien?"
+
+"¡No!... Quiero decir... sí. Aghhh... ¿por qué no la atacaste o algo? ¿Esa perla solo sirve para convertirte en Breezie o qué?"
+
+"Ahh... no estoy segura. Es una perla mágica, la reina Novo no me dio un manual con ella... pensaba preguntarle a Twilight en nuestra reunión en Canterlot, pero eso no llegó a suceder..." respondió agobiada la pequeña Fluttershy.
+
+"Ahhhh..." exhaló Rainbow Dash, haciendo un gran esfuerzo por pensar en vez de seguir enojándose. La improvisada conversación sobre el lomo de la bestia no estaba llevando a nada. El tiempo se les acababa. Tenían que actuar.
+
+¡Ella tenía que pensar en algo! ¿Pero qué?
+
+Tras un esfuerzo de concentración que casi parecía hacerle salir humo de la cabeza, Rainbow Dash respiró hondo y recuperó la confianza.
+
+El plan maestro que acababa de idear era, al menos en su mente, 100% a prueba de fallos... o eso esperaba.
+
+"¡Bien!" exclamó la pegaso con decisión. "¡Esto es lo que vamos a hacer ahora! ¿Lista, Fluttershy?"
+
+"¿S-sí?" respondió tímidamente su amiga en forma de Breezie.
+
+Sin esperar una respuesta más entusiasta, Rainbow Dash le explicó su plan, y Fluttershy escuchó cada detalle con atención.
