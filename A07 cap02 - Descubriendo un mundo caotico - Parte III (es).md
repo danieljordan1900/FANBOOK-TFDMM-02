@@ -294,7 +294,7 @@ Su memoria se refrescó en un instante y ató los cabos: el secuestro en medio d
 
 Las plumas de la pegaso se crisparon al comprender la situación.
 
-En efecto, eso era lo que estaba pasando. Ambas ponis viajaban en el lomo de la criatura, que cruzaba el bosque de cartón a gran velocidad, llevándolas a su guarida...
+En efecto, eso era lo que estaba pasando. Ambas ponis viajaban en el lomo de la criatura, que cruzaba el bosque de cartón a grandes pasos, llevándolas a su guarida...
 
 ¿O a algún lugar peor?
 
@@ -368,9 +368,71 @@ El plan maestro que acababa de idear era, al menos en su mente, 100% a prueba de
 
 "¡Bien!" exclamó la pegaso. "¡Esto es lo que vamos a hacer ahora! ¿Lista, Fluttershy?"
 
-"¿S-sí?" respondió tímidamente su amiga en forma de Breezie.
+"¿S-sí?" respondió tímidamente la pegaso en forma de Breezie.
 
-Sin esperar una respuesta más entusiasta, Rainbow Dash le explicó su plan, y Fluttershy escuchó cada detalle con atención.
+Sin esperar una respuesta más entusiasta, Rainbow Dash comenzó a explicarle su plan en voz baja. Fluttershy escuchaba atenta, asintiendo con su diminuta cabeza, mientras el vaivén del lomo de la bestia continuaba tan presuroso como ellas.
+
+[---]
+
+El gran granero de la familia Apple estaba a solo unos minutos de Ponyville. En comparación, en el mundo de juguetes, las distancias entre el aparente edificio y la falsa villa eran idénticas. Esa similitud era lo único rescatable entre ambas versiones, ya que —al igual que el resto de construcciones en los alrededores— el gran granero estaba hecho de plástico y cartón, lo que lo hacía ver estrafalario con respecto a su contraparte original. Para colmo, estaba pintado de un naranja tan chillón que resultaba casi irreconocible.
+
+Precisamente por eso, la bestia no lo reconoció como lo que realmente era. Para esta, parecía un edificio lo bastante espacioso y seguro para alojar allí a sus presas. Por supuesto, "alojarlas" significó arrojarlas al interior sin miramientos. Hecho esto, bloqueó la única entrada del granero con un tronco de cartón que había recogido en el camino.
+
+Con esa tarea terminada, la bestia dirigió toda su atencion hacia la villa de Ponyville, que la recibía con sus colores chillones y artificiales.
+
+"Qué rayos es esto..." murmuró, intrigada, tal como las ponis lo habían estado la primera vez que lo vieron.
+
+Había estado en otros "mundos", cada uno con sus propias reglas y características, pero este le resultaba extraño en un sentido personal. Nunca había visitado la verdadera Ponyville, pero había visto suficientes postales turísticas como para reconocerla.
+
+Era la tierra que conocía… convertida en una parodia de sí misma.
+
+"¿Esa maldita cabra sabelotodo tenía razón?" pensó con un escalofrío, avanzando con cautela. "¿Podría ser que mi mundo es en realidad el reflejo de un juego de otro mundo?"
+
+La sola idea le repugnaba. Un sabor amargo le subió a la boca, obligándola a escupir.
+
+"No. Yo soy yo. No puede haber otra versión mía paseando en otro mundo. Si realmente existiera otro yo, sin importar cuán parecida fuera, debería estar aquí conmigo, pasando por el mismo infierno que yo."
+
+De golpe se detuvo y se abofeteó, cubriéndose el rostro con sus enormes garras.
+
+No debía pensar en estupideces. Necesitaba concentrarse en su objetivo: Twilight.
+
+Y sobre ese punto…
+
+"¡Maldita sea! ¡¿Cómo se supone que lo haga?!" rugió para sus adentros, desesperada. Esperaba que en el trayecto hacia la villa se le ocurriera alguna idea brillante, pero nada había llegado. Lo único que tenía a su favor era que dos de las amigas de Twilight estaban capturadas. No era mucha ventaja.
+
+El amuleto que anulaba la magia seguía siendo su mejor carta, pero ahora Twilight contaba con la ayuda de las otras dos ponis: la rosada y la unicornio engreída. Si usaba el amuleto contra la princesa en el momento equivocado y una de ellas intervenía, podría perderlo fácilmente, como ya le había pasado antes a su anterior portador.
+
+"Debo deshacerme primero de esas dos… y entonces solo quedaría la ¿inútil?... ¡Ughhh!" La bestia apretó los dientes. Solo pensar en ese otro obstáculo le hacía hervir la sangre. Quiso arrancarse el espeso pelaje que cubría su cuerpo y revolcarse en el suelo para liberar su rabia.
+
+"¿Cómo escapó esa pegaso inútil? No... más bien, ¿cómo escapó del tren en aquel entonces? ¿Cómo se atreve Fluttershy a seguir respirando el mismo aire que yo?"
+
+Para la bestia, ponis como Fluttershy eran un error que debía ser erradicado. No eran más que un dolor de cabeza para los demás.
+
+"La princesa debe haberle dado alguna herramienta poderosa… sí, eso debe ser. ¡Maldición, por qué tengo que estar en guardia contra alguien así! Grrrrr..."
+
+Tener a Fluttershy como objetivo prioritario era irritante, pero sabía que si lograba deshacerse de ella, solo quedaría la princesa.
+
+La princesa Twilight Sparkle…
+
+"Grrr..." gruñó de nuevo. Debía admitir que Twilight era una princesa en todo el sentido de la palabra, capaz de llevarla al límite una y otra vez. Y aunque podía respetarla por eso...
+
+Jamás la aceptaría como su princesa.
+
+Sigilosa, la bestia se arrastró por el prado que colindaba con la falsa Ponyville. A esa distancia y dado su tamaño, ya debía haber sido vista; sin embargo, nada sucedió. O bien nadie había notado su presencia, o ya la estaban esperando con una trampa.
+
+Lo último era poco probable. Se había dado prisa en llegar. No tan veloz como Rainbow Dash en plenas condiciones, pero sin duda más rápida que un pegaso inferior al promedio como Fluttershy.
+
+"Bien… solo tengo que embestir con todo. Conmoción y oportunidad…" murmuró, observando entre los falsos arbustos. El terreno estaba a su favor: los edificios servirían como cobertura y, además, ya tenía visión directa de la falsa casa del árbol de Twilight. Su instinto le decía que esa era la base de operaciones de las entrometidas ponis.
+
+"Aplastarlas a todas y luego la princesa... ¿No es demasiado?" La bestia dudó por un instante al percibir cómo el zumbido en sus oídos se volvía ensordecedor.
+
+No solo eso. Su respiración era irregular y el estómago le ardía. Al considerar su propia fatiga y las defensas de Twilight, pensó: ¿no sería mejor rendirse?
+
+"Estoy jodida, ¿no? Pero romper el trato ahora no servirá de nada..." se lamentó en silencio.
+
+Con la mirada fija en la casa del árbol, no notó que un pequeño Breezie rosado abandonaba su lomo y desaparecía entre los arbustos cercanos.
+
+Un par de minutos después, la puerta del edificio se abrió a lo lejos, dándole paso a la inevitable confrontación...
 
 [---]
 
