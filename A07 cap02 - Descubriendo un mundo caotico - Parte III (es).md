@@ -428,7 +428,9 @@ Lo último era poco probable. Se había dado prisa en llegar. No tan veloz como 
 
 No solo eso. Su respiración era irregular y el estómago le ardía. Al considerar su propia fatiga y las defensas de Twilight, pensó: ¿no sería mejor rendirse?
 
-"Estoy jodida, ¿no? Pero romper el trato ahora no servirá de nada..." se lamentó en silencio.
+Suspiro resignada.
+
+"Estoy jodida, ¿no? Romper el trato ahora ya no servirá de nada..." se lamentó en silencio.
 
 Con la mirada fija en la casa del árbol, no notó que un pequeño Breezie rosado abandonaba su lomo y desaparecía entre los arbustos cercanos.
 
