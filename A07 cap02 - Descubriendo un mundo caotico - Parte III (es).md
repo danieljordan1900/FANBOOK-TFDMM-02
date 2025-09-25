@@ -392,13 +392,15 @@ La sola idea le repugnaba. Un sabor amargo le subió a la boca, obligándola a e
 
 "No. Yo soy yo. No puede haber otra versión mía paseando en otro mundo. Si realmente existiera otro yo, sin importar cuán parecida fuera, debería estar aquí conmigo, pasando por el mismo infierno que yo."
 
-De golpe se detuvo y se abofeteó, cubriéndose el rostro con sus enormes garras.
+Se detuvo en seco y se abofeteó, cubriéndose el rostro con sus enormes garras.
+
+Un zumbido molesto le golpeaba los oídos mientras su mirada volvía a posarse en la villa que tenía delante.
 
 No debía pensar en estupideces. Necesitaba concentrarse en su objetivo: Twilight.
 
 Y sobre ese punto…
 
-"¡Maldita sea! ¡¿Cómo se supone que lo haga?!" rugió para sus adentros, desesperada. Esperaba que en el trayecto hacia la villa se le ocurriera alguna idea brillante, pero nada había llegado. Lo único que tenía a su favor era que dos de las amigas de Twilight estaban capturadas. No era mucha ventaja.
+"¡Maldita sea! ¡¿Cómo se supone que lo haga?!" rugió para sus adentros, desesperada. Durante el trayecto había esperado que se le ocurriera alguna idea brillante, pero nada había llegado. Lo único que tenía a su favor era que dos de las amigas de Twilight estaban capturadas; no era mucha ventaja.
 
 El amuleto que anulaba la magia seguía siendo su mejor carta, pero ahora Twilight contaba con la ayuda de las otras dos ponis: la rosada y la unicornio engreída. Si usaba el amuleto contra la princesa en el momento equivocado y una de ellas intervenía, podría perderlo fácilmente, como ya le había pasado antes a su anterior portador.
 
@@ -408,25 +410,27 @@ El amuleto que anulaba la magia seguía siendo su mejor carta, pero ahora Twilig
 
 Para la bestia, ponis como Fluttershy eran un error que debía ser erradicado. No eran más que un dolor de cabeza para los demás.
 
-"La princesa debe haberle dado alguna herramienta poderosa… sí, eso debe ser. ¡Maldición, por qué tengo que estar en guardia contra alguien así! Grrrrr..."
+"La princesa debe haberle dado algun item magico poderoso… sí, eso debe ser. Pero ... ¿Un item que solo sirve para escapar? ¡Maldición, por qué tengo que estar en guardia contra alguien así! Grrrrr..."
 
-Tener a Fluttershy como objetivo prioritario era irritante, pero sabía que si lograba deshacerse de ella, solo quedaría la princesa.
+Tener a Fluttershy como objetivo prioritario era irritante, pero sabía que, si lograba deshacerse de ella, solo quedaría la princesa.
 
-La princesa Twilight Sparkle…
+"La princesa Twilight Sparkle…" la bestia gruño nuevamente disipando su ira.
 
-"Grrr..." gruñó de nuevo. Debía admitir que Twilight era una princesa en todo el sentido de la palabra, capaz de llevarla al límite una y otra vez. Y aunque podía respetarla por eso...
+Debía admitir que Twilight era una princesa en todo el sentido de la palabra, una adversaria capaz de llevarla al límite una y otra vez. Y, por eso, se había ganado su respeto.
+
+Pero nada más.
 
 Jamás la aceptaría como su princesa.
 
 Sigilosa, la bestia se arrastró por el prado que colindaba con la falsa Ponyville. A esa distancia y dado su tamaño, ya debía haber sido vista; sin embargo, nada sucedió. O bien nadie había notado su presencia, o ya la estaban esperando con una trampa.
 
-Lo último era poco probable. Se había dado prisa en llegar. No tan veloz como Rainbow Dash en plenas condiciones, pero sin duda más rápida que un pegaso inferior al promedio como Fluttershy.
+Lo último era poco probable. Se había dado prisa en llegar. No tan veloz como Rainbow Dash en plenas condiciones, pero sin duda más rápida que una pegaso por debajo del promedio como Fluttershy.
 
 "Bien… solo tengo que embestir con todo. Conmoción y oportunidad…" murmuró, observando entre los falsos arbustos. El terreno estaba a su favor: los edificios servirían como cobertura y, además, ya tenía visión directa de la falsa casa del árbol de Twilight. Su instinto le decía que esa era la base de operaciones de las entrometidas ponis.
 
 "Aplastarlas a todas y luego la princesa... ¿No es demasiado?" La bestia dudó por un instante al percibir cómo el zumbido en sus oídos se volvía ensordecedor.
 
-No solo eso. Su respiración era irregular y el estómago le ardía. Al considerar su propia fatiga y las defensas de Twilight, pensó: ¿no sería mejor rendirse?
+No solo eso. Su respiración era irregular y el estómago le ardía. Al considerar su propia fatiga y las habilidades defensivas de Twilight, pensó: ¿no sería mejor rendirse?
 
 Suspiro resignada.
 
@@ -434,8 +438,54 @@ Suspiro resignada.
 
 Con la mirada fija en la casa del árbol, no notó que un pequeño Breezie rosado abandonaba su lomo y desaparecía entre los arbustos cercanos.
 
-Un par de minutos después, la puerta del edificio se abrió a lo lejos, dándole paso a la inevitable confrontación...
+Un par de minutos después, la puerta del edificio se abrió a lo lejos, dándole paso a la proxima confrontación...
 
 [---]
 
-A.
+"Ahhh... mi cabeza..." murmuró Applejack, recuperando la conciencia.
+
+"¡Basta de eso, Applejack! ¡Levántate!" reprendió la voz de Rainbow Dash a un lado suyo.
+
+"¡Wow!" El cuerpo de Applejack fue empujado y rodó por el suelo hasta chocar contra una pared.
+
+Al menos eso le pareció a la desorientada poni.
+
+"¡¿Por qué está tan oscuro?!" Al instante, una luz cegadora impactó en sus ojos, confundiéndola aún más.
+
+"Aquí tienes tu luz, ¿feliz? ¡Ahora muerde tus cuerdas, que no lo voy a hacer por ti!" reprendió su amiga pegaso, con una linterna amarrada en la cabeza.
+
+Applejack aún se encontraba atada, por lo que entendió con facilidad lo último, aunque seguía sin comprender todo lo demás.
+
+"Rainbow Dash, ¿qué...?"
+
+"¡¿Vas a morder tus cuerdas o no?!" la interrumpió apremiante la pegaso.
+
+Sin deseos de recibir más reclamos, Applejack comenzó a morder obedientemente las sogas. Mientras tanto, una apresurada Rainbow Dash terminaba de quitarse las suyas. Una vez libre, se plantó firme en el suelo y estiró sus alas. Para sorpresa de la granjera, estas crujieron como madera quebrándose. Daban la impresión de haberse roto en ese mismo instante.
+
+Al notar la consternación de su amiga, Rainbow rió.
+
+"¿Te lo creíste? Esa bola de pelos también lo hizo. Fingir lesiones graves en la escuela de vuelo tiene sus beneficios." Sin más, Rainbow Dash volvió a estirar sus alas, pero esta vez simplemente se desplegaron, mostrando que el estado anterior había sido una dislocación voluntaria.
+
+El haz de luz bailaba dentro del oscurecido granero.
+
+Rainbow agitó con cuidado sus alas en el aire. Se elevó, alcanzó el techo y descendió de nuevo. En el suelo, se puso a hacer flexiones, como si se preparara para una maratón.
+
+"¡Listo!" exclamó Applejack, arrojando las cuerdas a un lado.
+
+"¡Bien! Ahora comencemos la segunda fase del plan."
+
+"¿Cuál plan?"
+
+Un estruendo lejano, como una explosión, sacudió el granero. Applejack se encogió, pero Rainbow Dash solo sonrió con desafío: el plan marchaba demasiado bien...
+
+[---]
+
+Unos minúsculos momentos atrás...
+
+"Encuentra a las otras, huyan, y luego yo me encargo... Encuentra a las otras, huyan, y luego yo me encargo... haa... hahaha..." repetía entre sollozos, casi sin aire, la diminuta Breezie Fluttershy. Las pequeñas lágrimas en sus ojos nublaban su vista, pero el camino en línea recta delante no permitía fallos, así como tampoco el plan que Rainbow Dash le había dado y que estaba decidida a cumplir.
+
+"Encuentra a las otras, huyan, y luego yo me encargo." Ese era el plan. Lo repitió como un mantra una última vez, limpiándose los ojos.
+
+Solo quedaban unos metros más para alcanzar la puerta de la casa del árbol y después...
+
+[---]
