@@ -414,7 +414,7 @@ Para la bestia, ponis como Fluttershy eran un error que debía ser erradicado. N
 
 Tener a Fluttershy como objetivo prioritario era irritante, pero sabía que, si lograba deshacerse de ella, solo quedaría la princesa.
 
-"La princesa Twilight Sparkle…" la bestia gruño nuevamente disipando su ira.
+"La princesa Twilight Sparkle…" gruño nuevamente.
 
 Debía admitir que Twilight era una princesa en todo el sentido de la palabra, una adversaria capaz de llevarla al límite una y otra vez. Y, por eso, se había ganado su respeto.
 
@@ -438,7 +438,7 @@ Suspiro resignada.
 
 Con la mirada fija en la casa del árbol, no notó que un pequeño Breezie rosado abandonaba su lomo y desaparecía entre los arbustos cercanos.
 
-Un par de minutos después, la puerta del edificio se abrió a lo lejos, dándole paso a la proxima confrontación...
+Un par de minutos después, la puerta del edificio se abrió a lo lejos, dándole paso a la inevitable confrontación...
 
 [---]
 
@@ -484,8 +484,30 @@ Unos minúsculos momentos atrás...
 
 "Encuentra a las otras, huyan, y luego yo me encargo... Encuentra a las otras, huyan, y luego yo me encargo... haa... hahaha..." repetía entre sollozos, casi sin aire, la diminuta Breezie Fluttershy. Las pequeñas lágrimas en sus ojos nublaban su vista, pero el camino en línea recta delante no permitía fallos, así como tampoco el plan que Rainbow Dash le había dado y que estaba decidida a cumplir.
 
-"Encuentra a las otras, huyan, y luego yo me encargo." Ese era el plan. Lo repitió como un mantra una última vez, limpiándose los ojos.
+"¡Encuentra a las otras, huyan, y luego yo me encargo!" Ese era el plan. Lo repitió como un mantra una última vez, limpiándose los ojos.
 
 Solo quedaban unos metros más para alcanzar la puerta de la casa del árbol y después...
 
 [---]
+
+"¿Puedo probar un poquitito de la ensalada ...?"
+
+"No", respondio Rarity sentada en un asiento al otro lado de la mesa.
+
+"Por favor" suplico Pinkie Pie, haciendo la carita de un cachorrito hambriento.
+
+"No", reitero Rarity con una mayor firmeza.
+
+"Por favor, por favor, por favor"
+
+"No, no y no!" volvio a repetir la unicornio, aunque estaba vez fue interrumpida por un sorpresivo gruñido, al parecer su propio estomago tenía otra opinión.
+
+"Basta!" exclamo al aire dejando la mesa con un ademan que hizo saltar los cubiertos y encoger Pinkie Pie en su sitio.
+
+Si aquel gesto tan impropio de Rarity no era prueba suficiente de la colera que ya revasaba los límites de la distinguida paciencia de la unicornio, lo que siguio lo expreso mejor.
+
+"¡Como es posible que nos dejen esperando en al mesa de esta forma!¡Sin avisar, sin ningun mensaje previo!¡Puedo entenderlo de Rainbow Dash, tambien de Applejack, pero de Fluttershy no! Esto es inaceptable!"
+
+
+
+
