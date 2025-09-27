@@ -492,22 +492,46 @@ Solo quedaban unos metros más para alcanzar la puerta de la casa del árbol y d
 
 "¿Puedo probar un poquitito de la ensalada ...?"
 
-"No", respondio Rarity sentada en un asiento al otro lado de la mesa.
+"No", respondio Rarity sentada al otro lado de la mesa, no tenia puesto su traje la latex que habia usado toda la mañana.
 
-"Por favor" suplico Pinkie Pie, haciendo la carita de un cachorrito hambriento.
+"Que tal un poco del jugo de limon..."
 
 "No", reitero Rarity con una mayor firmeza.
 
+"Por favor" suplico Pinkie Pie, haciendo la carita de un cachorrito hambriento.
+
+Al otro lado de la mesa llena de deliciosa comida, el rostro de Rarity se agriaba a cada momento.
+
 "Por favor, por favor, por favor"
 
-"No, no y no!" volvio a repetir la unicornio, aunque estaba vez fue interrumpida por un sorpresivo gruñido, al parecer su propio estomago tenía otra opinión.
+"No, no y no!" volvio a repetir la unicornio, aunque estaba vez fue interrumpida por un sorpresivo gruñido, su propio estomago parecia estar del lado de su amiga.
+
+Aquello derramo el vaso, o la copa en este caso.
 
 "Basta!" exclamo al aire dejando la mesa con un ademan que hizo saltar los cubiertos y encoger Pinkie Pie en su sitio.
 
 Si aquel gesto tan impropio de Rarity no era prueba suficiente de la colera que ya revasaba los límites de la distinguida paciencia de la unicornio, lo que siguio lo expreso mejor.
 
-"¡Como es posible que nos dejen esperando en al mesa de esta forma!¡Sin avisar, sin ningun mensaje previo!¡Puedo entenderlo de Rainbow Dash, tambien de Applejack, pero de Fluttershy no! Esto es inaceptable!"
+"¡Como es posible que nos dejen esperando en al mesa del almuerzo de esta forma!¡Despues de todo el esfuerzo que puse en prepararla!" estallo la despechada Rarity, trotando con fuerza en la cocina.
 
+"Tal vez les paso algo ..." añadio Pinkie Pie con inocencia, asomandose de atrás.
 
+De inmediato, la unicornio se dio la vuelta, enfrentado a su amiga con una dura furibunda.
 
+"¡Claro! Pudo pasarles algo o no pudo pasarles nada... ¡el mismo dia en que Rarity descidio preparar el mejor banquete de sus vidas en este horrible mundo de plastico!" exclamo la unicornio a todo pulmón, haciendo que cada palabra suya pareciera derretir a su amiga rosada en su asiento.
 
+De pronto, Rarity se contuvo en seco, lanzo una delicada exhalacion y respiro en calma nuevamente.
+
+"Tal vez..." murmuró Rarity, "Tal vez, tengas razon Pinkie. Algo pudo haberles pasado y esten en problemas. Si, es asi, lo mejor seria ir a buscarlas..."
+
+Como rastrillo pisado equivocadamente, Pinkie Pie se elevo a la vista desde el suelo, con una sonrisa radiante y teniendo cubiertos listos en ambas pezuñas.
+
+"Y despues de encontrarlas, todas comeremos en la mesa como es debido" reafirmo con la unicornio con una aire de determinacion.
+
+"Y la comida..." respondio la otra con una sonrisa congelada.
+
+"¡Puede esperar!" respondio con frialdad Rarity al instante que magicamente se enfundaba nuevamente con su traje de latex y elevaba Pinkie Pie del suelo asegurandose a si que no se lanzarar sobre ningunos de los platos servidos en la mesa.
+
+"La comida! piensa en la comida Rarity!!" exclamo Pinkie en un llanto incontenible, mientras era arrastrada contra su voluntad hasta la salida de la cocina.
+
+De nada sirvieron estos lloriqueos, Rarity continuo su camino hasta la puerta principal de la casa del árbol, donde se detuvo un momento intentando recordar en que direccion se encontraba la nueva casa de Rainbow Dash.
