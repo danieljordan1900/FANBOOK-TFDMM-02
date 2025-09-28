@@ -490,48 +490,36 @@ Solo quedaban unos metros más para alcanzar la puerta de la casa del árbol y d
 
 [---]
 
-"¿Puedo probar un poquitito de la ensalada ...?"
+"¿Puedo probar un poquitito de la ensalada...?"
 
-"No", respondio Rarity sentada al otro lado de la mesa, no tenia puesto su traje la latex que habia usado toda la mañana.
+"No", respondió Rarity desde el otro lado de la mesa.
 
-"Que tal un poco del jugo de limon..."
+"¿Y del jugo de limón...?"
 
-"No", reitero Rarity con una mayor firmeza.
+"No", repitió con firmeza.
 
-"Por favor" suplico Pinkie Pie, haciendo la carita de un cachorrito hambriento.
+"Por faaaavor..." suplicó Pinkie, con la carita de cachorro hambriento.
 
-Al otro lado de la mesa llena de deliciosa comida, el rostro de Rarity se agriaba a cada momento.
+Al otro lado de la mesa repleta de deliciosa comida, el ceño de Rarity se fruncía cada vez más... hasta que, de pronto, su propio estómago gruñó.
 
-"Por favor, por favor, por favor"
+"¡Basta!" exclamó, levantándose de golpe. Los cubiertos tintinearon y Pinkie se encogió en su asiento.
 
-"No, no y no!" volvio a repetir la unicornio, aunque estaba vez fue interrumpida por un sorpresivo gruñido, su propio estomago parecia estar del lado de su amiga.
+"¡¿Cómo es posible que nos dejen esperando después de todo el esfuerzo que puse en esta comida?!" bramó Rarity, paseándose con furia.
 
-Aquello derramo el vaso, o la copa en este caso.
+"Tal vez les pasó algo..." murmuró la inocente Pinkie.
 
-"Basta!" exclamo al aire dejando la mesa con un ademan que hizo saltar los cubiertos y encoger Pinkie Pie en su sitio.
+Rarity se detuvo y se dio la vuelta con una mirada tan feroz que Pinkie casi desapareció de su vista. Parecía a punto de gritar algo. Sin embargo, no lo hizo. Se contuvo, respiró hondo y, en un tono más suave, respondió:
 
-Si aquel gesto tan impropio de Rarity no era prueba suficiente de la colera que ya revasaba los límites de la distinguida paciencia de la unicornio, lo que siguio lo expreso mejor.
+"Quizás tengas razón... si están en problemas, lo mejor es ir a buscarlas."
 
-"¡Como es posible que nos dejen esperando en al mesa del almuerzo de esta forma!¡Despues de todo el esfuerzo que puse en prepararla!" estallo la despechada Rarity, trotando con fuerza en la cocina.
+Pinkie se levantó de inmediato, sonriente, con cubiertos en las pezuñas y un babero en el pecho, lista para darse un festín.
 
-"Tal vez les paso algo ..." añadio Pinkie Pie con inocencia, asomandose de atrás.
+"Y después comeremos todas juntas", afirmó Rarity con determinación.
 
-De inmediato, la unicornio se dio la vuelta, enfrentado a su amiga con una dura furibunda.
+"¿Y la comida...?" preguntó Pinkie con una sonrisa congelada.
 
-"¡Claro! Pudo pasarles algo o no pudo pasarles nada... ¡el mismo dia en que Rarity descidio preparar el mejor banquete de sus vidas en este horrible mundo de plastico!" exclamo la unicornio a todo pulmón, haciendo que cada palabra suya pareciera derretir a su amiga rosada en su asiento.
+"¡Puede esperar!" sentenció la unicornio, envolviéndose de nuevo en su traje de látex y atrapando con su magia a Pinkie en el aire, justo cuando esta intentaba abalanzarse sobre los platos.
 
-De pronto, Rarity se contuvo en seco, lanzo una delicada exhalacion y respiro en calma nuevamente.
+"¡La comida! ¡Piensa en la comida, Rarity!" gritó la rosada, pataleando mientras era arrastrada fuera de la cocina.
 
-"Tal vez..." murmuró Rarity, "Tal vez, tengas razon Pinkie. Algo pudo haberles pasado y esten en problemas. Si, es asi, lo mejor seria ir a buscarlas..."
-
-Como rastrillo pisado equivocadamente, Pinkie Pie se elevo a la vista desde el suelo, con una sonrisa radiante y teniendo cubiertos listos en ambas pezuñas.
-
-"Y despues de encontrarlas, todas comeremos en la mesa como es debido" reafirmo con la unicornio con una aire de determinacion.
-
-"Y la comida..." respondio la otra con una sonrisa congelada.
-
-"¡Puede esperar!" respondio con frialdad Rarity al instante que magicamente se enfundaba nuevamente con su traje de latex y elevaba Pinkie Pie del suelo asegurandose a si que no se lanzarar sobre ningunos de los platos servidos en la mesa.
-
-"La comida! piensa en la comida Rarity!!" exclamo Pinkie en un llanto incontenible, mientras era arrastrada contra su voluntad hasta la salida de la cocina.
-
-De nada sirvieron estos lloriqueos, Rarity continuo su camino hasta la puerta principal de la casa del árbol, donde se detuvo un momento intentando recordar en que direccion se encontraba la nueva casa de Rainbow Dash.
+De nada sirvieron sus lloriqueos. Rarity continuó el camino hasta la puerta principal de la casa del árbol, donde se detuvo un instante, intentando recordar en qué dirección quedaba la nueva casa de Rainbow Dash.
