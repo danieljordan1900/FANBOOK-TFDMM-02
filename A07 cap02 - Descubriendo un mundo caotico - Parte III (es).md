@@ -524,28 +524,46 @@ Pinkie se levantó de inmediato, sonriente, con cubiertos en las pezuñas y un b
 
 De nada sirvieron sus lloriqueos. Rarity continuó el camino hasta la puerta principal de la casa del árbol, donde se detuvo un instante, intentando recordar en qué dirección quedaba la nueva casa de Rainbow Dash.
 
-"Era por ahí... o era por allá..." murmuró Rarity, su mirada indecisa se paseaba por las calles en el exterior. No obstante, su atención se desvió repentinamente por una inesperada mariposa rosada que se avalanzo directamente sobre su cabeza.
+"Era por ahí... o por allá..." murmuró Rarity, con la vista perdida entre las calles vacías.
 
-"Esto... es un Breezie?" exclamo Rarity, sorprendida. Observando a penas al insecto, el cual ahora descansaba sobre su cabeza tras el inperceptible impacto con su frente.
+No llegó a decidirse. Una mariposa rosada descendió en picada y se estrelló contra su frente, obligándola a retroceder con un sobresalto.
 
-"Ehhh... nop, creo que es Fluttershy", respondió Pinkie Pie, que aun levitaba en el aire.
+"¿Un Breezie...?" alcanzó a decir, desconcertada, mientras observaba al diminuto ser que ahora descansaba sobre su cabeza.
 
-Ni bien dijo eso Pinkie, tras un parpadeo de luz, Fluttershy se materializó sobre Rarity. Derribandola, al mismo tiempo que Pinkie tocaba el suelo de espaldas.
+"Ehhh... nop, creo que es Fluttershy", respondió Pinkie Pie, que aún levitaba en el aire.
 
-"¡Ayyy...! Puedes hacerte aun lado", exclamó Rarity, intentando levantarse levantando con su magia a su amiga pegaso y depositandola en el piso.
+Un destello de luz envolvió al aparente Breezie y, en un parpadeo, Fluttershy se materializó sobre Rarity, derribándola al suelo. Pinkie cayó también, rodando hacia atrás.
 
-No obstante la respuesta de Fluttershy fue extraña.
+"¡Agh! ¿Qué... qué sucede? ¡Fluttershy!" exclamó Rarity, apartando con magia a su amiga para incorporarse.
 
-"Waaah... caramelos... bestia... Twilight... huyan..." exclamó Fluttershy agitada, con ojos que parecían rodar en sus cuencas y tono que destilaba locura.
+Pero Fluttershy no respondió de inmediato. Su mirada estaba perdida, sus alas temblaban y sus palabras eran apenas un murmullo entrecortado:
 
-"¿Qué?" exclamo Rarity, confundida.
+"Caramelos... la bestia... Twilight... huyan..."
 
-"Ahh?" asomo Pinkie, tan confundida como Rarity por la conducta de su amiga.
+"¿Qué?" exclamó Rarity, completamente confundida.
 
-"bestia... molino... Twilight... Rainbow Dash... huyan..." repitio.
+"¿Ahh?" se asomó Pinkie, igual de perpleja ante la conducta de su amiga.
 
-Rarity y Pinkie se miraron entre si, no tenien un entendimiento comun de que hacer a continuación, asi que Pinkie tomo la iniciativa dandole un vaso de agua a su confundida amiga (de donde saco el vaso de agua tan rapido, Rarity no lo sabia), el cual Fluttershy bebió al instante.
+"Bestia... molino... Twilight... Rainbow Dash... huyan..." repitió Fluttershy, casi sin aliento.
 
-"La bestia... se aproxima huyan!!!" exclamo, al momento de terminar el vaso de agua.
+Rarity y Pinkie se miraron entre sí, no tenian idea de que hablaba Fluttershy, pero si estaba claro que necesitaba ayuda. De inmediato, Rarity uso su magia para enderezarla, al mismo tiempo que Pinkie Pie iva y volvia con un vaso de agua para ella.
 
-"
+Fluttershy lo bebió de inmediato, pero antes de terminarlo lo escupió y, con un grito desgarrador (tanto como su delicada voz se lo permitía), exclamó:
+
+"¡La bestia, una bestia se aproxima... ¡Huyan!"
+
+"¿Una bestia? ¡Cual bestia!" exclamó consternada Rarity.
+
+"Tal vez sea la que viene embistiendo directamente hacia nosotros ahora mismo!" respondio Pinkie Pie espantada mirando al exterior mas alla de la puerta abierta.
+
+Rarity apenas pudo voltear para ver como una enorme sombra impactaba detras de ellas.
+
+Un instante despues el caos se desato.
+
+Toda la casa del arbol se estremecio, como impactada por un tormenta invisible, se inclino a un lado y finalmente colapso. El estruendo, sorprendente poco escandaloso y mas bien apagado, apenas duro un minuto. Para cuando la mayoria de los escombros se habian asentado en el suelo, un pequeño Breezie emergio de estos, indemne. Posandose sobre los restos de la mesa de la cocina, los cuales ahora se encontraban a cielo abierto al igual que el resto del lugar.
+
+Una luz titilo, y Fluttershy se materializo. A su lado, increiblemente gran parte del banquete preparadao por Rarity aun se encontraba intacto.
+
+El aroma de la deliciosa comida contrastaba con es escena de desastre que ahora la rodeaba.
+
+"¿Rarity? ¿Pinkie?" susurro Fluttershy, casi sin voz.
