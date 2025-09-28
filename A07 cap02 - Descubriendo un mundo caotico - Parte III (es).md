@@ -523,3 +523,29 @@ Pinkie se levantó de inmediato, sonriente, con cubiertos en las pezuñas y un b
 "¡La comida! ¡Piensa en la comida, Rarity!" gritó la rosada, pataleando mientras era arrastrada fuera de la cocina.
 
 De nada sirvieron sus lloriqueos. Rarity continuó el camino hasta la puerta principal de la casa del árbol, donde se detuvo un instante, intentando recordar en qué dirección quedaba la nueva casa de Rainbow Dash.
+
+"Era por ahí... o era por allá..." murmuró Rarity, su mirada indecisa se paseaba por las calles en el exterior. No obstante, su atención se desvió repentinamente por una inesperada mariposa rosada que se avalanzo directamente sobre su cabeza.
+
+"Esto... es un Breezie?" exclamo Rarity, sorprendida. Observando a penas al insecto, el cual ahora descansaba sobre su cabeza tras el inperceptible impacto con su frente.
+
+"Ehhh... nop, creo que es Fluttershy", respondió Pinkie Pie, que aun levitaba en el aire.
+
+Ni bien dijo eso Pinkie, tras un parpadeo de luz, Fluttershy se materializó sobre Rarity. Derribandola, al mismo tiempo que Pinkie tocaba el suelo de espaldas.
+
+"¡Ayyy...! Puedes hacerte aun lado", exclamó Rarity, intentando levantarse levantando con su magia a su amiga pegaso y depositandola en el piso.
+
+No obstante la respuesta de Fluttershy fue extraña.
+
+"Waaah... caramelos... bestia... Twilight... huyan..." exclamó Fluttershy agitada, con ojos que parecían rodar en sus cuencas y tono que destilaba locura.
+
+"¿Qué?" exclamo Rarity, confundida.
+
+"Ahh?" asomo Pinkie, tan confundida como Rarity por la conducta de su amiga.
+
+"bestia... molino... Twilight... Rainbow Dash... huyan..." repitio.
+
+Rarity y Pinkie se miraron entre si, no tenien un entendimiento comun de que hacer a continuación, asi que Pinkie tomo la iniciativa dandole un vaso de agua a su confundida amiga (de donde saco el vaso de agua tan rapido, Rarity no lo sabia), el cual Fluttershy bebió al instante.
+
+"La bestia... se aproxima huyan!!!" exclamo, al momento de terminar el vaso de agua.
+
+"
