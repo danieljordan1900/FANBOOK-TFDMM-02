@@ -548,77 +548,73 @@ Pero Fluttershy no respondió de inmediato. Su mirada estaba perdida, sus alas t
 
 Rarity y Pinkie se miraron entre sí, no tenian idea de que hablaba Fluttershy, pero si estaba claro que necesitaba ayuda. De inmediato, Rarity uso su magia para enderezarla, al mismo tiempo que Pinkie Pie iva y volvia con un vaso de agua para ella.
 
-Fluttershy lo bebió de inmediato, pero antes de terminarlo lo escupió y, con un grito desgarrador (tanto como su delicada voz se lo permitía), exclamó:
+Fluttershy lo bebió de inmediato, pero antes de terminarlo lo escupió y, con un grito desgarrador —tanto como su delicada voz se lo permitía— exclamó:
 
-"¡La bestia, una bestia se aproxima... ¡Huyan!"
+"¡La bestia... una bestia se aproxima! ¡Huyan!"
 
-"¿Una bestia? ¡Cual bestia!" exclamó consternada Rarity.
+"¿Una bestia? ¿Cuál bestia?" exclamó Rarity, consternada.
 
-"Tal vez sea la que viene embistiendo directamente hacia nosotros ahora mismo!" respondio Pinkie Pie espantada mirando al exterior mas alla de la puerta abierta.
+"¡Tal vez es la que viene embistiendo directamente hacia nosotras ahora mismo!" respondió Pinkie Pie, espantada, mirando hacia la puerta abierta.
 
-Rarity apenas pudo voltear para ver como una enorme sombra impactaba detras de ellas.
+Rarity apenas tuvo tiempo de voltear cuando una enorme sombra se precipitó detrás de ellas.
 
-Un instante despues el caos se desato.
+Un instante después, el caos se desató.
 
-Toda la casa del arbol se estremecio, como impactada por un tormenta invisible, se inclino a un lado y finalmente colapso. El estruendo, sorprendente apagado, apenas duro un minuto. Para cuando la mayoria de los escombros se habian asentado en el suelo, una pequeña Breezie emergio de estos, indemne. Posandose sobre los restos de la mesa de la cocina, los cuales ahora se encontraban a cielo abierto al igual que el resto del lugar.
+Toda la casa del árbol se estremeció, como azotada por una tormenta invisible, se inclinó de lado y finalmente colapsó. El estruendo, sorprendentemente apagado, apenas duró un minuto. Para cuando la mayoría de los escombros se habían asentado, una diminuta Breezie emergió indemne, posándose sobre lo que quedaba de la mesa de la cocina, ahora expuesta a cielo abierto junto al resto del lugar.
 
-Una luz titilo, y Fluttershy se materializo nuevamente. A su lado, increiblemente gran parte del banquete preparadao por Rarity aun se encontraba intacto.
+Una luz titiló, y Fluttershy recuperó su forma original. Increíblemente, gran parte del banquete preparado por Rarity seguía intacto a su lado.
 
-El aroma de la deliciosa comida contrastaba con la escena de desoladora que ahora la rodeaba.
+El aroma de la comida contrastaba con la desoladora escena que la rodeaba.
 
-"¿Rarity? ¿Pinkie?" susurro Fluttershy, casi sin voz atonita ante la destruccion.
+"¿Rarity? ¿Pinkie?" susurró Fluttershy, apenas con voz, atónita ante la destrucción.
 
-"Vaya... supongo que ese debe ser uno de los regalos de tu princesa" dijo una voz grave detras suyo.
+"Vaya... supongo que ese debe ser uno de los regalos de tu princesa", dijo una voz grave detrás suyo.
 
-Fluttershy se dio vuelta, solo para caer de espaldas ante la imponente figura detras de ella.
+Fluttershy giró y, asustada, cayó de espaldas ante la imponente figura.
 
-Totalmente visible a la luz de ese mundo. La bestia se encontraba ahí erguida en sus mas de tres metros de altura. La inmensa criatura de cuernos y piel peluda, se asemejaba a la mezcla caricaturesca entre un oso regordete y un wolverine. Su boca, tan ancha como lo permitia su rostro, estaba plagada de afilados dientes. Cuyos amenazantes brillos eran opacados por el fulgor de sus inmensos ojos negros entre los cuales descansaba una ridicula nariz cafe. El resto de su cuerpo estaba cubierto de pelaje blanco y gris, tanto mas uno que el otro, suponiendo que el gris no hubiera sido antes blanco. Tenia garras negras, al final de cada una de sus extremidades, y tambien contaba una notable cola, de tenue color blanco y rojizo que delataban la pigmentacion de su propia espalda.
+A plena luz, la bestia se mostraba erguida en sus más de tres metros de altura. Cornuda y de cuerpo peludo, se asemejaba a una caricaturesca mezcla entre un oso robusto y un wolverine. Su boca, tan ancha como lo permitía su rostro, estaba plagada de afilados dientes cuyos reflejos quedaban eclipsados por el fulgor de sus ojos negros, dominantes y hostiles. Bajo ellos, una ridícula nariz marrón desentonaba con la ferocidad que exhibia. Su pelaje blanco y gris cubría todo el cuerpo, salpicado por tonos rojizos en la cola que recordaban la intensa pigmentación de su espalda.
 
-Era un ser peligroso, asi le gritaban todos sus sentidos a la pegaso.
+Era un ser peligroso; todos los sentidos de Fluttershy se lo gritaban.
 
-"Vaya no pense que mi aspecto actual te chocara tanto, creia que estaba acostumbrada a lidiar con bestia, no es asi?"
+"Vaya, no pensé que mi aspecto actual te chocara tanto. Creí que estabas acostumbrada a tratar con bestias... ¿no es así?"
 
-Las palabras de burla de la bestia que hacian eco en el ambiente eran ciertas. Fluttershy en su larga experiencia, habia lidiado con entidades mas amenazantes que la criatura delante suyo. Sin embargo, nada de eso era el motivo por el cual la pegaso retrocedia tan alterada.
+La burla resonó en el aire. Pero había verdad en esas palabras. Fluttershy, en su larga experiencia, había lidiado con entidades más amenazantes que la criatura frente a ella. Sin embargo, nada de eso era el motivo por el cual retrocedía tan alterada.
 
-Eran esos ojos brillantes, que formaban parte de su mirada, la que la hacian retroceder.
+Eran esos ojos brillantes los que la hacían retroceder.
 
-No habia ninguna inocencia en esos ojos, no reflejaban la luz de un ser salvaje e incomprendido al cual podria conocer, sino el brillo de una presencia pensante y profunda de la cual debia huir por el intenso odio que la poseia.
+No exhibian inocencia, no reflejaban la luz de un ser salvaje e incomprendido al que pudiera llegar a empatizar, sino la fosforescencia de una mente maquinadora y cerrada, cargada de un odio que exigía huir.
 
-"Ya veo... supongo que en el fondo realmente no eres capaz de lidiar con seres como yo. Diria que estoy muy descepcionada, pero seria mucha honestidad de mi parte, asi que dejemoslo hasta aqui, te parece querida?"
+"Ya veo... supongo que, en el fondo, no eres capaz de lidiar con seres como yo. Podría decir que estoy decepcionada, pero sería demasiada honestidad de mi parte. Dejémoslo hasta aquí, ¿te parece, querida?"
 
-Sin mas, la bestia dio un paso adelante, Fluttershy retrocedio seis.
+La bestia avanzó un paso; Fluttershy retrocedió seis.
 
-"Ho no no, no huyas por favor, creo que eres mas razonable que las otras. Permiteme explicarte..."
+"Oh, no, no huyas. Creo que eres más razonable que las otras. Permíteme explicarte..."
 
-La bestia, que habia tenido hasta entonces sus brazos caidos los levanto, extendiendo las palmas de sus inmensas manos hacia Fluttershy, como un niño travieso que mostraba a su madre alguna inoportuna sorpresa.
+Alzó sus corpulentos brazos, mostrando las palmas como un niño travieso. Entre sus garras descansaban Rarity y Pinkie Pie, inconscientes pero ilesas.
 
-Fluttershy, abrio mucho los ojos, al encontrarse entre las garras de la criatura sus dos amigas, Rarity y Pinkie Pie, a salvo pero inconscientes.
+"¿Ves? No les he hecho nada, aun. Así que podemos hablar tranquilas, como amigas. Solo necesito un poco de tu atención y tu tiempo, ¿qué dices?"
 
-"Y bien? que te parece. No les hecho nada. Asi que podemos hablar tranquilas como amigas, se que la situacion es muy incomoda para ti, pero solo necesito un poco de tu atencion y tu tiempo. Te parece?"
+La bestia volvió a avanzar, acortando distancias. Fluttershy retrocedió hasta chocar con una pared de escombros que le cerró el escape.
 
-La bestia volvia a dar un paso, Fluttershy desesperada, intento retroceder, pero solo se encontro con una pared solida en su espalda que le negaba el escape.
+"Bien, no tienes que hablar. Solo asiente cuando pregunte. Ya sé que Twilight no está aquí; de lo contrario, nada habría sido tan fácil. Así que dime... ¿sabes dónde está?"
 
-"Bien, bien no tienes porque hablar, solo necesito que asientes cuando te pregunte. Ya se que Twilight no esta aqui. De otra forma no se explica lo facil que ha resultado todo esto. Asi que contestame, ¿sabes donde esta?"
+Fluttershy no respondió. La bestia dio otro paso, aplastando lo que quedaba del banquete de Rarity. La comida, preparada con tanto esmero para reunirlas, quedó reducida a una masa repulsiva bajo sus pies.
 
-Fluttershy no contesto. La bestia dio un paso mas, esta vez aplastando por completo todo lo que quedaba del banquete de Rarity, el cual habia preparado para todas ellas cuando regresaran de su paseo.
+Ese fue el quiebre.
 
-Aquella comida preparada con tanto amor... ahora solo era una mancha repulsiva bajo los pies infames de la bestia.
+Con los ojos clavados en aquella imagen, la desesperación inundó el corazón noble de Fluttershy... acorralando su espíritu. Y entonces, en respuesta, otra emoción emergió. Un sentimiento que solo sus amigas más cercanas conocían.
 
-Ese fue el momento de quiebre.
+"Contesta, Fluttershy. ¿Dónde está Twilight?" insistió la bestia, presionando suavemente las cabezas de Rarity y Pinkie entre sus garras.
 
-Con los ojos clavados en esta imagen, la desesperacion inundo por completo el corazon noble de la pegaso. Y entonces algo mas, surgio en su lugar.
+Fluttershy mantuvo la cabeza gacha... hasta que, lentamente, la alzó para encontrar la mirada de la criatura.
 
-Un sentimiento que solo sus amigas mas intimas conocian de ella.
+La bestia se congeló al instante.
 
-"Contesta, Fluttershy, ¿donde esta Twilight?" insistio la bestia ahora presionando suavemente la cabeza de sus amigas con sus garras.
+"Encuentra a las otras... huyan..." murmuró.
 
-Nuevamente no hubo respuesta. Fluttershy, con la cabeza agachada, lentamente la levanto. Y su mirada se encontro con la de la bestia.
+"¿Eh?"
 
-"Encuentra a las otras..." murmuro.
-
-"Ha?"
-
-Eso fue todo. La conversacion termino ahi.
+Eso fue todo. La conversación terminó ahí.
 
 [---]
 
