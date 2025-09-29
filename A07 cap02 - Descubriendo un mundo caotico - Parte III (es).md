@@ -2,15 +2,15 @@
 
 En el interior del molino en la cima de la colina AutumnBreeze...
 
-Las voces a su alrededor se intensificaban. Sus sentidos, nublados desde el momento en que fue capturada, comenzaban por fin a reaccionar.
+Los sonidos a su alrededor se intensificaban. Sus sentidos nublados empezaban por fin a reaccionar.
 
-Fluttershy, inconsciente hasta hacía apenas unos segundos, abrió lentamente los ojos dentro de su hermético traje de látex.
+Fluttershy, inconsciente hasta hacía apenas unos segundos, abrió lentamente los ojos dentro de su hermético traje de látex. Todo estaba oscuro. No podía ver nada, algo lógico considerando lo que llevaba puesto. Pero eso no era todo: lo que percibió a continuación la invadió de inquietud al instante.
 
-Todo estaba oscuro. No podía ver nada, algo lógico considerando lo que llevaba puesto. Pero eso no era todo: lo que percibió a continuación la invadió de inquietud al instante. No podía mover su cuerpo con libertad.
+No podía mover su cuerpo con libertad.
 
 "¿Qué ha pasado?" murmuró en voz apenas audible, agitándose en vano.
 
-Las voces a su alrededor, difusas al principio, comenzaron a definirse poco a poco. No tardó en comprender que una conversación, nada amistosa por el tono, se desarrollaba muy cerca de ella.
+Las voces difusas a su alrededor comenzaron a definirse. No tardó en comprender que una conversación, nada amistosa por el tono, se desarrollaba muy cerca de ella.
 
 "¿Applejack? ¿Rainbow Dash?" volvió a susurrar, con un hilo de esperanza.
 
@@ -36,7 +36,7 @@ Finalmente, el silencio se quebró de golpe. Las palabras que llegaron a sus oí
 
 "¡¿Qué hago?! ¡¿Qué hago?! ¡Twilight, qué debería hacer?!" rogó en un susurro desesperado, con lágrimas formándose dentro de su casco.
 
-Fue entonces cuando, como si una chispa encendiera su mente, que Fluttershy recordó algo. Algo que Twilight le había dicho mucho tiempo atrás.
+Fue entonces cuando, como si una chispa encendiera su mente, que Fluttershy recordó algo. Algo que Twilight le había dicho mucho tiempo atrás, sobre el mágico regalo que una reina le había dado.
 
 La respuesta era clara. Sabía lo que debía hacer.
 
@@ -56,7 +56,7 @@ Frente a ella, meciéndose sin viento, tres bolsas de malla colgaban del techo. 
 
 "...por eso necesito que me lleven con ella. Se los suplico..."
 
-La bestia terminó su discurso, que había comenzado minutos atrás con un tono amenazante y ahora concluía casi quebrada por la desesperación.
+La bestia terminó su discurso. Su voz, que había comenzado como un rugido amenazante, ahora temblaba al borde del quiebre, reflejando asi su desesperación.
 
 O al menos, eso aparentaba.
 
@@ -86,7 +86,7 @@ La bestia permaneció inmóvil unos segundos, reprimiendo la respuesta inmediata
 
 "¿Y no lo estamos ya?" replicó Rainbow Dash con sarcasmo, pero fue ignorada.
 
-"Ya estan a salvo, no tienen que preocuparse por eso. Solo díganme dónde está la princesa Twilight."
+"Ya están a salvo, no tienen que preocuparse por eso. Solo díganme dónde está la princesa Twilight."
 
 Rainbow Dash rodó los ojos, exasperada, y volvió la mirada a su amiga, que se había mantenido en silencio casi todo el tiempo.
 
@@ -392,7 +392,7 @@ La sola idea le repugnaba. Un sabor amargo le subió a la boca, obligándola a e
 
 "No. Yo soy yo. No puede haber otra versión mía paseando en otro mundo. Si realmente existiera otro yo, sin importar cuán parecida fuera, debería estar aquí conmigo, pasando por el mismo infierno que yo."
 
-Se detuvo en seco y se abofeteó, cubriéndose el rostro con sus enormes garras.
+La bestia dio unos pasos mas, y entonces, se detuvo en seco y se abofeteó, cubriéndose el rostro con sus enormes garras.
 
 Un zumbido molesto le golpeaba los oídos mientras su mirada volvía a posarse en la villa que tenía delante.
 
@@ -400,7 +400,9 @@ No debía pensar en estupideces. Necesitaba concentrarse en su objetivo: Twiligh
 
 Y sobre ese punto…
 
-"¡Maldita sea! ¡¿Cómo se supone que lo haga?!" rugió para sus adentros, desesperada. Durante el trayecto había esperado que se le ocurriera alguna idea brillante, pero nada había llegado. Lo único que tenía a su favor era que dos de las amigas de Twilight estaban capturadas; no era mucha ventaja.
+"¡Maldita sea! ¡¿Cómo se supone que lo haga?!" rugió para sus adentros, desesperada.
+
+Durante el trayecto había esperado que se le ocurriera alguna idea brillante, pero nada había llegado. Lo único que tenía a su favor era que dos de las amigas de Twilight estaban capturadas; no era mucha ventaja.
 
 El amuleto que anulaba la magia seguía siendo su mejor carta, pero ahora Twilight contaba con la ayuda de las otras dos ponis: la rosada y la unicornio engreída. Si usaba el amuleto contra la princesa en el momento equivocado y una de ellas intervenía, podría perderlo fácilmente, como ya le había pasado antes a su anterior portador.
 
@@ -480,9 +482,9 @@ Un estruendo lejano, como una explosión, sacudió el granero. Applejack se enco
 
 [---]
 
-Unos minúsculos momentos atrás...
+Unos minúsculos momentos atrás, antes que Applejack se enterase del plan...
 
-"Encuentra a las otras, huyan, y luego yo me encargo... Encuentra a las otras, huyan, y luego yo me encargo... haa... hahaha..." repetía entre sollozos, casi sin aire, la diminuta Breezie Fluttershy. Las pequeñas lágrimas en sus ojos nublaban su vista, pero el camino en línea recta delante no permitía fallos, así como tampoco el plan que Rainbow Dash le había dado y que estaba decidida a cumplir.
+"Encuentra a las otras, huyan, y luego yo me encargo... Encuentra a las otras, huyan, y luego yo me encargo... haa... haaaa..." repetía entre sollozos y jadeos, casi sin aire, la diminuta Breezie Fluttershy. Las pequeñas lágrimas en sus ojos nublaban su vista, pero el camino en línea recta delante no permitía fallos, así como tampoco el plan que Rainbow Dash le había dado y que estaba decidida a cumplir.
 
 "¡Encuentra a las otras, huyan, y luego yo me encargo!" Ese era el plan. Lo repitió como un mantra una última vez, limpiándose los ojos.
 
@@ -546,7 +548,7 @@ Pero Fluttershy no respondió de inmediato. Su mirada estaba perdida, sus alas t
 
 "Bestia... molino... Twilight... Rainbow Dash... huyan..." repitió Fluttershy, casi sin aliento.
 
-Rarity y Pinkie se miraron entre sí, no tenian idea de que hablaba Fluttershy, pero si estaba claro que necesitaba ayuda. De inmediato, Rarity uso su magia para enderezarla, al mismo tiempo que Pinkie Pie iva y volvia con un vaso de agua para ella.
+Rarity y Pinkie se miraron entre sí, no tenían idea de que hablaba Fluttershy, pero si estaba claro que necesitaba ayuda. De inmediato, Rarity uso su magia para enderezarla, al mismo tiempo que Pinkie Pie iba y volvía con un vaso de agua para ella.
 
 Fluttershy lo bebió de inmediato, pero antes de terminarlo lo escupió y, con un grito desgarrador —tanto como su delicada voz se lo permitía— exclamó:
 
@@ -596,7 +598,7 @@ Alzó sus corpulentos brazos, mostrando las palmas como un niño travieso. Entre
 
 La bestia volvió a avanzar, acortando distancias. Fluttershy retrocedió hasta chocar con una pared de escombros que le cerró el escape.
 
-"Bien, no tienes que hablar. Solo asiente cuando pregunte. Ya sé que Twilight no está aquí; de lo contrario, nada habría sido tan fácil. Así que dime... ¿sabes dónde está?"
+"Bien, no tienes que hablar. Solo asiente cuando pregunte. Twilight no está aquí, lo sé, de lo contrario, ya me habría detenido. Así que dime... ¿sabes dónde está?"
 
 Fluttershy no respondió. La bestia dio otro paso, aplastando lo que quedaba del banquete de Rarity. La comida, preparada con tanto esmero para reunirlas, quedó reducida a una masa repulsiva bajo sus pies.
 
@@ -618,4 +620,6 @@ Eso fue todo. La conversación terminó ahí.
 
 [---]
 
-A.
+"PUMMMMMMMFFFFF"
+
+
