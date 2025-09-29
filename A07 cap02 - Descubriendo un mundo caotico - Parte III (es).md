@@ -4,7 +4,7 @@ En el interior del molino en la cima de la colina AutumnBreeze...
 
 Los sonidos a su alrededor se intensificaban. Sus sentidos nublados empezaban por fin a reaccionar.
 
-Fluttershy, inconsciente hasta hacía apenas unos segundos, abrió lentamente los ojos dentro de su hermético traje de látex. Todo estaba oscuro. No podía ver nada, algo lógico considerando lo que llevaba puesto. Pero eso no era todo: lo que percibió a continuación la invadió de inquietud al instante.
+Fluttershy, inconsciente hasta hacía apenas unos segundos, abrió lentamente los ojos. Todo estaba oscuro. No podía ver nada, algo lógico considerando el hermético casco de látex que llevaba puesto. Pero eso no era todo: lo que percibió a continuación la invadió de inquietud al instante.
 
 No podía mover su cuerpo con libertad.
 
@@ -30,7 +30,7 @@ Peligro.
 
 Su instinto de supervivencia gritó dentro de ella. Algo muy malo estaba a punto de suceder.
 
-Segundos pasaron. Y la tensión no paro de crecer en la pegaso, casi cortandole el aliento.
+Segundos pasaron. Y la tensión no paró de crecer en la pegaso, casi cortándole el aliento.
 
 Finalmente, el silencio se quebró de golpe. Las palabras que llegaron a sus oídos confirmaron sus peores temores.
 
@@ -56,7 +56,7 @@ Frente a ella, meciéndose sin viento, tres bolsas de malla colgaban del techo. 
 
 "...por eso necesito que me lleven con ella. Se los suplico..."
 
-La bestia terminó su discurso. Su voz, que había comenzado como un rugido amenazante, ahora temblaba al borde del quiebre, reflejando asi su desesperación.
+La bestia terminó su discurso. Su voz, que había comenzado como un rugido amenazante, ahora temblaba al borde del quiebre, reflejando así su desesperación.
 
 O al menos, eso aparentaba.
 
@@ -200,7 +200,7 @@ La garra de la bestia se extendió de nuevo, aún más rápido que antes, esta v
 
 En un parpadeo, alcanzó la bolsa donde estaba Fluttershy y, sin el menor esfuerzo ni resistencia de su víctima, la aplastó.
 
-Lo primero que se escuchó fue un golpe sordo, seguido del crujir de las cuerdas. Este último se repitió con angustiosa claridad, una y otra vez, acompañado por un silbido casi imperceptible, similar al que haría un cuerpo desinflandose...
+Lo primero que se escuchó fue un golpe sordo, seguido del crujir de las cuerdas. Este último se repitió con angustiosa claridad, una y otra vez, acompañado por un silbido casi imperceptible, similar al que haría un cuerpo desinflándose...
 
 Applejack y Rainbow Dash, atónitas ante la brutalidad de aquel acto, quedaron inmóviles, y así habrían permanecido por mucho más tiempo de no ser por lo que ocurrió después.
 
@@ -232,7 +232,7 @@ La bestia, por su parte, empezaba a comprender la magnitud del desastre. "¿Flut
 
 Applejack la observó, confundida por la mención de Twilight, hasta que Rainbow le guiñó un ojo de manera cómplice.
 
-La granjera parpadeo y al instante siguiente comprendió la intención de su amiga, luego añadió con firmeza: "¡Claro que sí! Twilight vendrá a rescatarnos y te dará tu merecido. ¡Incluso Badwhiz se unirá esta vez!"
+La granjera parpadeó y al instante siguiente comprendió la intención de su amiga, luego añadió con firmeza: "¡Claro que sí! Twilight vendrá a rescatarnos y te dará tu merecido. ¡Incluso Badwhiz se unirá esta vez!"
 
 El rostro de la bestia se contrajo de ira.
 
@@ -332,7 +332,7 @@ Rainbow Dash escupió a la pequeña Fluttershy, que, cubierta de babas, parecía
 
 "Auu... ¿qué fue eso?" protestó la diminuta pony.
 
-"¡No es momento para explicaciones!" gruñó Rainbow Dash en un susurro furioso. "¡¿Por qué rayos no estas con las otras advertirles de lo que está pasando?!"
+"¡No es momento para explicaciones!" gruñó Rainbow Dash en un susurro furioso. "¡¿Por qué rayos no estás con las otras para advertirles de lo que está pasando?!"
 
 La Fluttershy Breezie agitó la cabeza para reaccionar y respondió: "No... no pude. No sé cómo llegar."
 
@@ -378,7 +378,7 @@ El gran granero de la familia Apple estaba a solo unos minutos de Ponyville. En 
 
 Precisamente por eso, la bestia no lo reconoció como lo que realmente era. Para esta, parecía un edificio lo bastante espacioso y seguro para alojar allí a sus presas. Por supuesto, "alojarlas" significó arrojarlas al interior sin miramientos. Hecho esto, bloqueó la única entrada del granero con un tronco de cartón que había recogido en el camino.
 
-Con esa tarea terminada, la bestia dirigió toda su atencion hacia la villa de Ponyville, que la recibía con sus colores chillones y artificiales.
+Con esa tarea terminada, la bestia dirigió toda su atención hacia la villa de Ponyville, que la recibía con sus colores chillones y artificiales.
 
 "Qué rayos es esto..." murmuró, intrigada, tal como las ponis lo habían estado la primera vez que lo vieron.
 
@@ -392,7 +392,7 @@ La sola idea le repugnaba. Un sabor amargo le subió a la boca, obligándola a e
 
 "No. Yo soy yo. No puede haber otra versión mía paseando en otro mundo. Si realmente existiera otro yo, sin importar cuán parecida fuera, debería estar aquí conmigo, pasando por el mismo infierno que yo."
 
-La bestia dio unos pasos mas, y entonces, se detuvo en seco y se abofeteó, cubriéndose el rostro con sus enormes garras.
+La bestia dio unos pasos más, y entonces, se detuvo en seco y se abofeteó, cubriéndose el rostro con sus enormes garras.
 
 Un zumbido molesto le golpeaba los oídos mientras su mirada volvía a posarse en la villa que tenía delante.
 
@@ -412,11 +412,11 @@ El amuleto que anulaba la magia seguía siendo su mejor carta, pero ahora Twilig
 
 Para la bestia, ponis como Fluttershy eran un error que debía ser erradicado. No eran más que un dolor de cabeza para los demás.
 
-"La princesa debe haberle dado algun item magico poderoso… sí, eso debe ser. Pero ... ¿Un item que solo sirve para escapar? ¡Maldición, por qué tengo que estar en guardia contra alguien así! Grrrrr..."
+"La princesa debe haberle dado algún ítem mágico poderoso… sí, eso debe ser. Pero ... ¿Un item que solo sirve para escapar? ¡Maldición, por qué tengo que estar en guardia contra alguien así! Grrrrr..."
 
 Tener a Fluttershy como objetivo prioritario era irritante, pero sabía que, si lograba deshacerse de ella, solo quedaría la princesa.
 
-"La princesa Twilight Sparkle…" gruño nuevamente.
+"La princesa Twilight Sparkle…" gruñó nuevamente.
 
 Debía admitir que Twilight era una princesa en todo el sentido de la palabra, una adversaria capaz de llevarla al límite una y otra vez. Y, por eso, se había ganado su respeto.
 
@@ -448,7 +448,7 @@ Un par de minutos después, la puerta del edificio se abrió a lo lejos, dándol
 
 "¡Basta de eso, Applejack! ¡Levántate!" reprendió la voz de Rainbow Dash a un lado suyo.
 
-"¡Wow!" El cuerpo de Applejack fue empujado y rodó por el suelo hasta chocar contra una pared.
+"¡Wow!" empujada por su amiga, Applejack rodó hasta chocar contra una pared.
 
 Al menos eso le pareció a la desorientada poni.
 
@@ -548,7 +548,7 @@ Pero Fluttershy no respondió de inmediato. Su mirada estaba perdida, sus alas t
 
 "Bestia... molino... Twilight... Rainbow Dash... huyan..." repitió Fluttershy, casi sin aliento.
 
-Rarity y Pinkie se miraron entre sí, no tenían idea de que hablaba Fluttershy, pero si estaba claro que necesitaba ayuda. De inmediato, Rarity uso su magia para enderezarla, al mismo tiempo que Pinkie Pie iba y volvía con un vaso de agua para ella.
+Rarity y Pinkie se miraron entre sí, no tenían idea de qué hablaba Fluttershy, pero sí estaba claro que necesitaba ayuda. De inmediato, Rarity usó su magia para enderezarla, al mismo tiempo que Pinkie Pie iba y volvía con un vaso de agua para ella.
 
 Fluttershy lo bebió de inmediato, pero antes de terminarlo lo escupió y, con un grito desgarrador —tanto como su delicada voz se lo permitía— exclamó:
 
@@ -606,7 +606,7 @@ Ese fue el quiebre.
 
 Con los ojos clavados en aquella imagen, la desesperación inundó el corazón noble de Fluttershy... acorralando su espíritu. Y entonces, en respuesta, algo más emergió. Un sentimiento que solo sus amigas más cercanas conocían.
 
-"Contesta, Fluttershy. ¿Dónde está Twilight?" insistió la bestia, presionando suavemente las cabezas de Rarity y Pinkie entre sus garras.
+"Contesta, Fluttershy. ¿Dónde está Twilight?" insistió la bestia con un tono apremiante, presionando suavemente las cabezas de Rarity y Pinkie entre sus garras.
 
 Fluttershy mantuvo la cabeza gacha... hasta que, lentamente, la alzó para encontrar la mirada de la criatura.
 
