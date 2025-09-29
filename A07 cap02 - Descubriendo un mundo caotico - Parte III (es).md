@@ -572,7 +572,7 @@ El aroma de la comida contrastaba con la desoladora escena que la rodeaba.
 
 Fluttershy giró y, asustada, cayó de espaldas ante la imponente figura.
 
-A plena luz, la bestia se mostraba erguida en sus más de tres metros de altura. Cornuda y de cuerpo peludo, se asemejaba a una caricaturesca mezcla entre un oso robusto y un wolverine. Su boca, tan ancha como lo permitía su rostro, estaba plagada de afilados dientes cuyos reflejos quedaban eclipsados por el fulgor de sus ojos negros, dominantes y hostiles. Bajo ellos, una ridícula nariz marrón desentonaba con la ferocidad que exhibia. Su pelaje blanco y gris cubría todo el cuerpo, salpicado por tonos rojizos en la cola que recordaban la intensa pigmentación de su espalda.
+A plena luz, la bestia se mostraba erguida en sus más de tres metros de altura. Cornuda y de cuerpo peludo, se asemejaba a una caricaturesca mezcla entre un oso robusto y un wolverine. Su boca, tan ancha como lo permitía su rostro, estaba plagada de afilados dientes cuyos reflejos quedaban eclipsados por el fulgor de sus ojos negros, dominantes y hostiles. Bajo ellos, una ridícula nariz marrón desentonaba con la ferocidad mostrada. Su pelaje blanco y gris cubría todo el cuerpo, salpicado por tonos rojizos en la cola que recordaban la intensa pigmentación de su espalda.
 
 Era un ser peligroso; todos los sentidos de Fluttershy se lo gritaban.
 
@@ -582,7 +582,7 @@ La burla resonó en el aire. Pero había verdad en esas palabras. Fluttershy, en
 
 Eran esos ojos brillantes los que la hacían retroceder.
 
-No exhibian inocencia, no reflejaban la luz de un ser salvaje e incomprendido al que pudiera llegar a empatizar, sino la fosforescencia de una mente maquinadora y cerrada, cargada de un odio que exigía huir.
+No exhibían inocencia, no reflejaban la luz de un ser salvaje e incomprendido al que pudiera llegar a empatizar. Solo la fosforescencia de una mente maquinadora, cerrada y cargada de un odio que exigía huir.
 
 "Ya veo... supongo que, en el fondo, no eres capaz de lidiar con seres como yo. Podría decir que estoy decepcionada, pero sería demasiada honestidad de mi parte. Dejémoslo hasta aquí, ¿te parece, querida?"
 
@@ -602,7 +602,7 @@ Fluttershy no respondió. La bestia dio otro paso, aplastando lo que quedaba del
 
 Ese fue el quiebre.
 
-Con los ojos clavados en aquella imagen, la desesperación inundó el corazón noble de Fluttershy... acorralando su espíritu. Y entonces, en respuesta, otra emoción emergió. Un sentimiento que solo sus amigas más cercanas conocían.
+Con los ojos clavados en aquella imagen, la desesperación inundó el corazón noble de Fluttershy... acorralando su espíritu. Y entonces, en respuesta, algo más emergió. Un sentimiento que solo sus amigas más cercanas conocían.
 
 "Contesta, Fluttershy. ¿Dónde está Twilight?" insistió la bestia, presionando suavemente las cabezas de Rarity y Pinkie entre sus garras.
 
