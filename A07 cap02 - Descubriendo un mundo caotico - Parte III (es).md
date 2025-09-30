@@ -570,7 +570,7 @@ El aroma de la comida contrastaba con la desoladora escena que la rodeaba.
 
 "¿Rarity? ¿Pinkie?" susurró Fluttershy, apenas con voz, atónita ante la destrucción.
 
-"Vaya... supongo que ese debe ser uno de los regalos de tu princesa", dijo una voz grave detrás suyo.
+"Supongo que ese debe ser uno de los regalos de tu princesa", dijo una voz grave detrás suyo.
 
 Fluttershy giró y, asustada, cayó de espaldas ante la imponente figura.
 
@@ -598,13 +598,21 @@ Alzó sus corpulentos brazos, mostrando las palmas como un niño travieso. Entre
 
 La bestia volvió a avanzar, acortando distancias. Fluttershy retrocedió hasta chocar con una pared de escombros que le cerró el escape.
 
-"Bien, no tienes que hablar. Solo asiente cuando pregunte. Twilight no está aquí, lo sé, de lo contrario, ya me habría detenido. Así que dime... ¿sabes dónde está?"
+"Bien, no tienes que hablar. Solo asiente cuando pregunte. Twilight no está aquí, lo sé; de lo contrario, ya me habría detenido. Así que dime... ¿sabes dónde está?"
 
-Fluttershy no respondió. La bestia dio otro paso, aplastando lo que quedaba del banquete de Rarity. La comida, preparada con tanto esmero para reunirlas, quedó reducida a una masa repulsiva bajo sus pies.
+Fluttershy no respondió. La bestia dio otro paso, aplastando lo que quedaba del banquete de Rarity. La comida, preparada con tanto esmero y que se suponía debía disfrutarse cuando todas las amigas ponis se reunieran, quedó reducida a una masa repulsiva bajo sus pies.
 
-Ese fue el quiebre.
+La pegaso observó aquello con atención; la bestia ni siquiera lo notó. Y aunque lo hubiera notado, no le habría importado.
 
-Con los ojos clavados en aquella imagen, la desesperación inundó el corazón noble de Fluttershy... acorralando su espíritu. Y entonces, en respuesta, algo más emergió. Un sentimiento que solo sus amigas más cercanas conocían.
+Como una epifanía, Fluttershy lo entendió en ese instante.
+
+Así como esa comida, sus amigas —Rarity, Pinkie Pie, Applejack y Rainbow Dash— estaban todas a merced de los caprichos de aquella criatura, cuyo frío espíritu estaba dispuesto a conservarlas mientras hubiera algún valor que pudiera obtener de ellas. Tan pronto como ese valor se desvaneciera, ellas serían simplemente aplastadas.
+
+Sin duda eso ocurriría. ¿Qué podía hacer ella en una situación como esta?
+
+Ese fue el punto de quiebre.
+
+Con los ojos clavados en aquella imagen, la desesperación inundó el noble corazón de Fluttershy, acorralando su cansado espíritu. Y entonces, en respuesta, algo más emergió. Un sentimiento que solo sus amigas más cercanas habían presenciado.
 
 "Contesta, Fluttershy. ¿Dónde está Twilight?" insistió la bestia con un tono apremiante, presionando suavemente las cabezas de Rarity y Pinkie entre sus garras.
 
@@ -616,8 +624,24 @@ La bestia se congeló al instante.
 
 "¿Eh?"
 
-Eso fue todo. La conversación terminó ahí.
+Eso fue todo. La conversación acabó con esas simples palabras.
 
 [---]
 
-"PUMMMMMMMFFFFF"
+Fue repentino.
+
+La continuidad inmóvil del paisaje del mundo de juguetes, tan inquebrantable desde el primer día de su existencia, se quebró de pronto.
+
+En cuestión de segundos, una masa oscura, semejante a una bola de boliche, salió disparada desde el falso Ponyville en línea recta hasta estrellarse contra una de las colosales paredes de piedra de aquella habitación de gigantes.
+
+Instantes después, un sonido semejante a un cañonazo resonó en el aire.
+
+A continuación, restos de árboles, vehículos y edificios de plástico —que habían sido arrasados previamente por el inmenso proyectil— comenzaron a llover en un estruendo constante, dejando en claro lo violento que había sido aquel suceso.
+
+Poco a poco, el estrépito fue cediendo y el silencio inherente a aquel mundo artificial volvió a imponerse.
+
+Pero la situación ya no era la misma.
+
+Dos figuras imponentes habían surgido bajo la luz del escenario: dos personajes opuestos que pronto se enfrentarían en singular combate.
+
+[---]
