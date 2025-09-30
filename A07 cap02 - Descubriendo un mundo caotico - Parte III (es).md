@@ -728,9 +728,9 @@ La bestia lo notó antes de perder su campo de visión y sonrió para sus adentr
 
 Confiada en su movimiento, la bestia cayó directo sobre la pegaso. Y entonces...
 
-"¿Huuu?!" No hubo sonido. No ocurrió el violento impacto que esperaba; en cambio, la sensación de ingravidez que había sentido al tomar la forma de bala de cañón regresó, prolongándose sin fin.
+"¿Huuu?!" No hubo sonido. No ocurrió el violento impacto que esperaba; en cambio, la sensación de ingravidez que había sentido al tomar la forma de bala de cañón regresó por unos instantes. Par luego convertirse en ... ¿ascensión?
 
-No. Era más que eso. No era solo ingravidez... ¿estaba ascendiendo?
+¿Había impactado contra Fluttershy o contra trapolin gigante?
 
 Confusa por lo que sucedía, la bestia deshizo su postura, solo para descubrir que aún estaba en el aire, subiendo a gran velocidad.
 
