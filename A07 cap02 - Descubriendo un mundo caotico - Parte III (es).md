@@ -630,11 +630,11 @@ Eso fue todo. La conversación acabó con esas simples palabras.
 
 Fue repentino.
 
-La continuidad inmóvil del paisaje del mundo de juguetes, tan inquebrantable desde el primer día de su existencia, se quebró de pronto.
+La continuidad inmóvil del paisaje del mundo de juguetes, tan inmutable desde el primer día de su existencia, se quebró de pronto.
 
-En cuestión de segundos, una masa oscura, semejante a una bola de boliche, salió disparada desde el falso Ponyville en línea recta hasta estrellarse contra una de las colosales paredes de piedra de aquella habitación de gigantes.
+En cuestión de segundos, una masa oscura, semejante a una bola de boliche, salió disparada desde el falso Ponyville en línea recta hasta estrellarse contra una de las colosales paredes de aquella habitación de gigantes.
 
-Instantes después, un sonido semejante a un cañonazo resonó en el aire.
+Instantes después, un trueno semejante a un cañonazo resonó en el aire.
 
 A continuación, restos de árboles, vehículos y edificios de plástico —que habían sido arrasados previamente por el inmenso proyectil— comenzaron a llover en un estruendo constante, dejando en claro lo violento que había sido aquel suceso.
 
@@ -642,6 +642,140 @@ Poco a poco, el estrépito fue cediendo y el silencio inherente a aquel mundo ar
 
 Pero la situación ya no era la misma.
 
-Dos figuras imponentes habían surgido bajo la luz del escenario: dos personajes opuestos que pronto se enfrentarían en singular combate.
+Dos figuras imponentes habían surgido bajo la luz del expectante escenario.
 
 [---]
+
+"Ughhh..." La bestia se retorció de dolor. No había perdido la conciencia por el impacto, pero el tormento que recorría todo su cuerpo la mantenía al borde del desmayo.
+
+Concentrando la poca lucidez que aún le quedaba, hizo un esfuerzo por alzar los brazos en medio de su agitación, adoptando una postura semejante a la de alguien que invocara un poder divino. Permaneció así varios segundos hasta que, finalmente, logró estabilizarse.
+
+Bajando los brazos con lentitud, y con la respiración ya regulada, su mente —tan incansable en maquinaciones como siempre— se enfocó en lo que acababa de sucederle.
+
+"Mierda..." escupió.
+
+Frente a ella, una inmensa zanja en línea recta dividía el suelo en dos, prolongándose hasta perderse en el horizonte. A su espalda, la sólida pared de piedra había quedado aplastada, y del sello marcado por el impacto de su cuerpo se extendían grietas profundas por toda la superficie.
+
+"¿Acaso...?" dudó de su propia lógica; sin embargo, al enfocar mejor la vista hacia el horizonte, pudo confirmar lo que temía.
+
+Por mucho que quisiera negarlo, no podía.
+
+Había sido brutalmente atacada, y la responsable de semejante agravio no era nadie más, ni nadie menos que...
+
+"¡Fluttershy!" gritó, presa de la ira.
+
+Así había sido. Podía verlo con sus propios ojos.
+
+Al otro extremo de la zanja, la silueta nítida de la pegaso se alzaba firme, desafiándola.
+
+[---]
+
+Los cuerpos inconscientes de Rarity y Pinkie Pie fueron depositados con cuidado en el suelo, a solo unos metros de los restos de la falsa casa del árbol de Twilight. No era un lugar seguro, pero no podía hacer más por ellas en ese momento.
+
+Un rugido resonó a su espalda, proveniente del otro extremo de la habitación de gigantes.
+
+Fluttershy se dio la vuelta y pudo ver, con claridad en el horizonte, a su oponente: ya recuperado y avanzando hacia ella.
+
+Se encontraba lejos, aunque no lo suficiente como para que eso representara una ventaja.
+
+¿Ventaja? No. De hecho, con los cambios que había experimentado en su cuerpo, ahora estaba en igualdad de condiciones con su entorno... y con su oponente.
+
+La bestia comenzó a ganar velocidad. Con un paso cada vez más atronador, su avance se transformó en una embestida.
+
+Fluttershy se tensó como un arco y, con un simple suspiro, dejó ir sus últimas preocupaciones. Ya estaba lista.
+
+No permitiría que aquella bestia lastimara más a sus amigas.
+
+No mientras ella estuviera presente.
+
+Y entonces, como si hiciera un juramento, la pegaso pronunció en voz firme:
+
+"Yo me encargo."
+
+[---]
+
+Era una locura; lo sabía en lo más profundo de sí, pero ya se había entregado por completo a esta.
+
+"¿Por qué Fluttershy había crecido tanto y tenía ahora un tamaño similar al suyo?"
+
+"¿Dónde estaban Twilight y el niño que la acompañaba, a quienes había perseguido todo ese tiempo?"
+
+"¿Cuánto tiempo le quedaba antes de que el gobernante de ese mundo de caos finalmente perdiera la paciencia con ella y la liquidara?"
+
+Demasiadas preguntas y preocupaciones; ya no tenían cabida.
+
+La bestia, en medio de su furioso ataque, ignoraba las advertencias que le enviaba su cerebro. Toda su atención estaba fija en la descomunal poni frente a ella.
+
+Fluttershy, la pegaso transformada en gigante por un ítem mágico que desconocía, se encontraba de pie en medio del falso Ponyville, burlándose y riéndose de su esfuerzo inútil.
+
+Una risa enfermiza y despreciable, idéntica a la de su odiosa hermana... ¿Hermana? Esa poni no debería estar allí. O... ¿acaso lo estaba imaginando? ¿Todo era un reflejo de su propia paranoia?
+
+Ninguno de esos pensamientos perduró. Fueron borrados, al igual que el verdadero motivo por el que hacía todo eso.
+
+Demasiadas humillaciones le pesaban y nublaban el juicio. Si su estado hubiese sido otro, más saludable, podría haber fingido una derrota tras el primer ataque y huido del lugar.
+
+Pero no era así. Ya no tenía fuerzas para eso. Solo podía dejarse llevar por la ira.
+
+"¡Vas a pagar por esto!" gritó en medio de su embestida descontrolada.
+
+Árboles de cartón salían volando por los aires a su paso. Corría a gran velocidad a pesar de lo cortas que eran sus patas, corría y corría... y no fue hasta que estuvo a solo cincuenta metros de su objetivo que la bestia pegó un salto en el aire. Juntando sus extremidades como un ovillo, tomó la forma de una descomunal bala de cañón rojiza que giraba sobre sí misma y se precipitó sobre la pegaso.
+
+Pero, a pesar de la amenaza, la gigantesca Fluttershy no se movió.
+
+La bestia lo notó antes de perder su campo de visión y sonrió para sus adentros.
+
+"¡Tus amigas están ahí, tarada! ¡No importa si resistes el ataque o no, lo siguiente que haré será aplastarlas!"
+
+Confiada en su movimiento, la bestia cayó directo sobre la pegaso. Y entonces...
+
+"¿Huuu?!" No hubo sonido. No ocurrió el violento impacto que esperaba; en cambio, la sensación de ingravidez que había sentido al tomar la forma de bala de cañón regresó, prolongándose sin fin.
+
+No. Era más que eso. No era solo ingravidez... ¿estaba ascendiendo?
+
+Confusa por lo que sucedía, la bestia deshizo su postura, solo para descubrir que aún estaba en el aire, subiendo a gran velocidad.
+
+"¿Qué...?" gritó perpleja, observando cómo el propio techo del mundo de juguetes se aproximaba rápidamente hacia ella.
+
+Sin perder un segundo, extendió sus extremidades inferiores y, con la fuerza que solo ellas podían darle, resistió el encuentro con el techo. Clavando sus garras en la roca sólida, quedó pegada a la pared, inmóvil por unos segundos.
+
+"Haah... haaah..." jadeó, intentando recuperar el aliento.
+
+¿Qué movimiento había hecho Fluttershy para lanzarla de esa manera? Incapaz de responderse, la bestia solo pudo examinar el suelo debajo de ella, como lo haría un murciélago.
+
+A la distancia, los restos de Ponyville seguían allí, la zanja creada por la primera embestida también era visible... pero no había rastro de la gigante Fluttershy.
+
+"¿Escapó?" se preguntó en voz alta.
+
+La respuesta llegó detrás suyo, en un susurro espeluznante.
+
+"No te muevas..."
+
+Sin que la bestia pudiera reaccionar, dos extremidades de poni se extendieron desde su espalda: la primera apretó su cuello, asfixiándola, y la segunda inmovilizó su brazo derecho.
+
+Atrapada en un movimiento semejante al abrazo mortal de un criminal, la bestia intentó extender su única garra libre para zafarse. Sin embargo, también fue inmovilizada, esta vez por la flexible cola de la pegaso.
+
+El agarre que mantenía en el techo de piedra se desvaneció y la bestia comenzó a caer junto con Fluttershy hacia el suelo. Con cada metro descendido, su conciencia se apagaba más rápido; su cuerpo entumecido no respondía, sus pensamientos marcaban en rojo su final.
+
+Ahora era el suelo el que se acercaba velozmente, un mar de colores y puntos brillantes.
+
+En ese lugar sería donde, por fin, saborearía el amargo gusto de la derrota.
+
+"¡NOOOOOOOOOOOO!" brotó un rugido desde lo más profundo de su ser, negándose a su destino.
+
+El cuerpo de la bestia se hinchó; el implacable agarre de Fluttershy se rompió. Libre, a solo un segundo de impactar con el suelo, pudo respirar con fuerza nuevamente y entonces...
+
+"SPLASHHHH..." Un sonido apagado, semejante a un chapuzón, llegó a sus oídos y una nueva presión recorrió su piel.
+
+Todo se había oscurecido. Chispas estallaban a su alrededor, pero aún era consciente, aferrándose al fluido desconocido que la envolvía. Nadaba con dificultad en medio de aquella irrealidad.
+
+"¡Así no, así no!" gritaba en su mente, rechazando el huracán que intentaba arrastrarla.
+
+Empeñada en su obstinado deseo de sobrevivir, la bestia luchaba contra el estado de confusión en el que había caído.
+
+Entonces, como un velo que se rasga, una luz de salvación se abrió sobre ella.
+
+Sin pensarlo, se impulsó y la cruzó.
+
+[---]
+
+A.
