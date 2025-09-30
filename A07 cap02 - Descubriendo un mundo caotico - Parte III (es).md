@@ -740,9 +740,9 @@ Sin perder un segundo, extendió sus extremidades inferiores y, con la fuerza qu
 
 "Haah... haaah..." jadeó, intentando recuperar el aliento.
 
-¿Qué movimiento había hecho Fluttershy para lanzarla de esa manera? Incapaz de responderse, la bestia solo pudo examinar el suelo debajo de ella, como lo haría un murciélago.
+¿Qué movimiento había hecho Fluttershy para lanzarla de esa manera? Incapaz de responderse, la bestia solo pudo examinar el suelo debajo de ella con ansiedad, tal como lo haría un murciélago buscando a su presa.
 
-A la distancia, los restos de Ponyville seguían allí, la zanja creada por la primera embestida también era visible... pero no había rastro de la gigante Fluttershy.
+Muy abajo. A la distancia, los restos de Ponyville seguían allí, la zanja creada por la primera embestida también era visible... pero no había rastro de la gigante Fluttershy.
 
 "¿Escapó?" se preguntó en voz alta.
 
