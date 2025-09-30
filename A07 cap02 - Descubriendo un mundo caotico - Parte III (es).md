@@ -694,29 +694,29 @@ Y entonces, como si hiciera un juramento, la pegaso pronunció en voz firme:
 
 [---]
 
-Era una locura; lo sabía en lo más profundo de sí, pero ya se había entregado por completo a esta.
+Era una locura; lo sabía en lo más profundo de sí, pero ya se había entregado por completo.
 
-"¿Por qué Fluttershy había crecido tanto y tenía ahora un tamaño similar al suyo?"
+"¿Por qué Fluttershy había crecido tanto?"
 
-"¿Dónde estaban Twilight y el niño que la acompañaba, a quienes había perseguido todo ese tiempo?"
+"¿Dónde estaban Twilight y el niño?"
 
-"¿Cuánto tiempo le quedaba antes de que el gobernante de ese mundo de caos finalmente perdiera la paciencia con ella y la liquidara?"
+"¿Cuánto tiempo quedaba antes de que el gobernante perdiera la paciencia y la liquidara?"
 
-Demasiadas preguntas y preocupaciones; ya no tenían cabida.
+Demasiadas preguntas. Ya no tenían cabida.
 
-La bestia, en medio de su furioso ataque, ignoraba las advertencias que le enviaba su cerebro. Toda su atención estaba fija en la descomunal poni frente a ella.
+La bestia, en medio de su furioso ataque, ignoraba las advertencias de su propio cuerpo. Toda su atención estaba fija en la descomunal poni frente a ella.
 
-Fluttershy, la pegaso transformada en gigante por un ítem mágico que desconocía, se encontraba de pie en medio del falso Ponyville, burlándose y riéndose de su esfuerzo inútil.
+Fluttershy, convertida en gigante por un ítem mágico que desconocía, se alzaba en medio del falso Ponyville, riéndose de su esfuerzo inútil.
 
-Una risa enfermiza y despreciable, idéntica a la de su odiosa hermana... ¿Hermana? Esa poni no debería estar allí. O... ¿acaso lo estaba imaginando? ¿Todo era un reflejo de su propia paranoia?
+Una risa enfermiza, idéntica a la de su odiosa hermana… ¿Hermana? ¿Acaso lo estaba imaginando? ¿Era solo un reflejo de su paranoia?
 
-Ninguno de esos pensamientos perduró. Fueron borrados, al igual que el verdadero motivo por el que hacía todo eso.
+El pensamiento se desvaneció, junto con el verdadero motivo de su lucha.
 
-Demasiadas humillaciones le pesaban y nublaban el juicio. Si su estado hubiese sido otro, más saludable, podría haber fingido una derrota tras el primer ataque y huido del lugar.
+Las humillaciones le pesaban demasiado. Si hubiera estado más cuerda, habría fingido derrota y huido.
 
 Pero no era así. Ya no tenía fuerzas para eso. Solo podía dejarse llevar por la ira.
 
-"¡Vas a pagar por esto!" gritó en medio de su embestida descontrolada.
+"¡Vas a pagar por esto!" gritó la bestia en medio de su embestida descontrolada.
 
 Árboles de cartón salían volando por los aires a su paso. Corría a gran velocidad a pesar de lo cortas que eran sus patas, corría y corría... y no fue hasta que estuvo a solo cincuenta metros de su objetivo que la bestia pegó un salto en el aire. Juntando sus extremidades como un ovillo, tomó la forma de una descomunal bala de cañón rojiza que giraba sobre sí misma y se precipitó sobre la pegaso.
 
@@ -728,9 +728,9 @@ La bestia lo notó antes de perder su campo de visión y sonrió para sus adentr
 
 Confiada en su movimiento, la bestia cayó directo sobre la pegaso. Y entonces...
 
-"¿Huuu?!" No hubo sonido. No ocurrió el violento impacto que esperaba; en cambio, la sensación de ingravidez que había sentido al tomar la forma de bala de cañón regresó por unos instantes. Par luego convertirse en ... ¿ascensión?
+"¿Huuu?!" No hubo sonido. No ocurrió el violento impacto que esperaba; en cambio, la sensación de ingravidez que había sentido al tomar la forma de bala de cañón regresó por unos instantes... para luego transformarse en ascensión.
 
-¿Había impactado contra Fluttershy o contra trapolin gigante?
+¿Había impactado contra Fluttershy o contra un trampolín gigante?
 
 Confusa por lo que sucedía, la bestia deshizo su postura, solo para descubrir que aún estaba en el aire, subiendo a gran velocidad.
 
@@ -742,7 +742,7 @@ Sin perder un segundo, extendió sus extremidades inferiores y, con la fuerza qu
 
 ¿Qué movimiento había hecho Fluttershy para lanzarla de esa manera? Incapaz de responderse, la bestia solo pudo examinar el suelo debajo de ella con ansiedad, tal como lo haría un murciélago buscando a su presa.
 
-Muy abajo. A la distancia, los restos de Ponyville seguían allí, la zanja creada por la primera embestida también era visible... pero no había rastro de la gigante Fluttershy.
+Muy abajo, a la distancia, los restos de Ponyville seguían allí. La zanja creada por la primera embestida también era visible... pero no había rastro de la gigante Fluttershy.
 
 "¿Escapó?" se preguntó en voz alta.
 
@@ -770,7 +770,7 @@ Todo se había oscurecido. Chispas estallaban a su alrededor, pero aún era cons
 
 "¡Así no, así no!" gritaba en su mente, rechazando el huracán que intentaba arrastrarla.
 
-Empeñada en su obstinado deseo de sobrevivir, la bestia luchaba contra el estado de confusión en el que había caído.
+Empeñada en su obstinado deseo de sobrevivir, la bestia luchaba hasta con la última fibra de su ser, contra el estado de confusión en el que había caído.
 
 Entonces, como un velo que se rasga, una luz de salvación se abrió sobre ella.
 
