@@ -808,25 +808,25 @@ Por eso, cuando vio caer a la bestia al lago, se sintió devastada.
 
 Intentó introducirse en el espeso mar de dulces para rescatarla, pero le resultó imposible moverse en su interior. Sin opciones, permaneció en el borde, expectante de lo que pudiera suceder.
 
-Por fortuna las cosas parecian haberse calmado a su favor... al menos eso queria creer.
+Por fortuna, las cosas parecían haberse calmado a su favor... al menos eso quería creer.
 
-La lluvia de caramelos se habia detenido. En el centro del lago multicolor, la bestia, aparentemente inconciente se hallaba aferrada a la cima de unos juegos de toboganes que actuaban como una isla. Tenia los ojos cerrados, y el cuerpo visiblemente maltrado, a Fluttershy le parecio seguro y con intenso aleteo de sus alas, las cuales eran enormes por su actual tamaño, partio rumbo hacia su encuentro.
+La lluvia de caramelos se había detenido. En el centro del lago multicolor, la bestia, aparentemente inconsciente, se hallaba aferrada a la cima de unos juegos de toboganes que actuaban como una isla. Tenía los ojos cerrados, y el cuerpo visiblemente maltrecho. A Fluttershy le pareció seguro y, con un intenso aleteo de sus enormes alas, partió rumbo hacia su encuentro.
 
-Al acercarse su primera impresion parecio confirmarse. Sin embargo, al intentar descender para sacar a la bestia de ahi, algo la detuvo.
+Al acercarse, su primera impresión pareció confirmarse. Sin embargo, al intentar descender para sacar a la bestia de allí, algo la detuvo.
 
-Un brillo resplandeciente parecia filtrarse de uno de sus ojos lastimado de la bestia en su anterior caida.
+Un brillo resplandeciente parecía filtrarse de uno de sus ojos lastimados.
 
-Instintivamente, Fluttershy comenzo a retroceder.
+Instintivamente, Fluttershy comenzó a retroceder.
 
-Fue un moviento acertado. Pues en ese preciso instante, la cabeza de la bestia, que descansa casi sin vida, giro hacia ella. Con los ojos y fauses abiertas de par en par, un brillo rojizo asomo desde su interior y luego un estallido.
+Fue un movimiento acertado, pues en ese preciso instante la cabeza de la bestia, que descansaba casi sin vida, giró hacia ella. Con los ojos y fauces abiertas de par en par, un brillo rojizo asomó desde su interior... y luego un estallido.
 
-Multiples estallidos.
+Múltiples estallidos.
 
-Fluttershy, horrorizada, aleteo con todas sus fuerzas buscando alejarse de la trayectoria de los multiples proyectiles de fuego que salian de la boca de la bestia.
+Fluttershy, horrorizada, aleteó con todas sus fuerzas buscando alejarse de la trayectoria de los proyectiles de fuego que salían disparados de la boca de la bestia.
 
-Mas estallidos rosanaban a sus espaldas, a su lado, las bolas de fuego pasaban de largo como lanza llameantes.
+Las bolas de fuego la perseguían como lanzas incandescentes. Algunas rozaron sus crines, otras silbaron tan cerca que el aire quemaba su piel. El cielo entero parecía en llamas.
 
-El sentimiento de peligro inminente la domino, aun en el aire, de un momento a otro deshizo su transformacion, regresando a su tamaño natural. Sus alas, practicamente congeladas por la tension. La llevaron a presipitarse contra el lago multicolor.
+El sentimiento de peligro inminente la dominó. En un instante, su transformación se deshizo y regresó a su tamaño natural. Sus alas, prácticamente rígidas por la tensión, fallaron... y terminó precipitándose hacia el lago multicolor.
 
 "Ahhhhh" al igual que su oponente termino sumergida en el lago de caramelos. En el cual a duras penas, como en un liquido espeso, era capaz de moverse.
 
