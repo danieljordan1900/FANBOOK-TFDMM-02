@@ -634,25 +634,25 @@ La continuidad inmóvil del paisaje del mundo de juguetes, tan inmutable desde e
 
 En cuestión de segundos, una masa oscura, semejante a una bola de boliche, salió disparada desde el falso Ponyville en línea recta hasta estrellarse contra una de las colosales paredes de aquella habitación de gigantes.
 
-Instantes después, un trueno semejante a un cañonazo resonó en el aire.
+Un trueno, semejante a un cañonazo, resonó en el aire.
 
-A continuación, restos de árboles, vehículos y edificios de plástico —que habían sido arrasados previamente por el inmenso proyectil— comenzaron a llover en un estruendo constante, dejando en claro lo violento que había sido aquel suceso.
+De inmediato, restos de árboles, vehículos y edificios de plástico —arrasados previamente por el impacto— comenzaron a llover en un estruendo constante, dejando en claro lo violento del suceso.
 
-Poco a poco, el estrépito fue cediendo y el silencio inherente a aquel mundo artificial volvió a imponerse.
+Poco a poco, el estrépito fue cediendo y el silencio artificial de aquel mundo volvió a imponerse.
 
 Pero la situación ya no era la misma.
 
-Dos figuras imponentes habían surgido bajo la luz del expectante escenario.
+Dos figuras imponentes habían surgido bajo la luz del escenario.
 
 [---]
 
-"Ughhh..." La bestia se retorció de dolor. No había perdido la conciencia por el impacto, pero el tormento que recorría todo su cuerpo la mantenía al borde del desmayo.
+"Ughhh..." La bestia se retorció de dolor. No había perdido la conciencia por el impacto, pero el tormento que recorría su cuerpo la mantenía al borde del desmayo.
 
-Concentrando la poca lucidez que aún le quedaba, hizo un esfuerzo por alzar los brazos en medio de su agitación, adoptando una postura semejante a la de alguien que invocara un poder divino. Permaneció así varios segundos hasta que, finalmente, logró estabilizarse.
+Concentrando la poca lucidez que le quedaba, hizo un esfuerzo por alzar los brazos en medio de su agitación, adoptando una postura semejante a la de alguien que invocara un poder divino. Permaneció así varios segundos hasta que, finalmente, logró estabilizarse.
 
-Bajando los brazos con lentitud, y con la respiración ya regulada, su mente —tan incansable en maquinaciones como siempre— se enfocó en lo que acababa de sucederle.
+Bajando los brazos con lentitud y con la respiración ya regulada, su mente —tan incansable en maquinaciones como siempre— se enfocó en lo que acababa de sucederle.
 
-"Mierda..." escupió. Le ardia la frente como si acabara de recibir un cabezazo. ¿un cabezazo?
+"Mierda..." escupió. Le ardía la frente como si acabara de recibir un cabezazo. ¿Un cabezazo?
 
 Frente a ella, una inmensa zanja en línea recta dividía el suelo en dos, prolongándose hasta perderse en el horizonte. A su espalda, la sólida pared de piedra había quedado aplastada, y del sello marcado por el impacto de su cuerpo se extendían grietas profundas por toda la superficie.
 
@@ -666,11 +666,11 @@ Había sido brutalmente atacada, y la responsable de semejante agravio no era na
 
 Así había sido. Podía verlo con sus propios ojos.
 
-Al otro extremo de la zanja, la silueta nítida de la pegaso se alzaba firme, desafiándola.
+Al otro extremo de la zanja, la silueta firme de la pegaso se alzaba, desafiándola.
 
 [---]
 
-Los cuerpos inconscientes de Rarity y Pinkie Pie fueron depositados con cuidado en el suelo, a solo unos metros de los restos de la falsa casa del árbol de Twilight. No era un lugar seguro, pero no podía hacer más por ellas en ese momento.
+Los cuerpos inconscientes de Rarity y Pinkie Pie fueron depositados con cuidado en el suelo, a pocos metros de los restos de la falsa casa del árbol de Twilight. No era un lugar seguro, pero no podía hacer más por ellas en ese momento.
 
 Un rugido resonó a su espalda, proveniente del otro extremo de la habitación de gigantes.
 
@@ -678,19 +678,19 @@ Fluttershy se dio la vuelta y pudo ver, con claridad en el horizonte, a su opone
 
 Se encontraba lejos, aunque no lo suficiente como para que eso representara una ventaja.
 
-¿Ventaja? No. De hecho, con los cambios que había experimentado en su cuerpo, ahora estaba en igualdad de condiciones con su entorno... y con su oponente.
+¿Ventaja? No. Con los cambios que había experimentado en su cuerpo, ahora estaba en igualdad de condiciones con su entorno... y con su enemigo.
 
 La bestia comenzó a ganar velocidad. Con un paso cada vez más atronador, su avance se transformó en una embestida.
 
 Fluttershy se tensó como un arco y, con un simple suspiro, dejó ir sus últimas preocupaciones. Ya estaba lista.
 
-Ya no era la misma pequeña poni asustada de antes, gracias a la magia de la perla, toda su determinacion se convertido en combustible para el incremento de tamaño que habia sufrio.
+Ya no era la misma pequeña poni asustada de antes. Gracias a la magia de la perla, toda su determinación se había convertido en combustible para el incremento de tamaño que había sufrido.
 
 No permitiría que aquella bestia lastimara más a sus amigas.
 
 No mientras ella estuviera presente.
 
-Y entonces, pisando con fuerza el suelo haciendo estremecer los edificios, la pegaso pronunció en voz firme como si hiciera un juramento:
+Y entonces, pisando con fuerza el suelo y haciendo estremecer los edificios, la enorme pegaso pronunció en voz firme, como si hiciera un juramento:
 
 "Yo me encargo."
 
@@ -704,7 +704,7 @@ Era una locura; lo sabía en lo más profundo de sí, pero ya se había entregad
 
 "¿Cuánto tiempo quedaba antes de que el gobernante perdiera la paciencia y la liquidara?"
 
-Demasiadas preguntas, sin cabida ya
+Demasiadas preguntas, sin espacio para responderlas ya.
 
 La bestia, en medio de su furioso ataque, ignoraba las advertencias de su propio cuerpo. Toda su atención estaba fija en la descomunal poni frente a ella.
 
@@ -720,11 +720,11 @@ Pero no era así. Ya no tenía fuerzas para eso. Solo podía dejarse llevar por 
 
 "¡Vas a pagar por esto!" gritó la bestia en medio de su embestida descontrolada.
 
-Árboles de cartón salían volando por los aires a su paso. Corría a gran velocidad a pesar de lo cortas que eran sus patas, y no fue hasta que estuvo a solo cincuenta metros de su objetivo que la bestia pegó un salto en el aire. Juntando sus extremidades como un ovillo, tomó la forma de una descomunal bala de cañón rojiza que giraba sobre sí misma y se precipitó sobre la pegaso.
+Árboles de cartón salían volando a su paso. Corría a gran velocidad, a pesar de lo cortas que eran sus patas, y no fue hasta que estuvo a solo cincuenta metros de su objetivo que pegó un salto al aire. Juntando sus extremidades como un ovillo, tomó la forma de una descomunal bala de cañón rojiza que giraba sobre sí misma y se precipitó sobre la pegaso.
 
 La gigante Fluttershy no se movió.
 
-El campo de visión de la bestia se cerró. Pero esta sonrió en silencio.
+El campo de visión de la bestia se cerró. Pero sonrió en silencio.
 
 "¡Tus amigas están ahí, tarada! ¡No importa si resistes el ataque o no, lo siguiente que haré será aplastarlas!"
 
@@ -756,7 +756,7 @@ Sin que la bestia pudiera reaccionar, dos extremidades de poni se extendieron de
 
 Atrapada en un movimiento semejante al abrazo mortal de un criminal, la bestia intentó extender su única garra libre para zafarse. Sin embargo, también fue inmovilizada, esta vez por la flexible cola de la pegaso.
 
-El agarre que mantenía en el techo de piedra se desvaneció y la bestia comenzó a caer junto con Fluttershy hacia el suelo. Con cada metro descendido, su conciencia se apagaba más rápido; su cuerpo entumecido no respondía, sus pensamientos marcaban en rojo su final.
+El agarre que mantenía en el techo de piedra se desvaneció y la bestia comenzó a caer junto con Fluttershy hacia el suelo. Con cada metro descendido, su conciencia se apagaba más rápido; su cuerpo entumecido no respondía y sus pensamientos marcaban en rojo su final.
 
 Ahora era el suelo el que se acercaba velozmente, un mar de colores y puntos brillantes.
 
@@ -766,45 +766,47 @@ En ese lugar sería donde, por fin, saborearía el amargo gusto de la derrota.
 
 El cuerpo de la bestia se hinchó; el implacable agarre de Fluttershy se rompió. Libre, a solo un segundo de impactar con el suelo, pudo respirar con fuerza nuevamente y entonces...
 
-Un estruendo húmedo, como un chapuzón apagado, llegó a sus oídos… y luego una sensacion nueva recorrió su piel.
+Un estruendo húmedo, como un chapuzón apagado, llegó a sus oídos… y luego una sensación nueva recorrió su piel.
 
-Todo se había oscurecido. Tenia los ojos cerrados, pero podia ver claramente chispas estallar a su alrededor. Aún era consciente, a duras penas, aferrándose al fluido desconocido que la envolvía. Nadaba con dificultad en medio de aquella irrealidad.
+Todo se había oscurecido. Tenía los ojos cerrados, pero podía ver claramente chispas estallar a su alrededor. Aún era consciente, a duras penas, aferrándose al fluido desconocido que la envolvía. Nadaba con dificultad en medio de aquella irrealidad.
 
-"¡Así no, así no!" gritaba en su mente al borde del colapso, rechazando la marea que intentaba arrastrarla.
+"¡Así no, así no!" gritaba en su mente al borde del colapso, ahogandose, rechazando la marea que intentaba arrastrarla.
 
-Empeñada en sobrevivir sin importar el costo, la bestia continuo con sus esfuerzos gastando hasta la ultima fibra de su ser, hasta que por fin una luz de salvación se abrió sobre ella.
+Empeñada en sobrevivir sin importar el costo, la bestia continuó con sus esfuerzos, gastando hasta la última fibra de su ser, hasta que por fin una luz de salvación se abrió sobre ella.
+
+"¡Prevaleceré, prevaleceré!" susurró enloquecida.
 
 Sin pensarlo, se impulsó hasta alcanzarla y la cruzó.
 
 [---]
 
-De pie, en el mismo lugar donde antes habían sido capturadas ella y sus amigas, la gigante Fluttershy observaba el interior del lago donde había caído la bestia.
+De pie, en el mismo lugar donde antes habían sido capturadas ella y sus amigas, la gigantesca Fluttershy observaba el interior del lago donde había caído la bestia.
 
-"wow..." susurro la pegaso, sorprendida no tanto por el paradero de la bestia, sino por el estado del terreno en si.
+"Wow..." susurró la pegaso, sorprendida no tanto por el paradero de la criatura, sino por el estado del terreno en sí.
 
-Mucho habia cambiado y no a causa de su pelea. Sino debido a la travesura que anteriormente habia cometido Rainbow Dash con su ayuda, con el afan de obtener unos simples caramelos.
+Mucho había cambiado, y no a causa de su pelea, sino por la travesura que Rainbow Dash había cometido con su ayuda, en ese sitio.
 
-"De verdad aun siguen saliendo caramelos ..." la pegaso no podia creerlo. Ya habian pasado horas desde que descompucieran el misterioso buzon que escupia dulces, sin embargo el torrente que salia seguia siendo incesante. De hecho daba la impresion que haber incrementado la corriente que expulsaba, lo cual explicaria el inmenso lago de caramelos que ahora inundaba gran parte del bosque y terrenos bajos colindantes.
+"¿De verdad... aún siguen saliendo caramelos?" murmuró incrédula. Ya habían pasado horas desde que destruyeran aquel misterioso buzón que escupía dulces, solo habian querido obtener algunos, y aun así el torrente no cesaba. Peor aún: daba la impresión de haberse intensificado, lo cual explicaba el inmenso lago multicolor que ahora inundaba gran parte del bosque y los terrenos bajos colindantes.
 
-Si ese flujo continuaba con ese ritmo de crecimiento, la idea de que el lago se extenderia tanto que terminaria inundando todo el mundo de juguetes se hacia muy creible.
+Si ese flujo seguía creciendo a tal ritmo, la idea de que el lago terminara cubriendo todo el mundo de juguetes no parecía tan descabellada.
 
-"Ay espero que no haberlas metido a todas en otro gran problema" exclamo arrepentida olvidando su crisis actual. Al mismo que pensaba esto, se enorme tamaño comenzo a reducirse. Producto de la culpa que empeñecia su espiritu de combate.
+"Ay... espero no haberlas metido a todas en otro gran problema" exclamó con pesar, olvidando por un instante la crisis actual. Fue entonces cuando notó cómo su enorme tamaño comenzaba a reducirse, reflejo de la culpa que debilitaba su espíritu de combate.
 
-Al percatarse de su cambio, Fluttershy agito su cabeza intentando concentrarse y deteniendo su reduccion, necesitaba conservar sus fuerzas ya que tenia otra crisis mas apremiante que resolver en ese momento.
+Al percatarse, agitó la cabeza con fuerza, obligándose a detener la regresión. No podía permitirse perder energías, aún tenía otra amenaza más apremiante que enfrentar.
 
-Fue en ese instante que una explosion estallo en medio del lago. Como una ballena que emergia a la superficie, la bestia que antes habia caido en su interior salia a flote en medio un aullido desesperado.
+En ese preciso momento, una explosión sacudió el lago. Como una ballena emergiendo a la superficie, la bestia salió a flote en medio de un aullido desesperado.
 
-Fluttershy, retrocediendo ante la intensa lluvia de dulces causadas por la aparicion de la bestia, observo con cuidado el estado de la criatura.
+Fluttershy retrocedió, cubriéndose del intenso aguacero de caramelos que levantaba la criatura.
 
-Suspiro aliviada. La bestia aun estaba con vida aunque muy dañada.
+Observando con atención, suspiró con alivio al comprobar que aún estaba con vida, aunque gravemente dañada.
 
-Incluso en una situacion tan extrema como esa. Fluttershy no habia dejado de pensar en los demas. En ningun momento se le habia ocurrido herir de gravedad a la bestia. Solo inmovilizarla o dejarla inconciente con alguna de las tecnicas que ya conocia. Ese habia sido su pensamiento desde el principio. El cabezaso inicial, el intento de paralizarla, todo habia sido parte de eso.
+A pesar de todo, Fluttershy jamás había deseado herirla de gravedad. Desde el principio, su intención había sido inmovilizarla o dejarla inconsciente con alguna de sus técnicas. El cabezazo inicial, el intento de paralizarla... todo respondía a esa intención.
 
-Aun asi, su oponente seguia sin darse cuenta de sus intenciones. Eso la entristecia.
+Sin embargo, su oponente seguía sin comprenderlo, y aquello la entristecía.
 
-Fue por eso que cuando la bestia cayo en el interior del lago la pegaso quedo muy consternada.
+Por eso, cuando vio caer a la bestia al lago, se sintió devastada.
 
-Intento introducirse en este para rescatarla, pero moverse dentro del lago de caramelos le resulto imposible. Sin opciones, solo se quedo en el borde del mismo esperando lo que pudiera llegar a pasar.
+Intentó introducirse en el espeso mar de dulces para rescatarla, pero le resultó imposible moverse en su interior. Sin opciones, permaneció en el borde, expectante de lo que pudiera suceder.
 
 Por fortuna las cosas parecian haberse calmado a su favor... al menos eso queria creer.
 
