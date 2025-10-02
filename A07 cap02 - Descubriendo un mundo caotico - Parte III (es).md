@@ -908,58 +908,32 @@ Poco después, una lluvia multicolor cayó del cielo. Y en el suelo no quedó m�
 
 [---]
 
-En la oscuridad de una habitación llena de muebles elegantes, a la luz del fuego de la chimenea, una figura delgada tomaba el té.
+En la oscuridad de una habitación llena de muebles elegantes, iluminada por el fuego de la chimenea, una figura delgada tomaba el té.
 
-Sentado en un inmenso sillón, como si fuera un personaje importante, aquel ser vestía para la ocasión con un estilo que gritaba clasicismo: llevaba un saco gris, una corbata de lazo, un sombrero bowler ligeramente inclinado y un monóculo que parecía reflejar todo a su alrededor.
+Sentado en un inmenso sillón, como si fuera un personaje importante, aquel ser vestía para la ocasión con un estilo que gritaba clasicismo: un saco gris, una corbata de lazo, un sombrero bowler ligeramente inclinado y un monóculo que reflejaba todo a su alrededor.
 
 "Uuu…" susurró, acomodando con esmero la taza de té bajo sus muy bien cuidados bigotes.
 
-Su porte era sin duda el de un respetado gran señor. Más que un gobernante, un administrador.
+Su porte era, sin duda, el de un respetado gran señor. Más que un gobernante, un administrador.
 
-Sin embargo, aquella apariencia resultaba engañosa. Al observarlo de cerca, se revelaban rasgos anormales en su rostro, en sus manos, en su piel… en todo su ser.
+Sin embargo, aquella apariencia resultaba engañosa. De cerca, su rostro, sus manos, su piel… todo revelaba rasgos anormales. No era criatura de una sola especie, sino una mezcla discordante de muchas.
 
-No era una criatura de una sola especie, sino una mezcla discordante de muchas.
+"Ou wa…" murmuró de pronto, dirigiéndose a la bola de cristal iluminada sobre el escritorio. En su superficie aún se apreciaban los últimos destellos de la explosión que había sacudido el mundo de juguetes. Tras contemplarla unos segundos, una sonrisa se dibujó en su rostro quimérico.
 
-"Ou wa…" murmuró de pronto, dirigiéndose a la iluminada bola de cristal sobre el escritorio. Tras contemplarla unos segundos, exclamó: "Así que, por fin, se cerró el telón para Madam Magi. Qué desafortunado… juju."
+"Así que, por fin, se cerró el telón para Lady Magi. Qué desafortunado… juju." Se llevó una garra —¿o era una mano?— a la barbilla, pensativo. "Tan cerca de cumplir su parte del trato… y, sin embargo, tan predeciblemente autodestructiva."
 
-Divertido por lo ocurrido en sus dominios, dejó con cuidado a un lado la taza de té y comenzó a escribir en el pergamino que lo había estado esperando todo ese tiempo.
+Con un gesto despreocupado, giró el cristal, enfocando otra escena: una lejana figura de Fluttershy, inconsciente en el suelo bajo la lluvia multicolor.
+
+"Fascinante", murmuró, inclinándose hacia adelante.
+
+Divertido por lo que observaba, dejó a un lado la taza de té y comenzó a escribir en el pergamino que lo había estado aguardando todo ese tiempo. Su pluma danzaba sobre el papel con trazos elegantes y precisos.
 
 "Un contrato es un contrato… pero siempre se puede renegociar, ¿no?"
 
-Tan pronto terminó de escribir y sellar el documento, el papel ardió en llamas y se desvaneció.
+Terminó de escribir con una floritura exagerada y selló el documento. Un instante después, el pergamino se consumió en llamas, desvaneciéndose en el aire.
 
-El extraño ser se levantó, añadió unos leños más a la chimenea y se marchó de la habitación, pensando tranquilamente en lo que haría a continuación.
+El extraño ser se levantó, estirándose con movimientos que desafiaban la anatomía normal. Añadió unos leños a la chimenea y se dirigió hacia la puerta, deteniéndose un momento para echar un último vistazo al cristal.
 
-[---]
+Con una sonrisa, se marchó de la habitación.
 
-En la oscuridad de una habitación llena de muebles elegantes, a la luz del fuego de la chimenea, una figura delgada tomaba el té.
-
-Sentado en un inmenso sillón, como si fuera un personaje importante, aquel ser vestía para la ocasión con un estilo que gritaba clasicismo: llevaba un saco gris, una corbata de lazo, un sombrero bowler ligeramente inclinado y un monóculo que parecía reflejar todo a su alrededor.
-
-"Uuu…" susurró, acomodando con esmero la taza de té bajo sus muy bien cuidados bigotes.
-
-Su porte era sin duda el de un respetado gran señor. Más que un gobernante, un administrador.
-
-Sin embargo, aquella apariencia resultaba engañosa. Al observarlo de cerca, se revelaban rasgos anormales en su rostro, en sus manos, en su piel… en todo su ser.
-
-No era una criatura de una sola especie, sino una mezcla discordante de muchas.
-
-"Ou wa…" murmuró de pronto, dirigiéndose a la iluminada bola de cristal sobre el escritorio. En su superficie brillante aún se apreciaban los últimos destellos de la explosión que había sacudido el mundo de juguetes. Tras contemplarla unos segundos, una sonrisa se dibujó en su rostro quimérico.
-
-"Así que, por fin, se cerró el telón para Lady Magi. Qué desafortunado… juju." Se llevó una garra —o era una mano— a la barbilla, pensativo. "Tan cerca de cumplir su parte del trato… y sin embargo, tan predeciblemente autodestructiva."
-
-Con un gesto despreocupado, giró el cristal, enfocando otra escena: una lejana figura de Fluttershy, inconsiente en el suelo bajo una lluvia multicolor.
-
-"Fascinante," murmuró, inclinándose hacia adelante.
-
-Divertido por lo que observaba, dejó con cuidado a un lado la taza de té y comenzó a escribir en el pergamino que lo había estado esperando todo ese tiempo. Su pluma danzaba sobre el papel con trazos elegantes y precisos.
-
-"Un contrato es un contrato… pero siempre se puede renegociar, ¿no?" murmuraba distraido.
-
-Terminó de escribir con una floritura exagerada y selló el documento. Un instante despues, el pergamino se consumió en llamas, desvaneciéndose en el aire.
-
-El extraño ser se levantó, estirándose con movimientos que desafiaban la anatomía normal. Añadió unos leños más a la chimenea y se dirigió hacia la puerta, deteniéndose un momento para echar un último vistazo al cristal.
-
-Soltando una sonrisa, se marchó de la habitación.
-
-Sobre el escritorio, la bola de cristal parpadeó una última vez antes de apagarse, dejando la habitación sumida en las sombras danzantes del fuego.
+Sobre el escritorio, la bola de cristal parpadeó una última vez antes de apagarse, dejando el lugar sumido en las sombras danzantes del fuego.
