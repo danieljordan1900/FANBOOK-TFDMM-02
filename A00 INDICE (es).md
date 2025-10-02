@@ -21,6 +21,7 @@
 
 1. [Parte I](<A05 cap02 - Descubriendo un mundo caotico - Parte I (es).md>)
 1. [Parte II](<A06 cap02 - Descubriendo un mundo caotico - Parte II (es).md>)
+1. [Parte III](<A07 cap02 - Descubriendo un mundo caotico - Parte III (es).md>)
 
 ---
 
