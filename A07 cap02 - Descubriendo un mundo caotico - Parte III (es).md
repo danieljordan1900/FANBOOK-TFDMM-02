@@ -770,7 +770,7 @@ Un estruendo húmedo, como un chapuzón apagado, llegó a sus oídos… y luego 
 
 Todo se había oscurecido. Tenía los ojos cerrados, pero podía ver claramente chispas estallar a su alrededor. Aún era consciente, a duras penas, aferrándose al fluido desconocido que la envolvía. Nadaba con dificultad en medio de aquella irrealidad.
 
-"¡Así no, así no!" gritaba en su mente al borde del colapso, ahogandose, rechazando la marea que intentaba arrastrarla.
+"¡Así no, así no!" gritaba en su mente al borde del colapso, ahogándose, rechazando la marea que intentaba arrastrarla.
 
 Empeñada en sobrevivir sin importar el costo, la bestia continuó con sus esfuerzos, gastando hasta la última fibra de su ser, hasta que por fin una luz de salvación se abrió sobre ella.
 
@@ -826,65 +826,85 @@ Fluttershy, horrorizada, aleteó con todas sus fuerzas buscando alejarse de la t
 
 Las bolas de fuego la perseguían como lanzas incandescentes. Algunas rozaron sus crines, otras silbaron tan cerca que el aire quemaba su piel. El cielo entero parecía en llamas.
 
-El peligro inminente la dominó. En un instante, su transformación se deshizo y regresó a su tamaño natural. Sus alas, rígidas por la tensión, fallaron... y terminó precipitándose hacia el lago multicolor.
+El peligro inminente la dominó. En un instante, su transformación se deshizo y regresó a su tamaño natural. Sus alas, rígidas por la tensión, fallaron… y terminó precipitándose hacia el lago multicolor.
 
 "¡Ahhhhhh!" gritó, mientras se hundía en la masa espesa. Tardó en estabilizarse, pero finalmente logró mantenerse a flote.
 
-Desde ahí, Fluttershy, aterrada, observó cómo, sobre ella, una tras otra, ráfagas de fuego cruzaban el espacio de aire donde antes había estado. Aquello, sin duda, le habría costado un gran daño, o tal vez la vida.
+Desde ahí, Fluttershy observó, aterrada, cómo ráfagas de fuego cruzaban el espacio donde había estado segundos antes. Continuaron su trayecto hasta impactar contra la pared de piedra opuesta, desencadenando un bombardeo indiscriminado que iluminó y sacudió todo el horizonte.
 
-Las explosiones cesaron. Y el cielo volvió a quedar en silencio.
+Con la mirada fija en ese punto, la pegaso no tardó en comprender la magnitud del peligro que acababa de evadir.
 
-Volviendo su mirada hacia el lugar de donde habían surgido los proyectiles, vio cómo la bestia, que antes estaba recostada, se ponía de pie, revelando un rostro lastimado y grotesco, marcado por ojos rojizos aún iluminados por esa luz de odio que parecía emanar de su propia alma.
+Tras unos segundos más —que le parecieron minutos—, las explosiones cesaron. Y el cielo volvió a quedar en silencio.
 
-"¿Quién eres?" murmuró angustiada a sí misma la pegaso. No lo entendía. ¿Cómo podía explicarse que fueran odiadas de esa forma por esa criatura? ¿Qué habían hecho para recibir semejante aversión? ¿O quizá era un sentimiento más profundo del cual solo eran víctimas accidentales?
+Fluttershy tragó saliva. El peligro había pasado, pero no se sentía en absoluto aliviada.
 
-La bestia comenzó a rugir, con aullidos que helaban la sangre, desorientada en la búsqueda de su oponente. Se dio la vuelta, exponiendo su retaguardia hacia Fluttershy, dándole una oportunidad.
+Temerosa, se dio la vuelta, observando el lugar de donde habían surgido los proyectiles.
 
-La idea de sorprenderla por la espalda como antes cruzó su mente. Sin embargo...
+En el centro del lago multicolor, la bestia, que antes estaba recostada, se incorporaba lentamente, revelando un rostro lastimado y grotesco, marcado por ojos rojizos aún iluminados por esa luz de odio que parecía emanar de su propia alma.
 
-Toda su atención quedó atrapada en las singulares manchas rojas en la espalda de la bestia. No parecían simples manchas, como había pensado en un principio, sino...
+"¿Quién eres?" murmuró angustiada, dejando escapar su pensamiento. No lo entendía. ¿Cómo podía explicarse que fueran odiadas de esa forma por esa criatura? ¿Qué habían hecho para recibir semejante aversión? ¿O quizá era un sentimiento más profundo, del cual solo eran víctimas accidentales?
 
-"¿Cicatrices?" murmuró la pegaso, impactada. Ya había visto una cantidad similar de cicatrices así antes, pero no en una bestia, sino en otra poni, una pegaso.
+La bestia comenzó a rugir, con aullidos que helaban la sangre, desorientada en la búsqueda de su oponente. Giró la cabeza en todas direcciones, hasta que terminó dándose la vuelta, exponiendo su retaguardia hacia Fluttershy.
 
-Los aullidos de la bestia continuaban. Pero ahora se inclinaba hacia el suelo, como si bebiera del lago.
+Parecía una buena oportunidad. La idea de sorprenderla por la espalda, como antes, cruzó fugazmente por su mente. Pero fue apenas un destello, desplazado enseguida por otro pensamiento, más fiel a su naturaleza.
+
+Toda su atención había quedado atrapada en las singulares manchas rojas de la espalda de la bestia. No parecían simples manchas, como había creído en un principio, sino…
+
+"¿Cicatrices?" murmuró la pegaso, impactada. Ya había visto una cantidad similar de cicatrices antes, pero no en una bestia, sino en otra poni… en particular, una pegaso.
+
+Los aullidos de la criatura continuaban. Ahora se inclinaba hacia el suelo, como si bebiera del lago.
 
 "¿Magi?" Fluttershy finalmente murmuró el verdadero nombre de la bestia.
 
-Los ojos de la criatura se dirigieron en su dirección, tan brillantes como farolas incandescentes. No obstante, a pesar de encontrarse directamente bajo su mirada, no pareció notarla.
+Los ojos de la criatura se alzaron en su dirección, tan brillantes como farolas incandescentes. No obstante, a pesar de encontrarse directamente bajo su mirada, no pareció notarla.
 
 En su lugar, devoraba con frenesí los caramelos del lago, como si en ellos estuviera su única salvación.
 
 Ya no quedaba rastro de razón en su conducta.
 
-Horrorizada, Fluttershy observó entonces algo más alarmante. El cuerpo de la bestia había comenzado a hincharse en distintas partes, como si estuviera sufriendo una reacción alérgica.
+Horrorizada, Fluttershy observó entonces algo aún más alarmante. El cuerpo de la bestia había comenzado a hincharse en distintas partes, como si sufriera una reacción alérgica.
 
-Tardó unos segundos más en reaccionar, comprendiendo que la causa de aquella reacción la tenían los caramelos.
+Tardó demasiado en comprenderlo: la causa de aquella reacción estaba a su alrededor.
 
-"¡Noo...! ¡Alto! ¡Detente!" gritó tan fuerte como pudo la pegaso. No obstante, la bestia ni siquiera parecía escucharla. Siguió engullendo caramelos como si ese fuera su único propósito en el mundo.
+Los caramelos...
+
+"¡Noo...! ¡Alto! ¡Magi detente!" gritó tan fuerte como pudo la pegaso. Pero la bestia ni siquiera parecía escucharla. Siguió engullendo caramelos como si ese fuera su único propósito en el mundo.
 
 Al mismo tiempo, su cuerpo, ya deformado, se inflaba sin control.
 
-Fluttershy seguía lanzando advertencias, en vano.
+Desesperada, Fluttershy intentó liberarse del lago de dulces, al tiempo que lanzaba nuevas advertencias.
 
-Concentrada en su insana alimentación, los ojos de la bestia brillaban con mayor intensidad. El tamaño de su cuerpo, tan estirado como un globo, había alcanzado una proporción absurda con su entorno, haciendo temer lo peor.
+Fue ignorada sin pausa.
 
-Era como si estuviera a segundos de explotar.
+La criatura, absorta en su insana alimentación, brillaba cada vez más con sus ojos ardientes. El tamaño de su cuerpo, tan estirado como un globo, alcanzaba ya una proporción absurda con el entorno.
 
-Asumiendo que sus esfuerzos eran en vano y temiendo el próximo desenlace, Fluttershy optó por abandonar el lago.
+No se detenía. Y si lo hacía, el sentido común dictaba que solo podía terminar de una manera: explotando.
 
-Con un esfuerzo enorme logró batir sus inmóviles alas, y al fin se elevó, alejándose tan rápido como pudo del lugar.
+Y así iba a ser.
 
-No miró atrás y, si lo hubiera hecho, habría visto solo una inmensa masa circular cubriendo el paisaje con un tono blanco y rojizo.
+Asumiendo lo peor, Fluttershy se detuvo. Sus pensamientos se entrechocaban:
 
-El lago de caramelos quedó en penumbras, y más allá del bosque de cartón también. La sombra de la bestia se extendía sin freno, cubriendo un cuarto del mundo de juguete.
+"¿Debo salvar a Magi? Pero si fallo… ¡mis demás amigas correrán peligro! Pero si solo las protejo a ellas, entonces Magi…"
 
-Fluttershy, a duras penas, logró dejar atrás aquella sombra. En un vuelo rasante, finalmente alcanzó los límites del falso Ponyville.
+Se debatió en su elección. Pero al volver la mirada hacia la bestia, comprendió con dolor que en realidad siempre había existido una sola respuesta.
+
+Resignada, con lágrimas asomando en sus ojos, Fluttershy le dio la espalda.
+
+Había elegido a sus amigas.
+
+Con un esfuerzo enorme logró batir sus entumecidas alas y, al fin, se elevó. Corriendo y volando a la vez, se alejó tan rápido como pudo del lugar.
+
+No miró atrás. No podía hacerlo: la amargura y la culpa se lo impedían. Y aunque lo hubiera hecho, habría visto una inmensa masa circular cubriendo medio horizonte con un tono blanco y rojizo.
+
+El lago de caramelos quedó en penumbras, y más allá, el bosque de cartón también. La sombra de la bestia se extendía sin freno, cubriendo un cuarto del mundo de juguete.
+
+Fluttershy, a duras penas, consiguió dejar atrás aquella sombra. En un vuelo rasante, finalmente alcanzó los límites del falso Ponyville.
 
 Fue lo más lejos que llegó.
 
 Un segundo después, una luz blanca centelleó en el mundo de juguetes. Luego, un trueno ahogado y, finalmente, una onda expansiva arrasó todo en su interior.
 
-Una lluvia multicolor cayó del cielo, y en el suelo no quedó más que vacío. Nunca más se vio a la bestia.
+Poco después, una lluvia multicolor cayó del cielo. Y en el suelo no quedó más que vacío. Nunca más se vio a la bestia.
 
 [---]
 
@@ -909,3 +929,37 @@ Divertido por lo ocurrido en sus dominios, dejó con cuidado a un lado la taza d
 Tan pronto terminó de escribir y sellar el documento, el papel ardió en llamas y se desvaneció.
 
 El extraño ser se levantó, añadió unos leños más a la chimenea y se marchó de la habitación, pensando tranquilamente en lo que haría a continuación.
+
+[---]
+
+En la oscuridad de una habitación llena de muebles elegantes, a la luz del fuego de la chimenea, una figura delgada tomaba el té.
+
+Sentado en un inmenso sillón, como si fuera un personaje importante, aquel ser vestía para la ocasión con un estilo que gritaba clasicismo: llevaba un saco gris, una corbata de lazo, un sombrero bowler ligeramente inclinado y un monóculo que parecía reflejar todo a su alrededor.
+
+"Uuu…" susurró, acomodando con esmero la taza de té bajo sus muy bien cuidados bigotes.
+
+Su porte era sin duda el de un respetado gran señor. Más que un gobernante, un administrador.
+
+Sin embargo, aquella apariencia resultaba engañosa. Al observarlo de cerca, se revelaban rasgos anormales en su rostro, en sus manos, en su piel… en todo su ser.
+
+No era una criatura de una sola especie, sino una mezcla discordante de muchas.
+
+"Ou wa…" murmuró de pronto, dirigiéndose a la iluminada bola de cristal sobre el escritorio. En su superficie brillante aún se apreciaban los últimos destellos de la explosión que había sacudido el mundo de juguetes. Tras contemplarla unos segundos, una sonrisa se dibujó en su rostro quimérico.
+
+"Así que, por fin, se cerró el telón para Lady Magi. Qué desafortunado… juju." Se llevó una garra —o era una mano— a la barbilla, pensativo. "Tan cerca de cumplir su parte del trato… y sin embargo, tan predeciblemente autodestructiva."
+
+Con un gesto despreocupado, giró el cristal, enfocando otra escena: una lejana figura de Fluttershy, inconsiente en el suelo bajo una lluvia multicolor.
+
+"Fascinante," murmuró, inclinándose hacia adelante.
+
+Divertido por lo que observaba, dejó con cuidado a un lado la taza de té y comenzó a escribir en el pergamino que lo había estado esperando todo ese tiempo. Su pluma danzaba sobre el papel con trazos elegantes y precisos.
+
+"Un contrato es un contrato… pero siempre se puede renegociar, ¿no?" murmuraba distraido.
+
+Terminó de escribir con una floritura exagerada y selló el documento. Un instante despues, el pergamino se consumió en llamas, desvaneciéndose en el aire.
+
+El extraño ser se levantó, estirándose con movimientos que desafiaban la anatomía normal. Añadió unos leños más a la chimenea y se dirigió hacia la puerta, deteniéndose un momento para echar un último vistazo al cristal.
+
+Soltando una sonrisa, se marchó de la habitación.
+
+Sobre el escritorio, la bola de cristal parpadeó una última vez antes de apagarse, dejando la habitación sumida en las sombras danzantes del fuego.
