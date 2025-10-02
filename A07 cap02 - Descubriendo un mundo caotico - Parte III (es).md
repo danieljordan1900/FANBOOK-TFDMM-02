@@ -412,7 +412,7 @@ El amuleto que anulaba la magia seguía siendo su mejor carta, pero ahora Twilig
 
 Para la bestia, ponis como Fluttershy eran un error que debía ser erradicado. No eran más que un dolor de cabeza para los demás.
 
-"La princesa debe haberle dado algún ítem mágico poderoso… sí, eso debe ser. Pero ... ¿Un item que solo sirve para escapar? ¡Maldición, por qué tengo que estar en guardia contra alguien así! Grrrrr..."
+"La princesa debe haberle dado algún ítem mágico poderoso… sí, eso debe ser. Pero ... ¿Un ítem que solo sirve para escapar? ¡Maldición, por qué tengo que estar en guardia contra alguien así! Grrrrr..."
 
 Tener a Fluttershy como objetivo prioritario era irritante, pero sabía que, si lograba deshacerse de ella, solo quedaría la princesa.
 
@@ -448,7 +448,7 @@ Un par de minutos después, la puerta del edificio se abrió a lo lejos, dándol
 
 "¡Basta de eso, Applejack! ¡Levántate!" reprendió la voz de Rainbow Dash a un lado suyo.
 
-"¡Wow!" empujada por su amiga, Applejack rodó hasta chocar contra una pared.
+"¡Wow!" El cuerpo de Applejack fue empujado y rodó hasta chocar contra una pared.
 
 Al menos eso le pareció a la desorientada poni.
 
@@ -570,7 +570,7 @@ El aroma de la comida contrastaba con la desoladora escena que la rodeaba.
 
 "¿Rarity? ¿Pinkie?" susurró Fluttershy, apenas con voz, atónita ante la destrucción.
 
-"Supongo que ese debe ser uno de los regalos de tu princesa", dijo una voz grave detrás suyo.
+"Supongo que ese debe ser uno de los regalos de tu princesa", dijo una voz grave detrás de ella.
 
 Fluttershy giró y, asustada, cayó de espaldas ante la imponente figura.
 
@@ -600,7 +600,7 @@ La bestia volvió a avanzar, acortando distancias. Fluttershy retrocedió hasta 
 
 "Bien, no tienes que hablar. Solo asiente cuando pregunte. Twilight no está aquí, lo sé; de lo contrario, ya me habría detenido. Así que dime... ¿sabes dónde está?"
 
-Fluttershy no respondió. La bestia dio otro paso, aplastando lo que quedaba del banquete de Rarity. La comida, preparada con tanto esmero y que se suponía debía disfrutarse cuando todas las amigas ponis se reunieran, quedó reducida a una masa repulsiva bajo sus pies.
+Fluttershy no respondió. La bestia dio otro paso, aplastando lo que quedaba del banquete de Rarity. La comida, preparada con tanto esmero y que se suponía que debía disfrutarse cuando todas las amigas ponis se reunieran, quedó reducida a una masa repulsiva bajo sus pies.
 
 La pegaso observó aquello con atención; la bestia ni siquiera lo notó. Y aunque lo hubiera notado, no le habría importado.
 
